@@ -187,57 +187,96 @@ Moreover it was enacted, that all who possessed any publich Post, should take ou
 This grand Alteration in the Government occasioned also many others: The Oaths of Allegiance and Supremacy were abolished: Justice was no longer
 
 [ 52 ]
- administered in the King's Name, but in the Names of the Keepers of the Liberties of England: A new Council of State, consisting of thirty nine Persons, was chosen for the Administration of publick Affairs under the Parliament: new Money was coined: and a new Great Seal was made, on one side of which was seen the Parliament sitting, with this Inscription, The Great Seal of the Parliament of the Commonwealth of England; on the other Side, the Arms of England and Ireland, with these Words, The first Year of Freedom by God's Blessing restored. And this Seal was committed to a certain number of Persons, who were stiled Keepers of the Liberties of Great Britain.
+administered in the King's Name, but in the Names of the Keepers of the Liberties of England: A new Council of State, consisting of thirty nine Persons, was chosen for the Administration of publick Affairs under the Parliament: new Money was coined: and a new Great Seal was made, on one side of which was seen the Parliament sitting, with this Inscription, The Great Seal of the Parliament of the Commonwealth of England; on the other Side, the Arms of England and Ireland, with these Words, The first Year of Freedom by God's Blessing restored. And this Seal was committed to a certain number of Persons, who were stiled Keepers of the Liberties of Great Britain.
 
- Many also were the Changes that were made in Religion; Episcopacy was abolished, the Common Prayer despised, Canting and Hypocrisy, and doing all kinds of Wickendess in the Name of the Lord, were the Signs of Grace; and every one worshiped God after the Foolishness of his own Heart.
+Many also were the Changes that were made in Religion; Episcopacy was abolished, the Common Prayer despised, Canting and Hypocrisy, and doing all kinds of Wickendess in the Name of the Lord, were the Signs of Grace; and every one worshiped God after the Foolishness of his own Heart.
 
- Howbeit the Son of King Charles, who had fled beyond the Seas, was invited into Scotland, where he was proclaimed King; and he raised an Army of Eighteen thousand Men; and marched into England, to the City of Worcester, and encambed there.
+Howbeit the Son of King Charles, who had fled beyond the Seas, was invited into Scotland, where he was proclaimed King; and he raised an Army of Eighteen thousand Men; and marched into England, to the City of Worcester, and encambed there.
 
- And Cromwell, with an Army of Thirty thousand Men, pursued him to the Gates of the City, and gave him Battle; and the Army of the King was discomfited, and he was forced to fly from the Presence of Cromwell, and many were slain by the Edge of the Sword.
+And Cromwell, with an Army of Thirty thousand Men, pursued him to the Gates of the City, and gave him Battle; and the Army of the King was discomfited, and he was forced to fly from the Presence of Cromwell, and many were slain by the Edge of the Sword.
 
- Nevertheless he fell not into the Hands of his Enemies, neither was he taken in their Snares: He was beset with Dangers round about, but the Hand of the Lord conducted him in Safety.
+Nevertheless he fell not into the Hands of his Enemies, neither was he taken in their Snares: He was beset with Dangers round about, but the Hand of the Lord conducted him in Safety.
 
- [ 53 ]
+[ 53 ]
 
- And it came to pass that he was pursued into the middle of a Wood called Boscobel, and he got up into a Tree and concealed himself, that his Pursuers passed by and saw him not.
+And it came to pass that he was pursued into the middle of a Wood called Boscobel, and he got up into a Tree and concealed himself, that his Pursuers passed by and saw him not.
 
- And the Tree is called the Royal Oak unto this Day.
+And the Tree is called the Royal Oak unto this Day.
 
- In a Barn also he hid himself, two Days and two Nights concealed he himself from the Rage of his Enemies; Straw only was his Bed, and he was fed by the Hand of a poor Woman with Buttermilk and Bread.
+In a Barn also he hid himself, two Days and two Nights concealed he himself from the Rage of his Enemies; Straw only was his Bed, and he was fed by the Hand of a poor Woman with Buttermilk and Bread.
 
- Moreover he stripped off his Royal Robes, and disguised himself in poor Array; his Hands also and his Face he dyed with Walnuts; a Hempen Shirt was next his Skin, and his outward Garment was a Leathern Doublet: In the Night also he fled, in the Darkness of the Night he escaped.
+Moreover he stripped off his Royal Robes, and disguised himself in poor Array; his Hands also and his Face he dyed with Walnuts; a Hempen Shirt was next his Skin, and his outward Garment was a Leathern Doublet: In the Night also he fled, in the Darkness of the Night he escaped.
 
- And he walked from the Going-down of the Sun even till the Morning Star appeared, insomuch that his Feed were galled with Blood.
+And he walked from the Going-down of the Sun even till the Morning Star appeared, insomuch that his Feed were galled with Blood.
 
- Many other Disguises put he on, and many other Perils did he encounter; now on a Miller's Horse with dusty Bags, and now before a Country Dame on Horseback; till at last arriving at the Sea-side, he escaped to France in a small Vessel belonging to a poor Fisherman.
+Many other Disguises put he on, and many other Perils did he encounter; now on a Miller's Horse with dusty Bags, and now before a Country Dame on Horseback; till at last arriving at the Sea-side, he escaped to France in a small Vessel belonging to a poor Fisherman.
 
- Mean time the Power of Cromwell increased, and his Glory grew unto the Height; insomuch that he set himself at the Head of the Commonwealth and was called the Protector thereof.
+Mean time the Power of Cromwell increased, and his Glory grew unto the Height; insomuch that he set himself at the Head of the Commonwealth and was called the Protector thereof.
 
- [ 54 ]
+[ 54 ]
 
- OLIVER CROMWELL Protector.
+OLIVER CROMWELL Protector.
 
- NOW Cromwell was a valiant Man, but a great Hypocrite; and he humoured the Times, pretending to Piety, and to consult the Lord in all his Doings.
+NOW Cromwell was a valiant Man, but a great Hypocrite; and he humoured the Times, pretending to Piety, and to consult the Lord in all his Doings.
 
- Howbeit his Character is doubtful, whether he was a righteous Man or a Rogue; neither is it determined by which Apellation to call him unto this Day: Peradventure he was a Mixture of both.
+Howbeit his Character is doubtful, whether he was a righteous Man or a Rogue; neither is it determined by which Apellation to call him unto this Day: Peradventure he was a Mixture of both.
 
- Those who speak Evil of him say, that he set up himself as an Idol, and made the very Streets of London like unto the Valley of Hinnom, by burning the Bowels of Men as a Sacrifice to his Molochship: that his Pretence was Freedom for all Men, and that by the Help of that Pretence he made all Men his Slaves, setting up himself above all that ever were called Sovereign in England: that he summoned Parliaments with a Word of his Pen, and dispersed them again with the Breath of his Mouth: that he took Arms against Taxes of scarce Two hundred thousand Pounds a Year, and rasied them himself to above Two Millions: that under the pretence of reforming Religion, he robbed it even to the Skin, and then exposed it naked to the Rage of all Sects and Heresies: that he fought against the King under a Commission for him, and then took him forcibly out of the Hands of those for whom he had conquered him, and butchered him in the open Face of all the whole World, with as little Shame as Conscience or Humanity.
+Those who speak Evil of him say, that he set up himself as an Idol, and made the very Streets of London like unto the Valley of Hinnom, by burning the Bowels of Men as a Sacrifice to his Molochship: that his Pretence was Freedom for all Men, and that by the Help of that Pretence he made all Men his Slaves, setting up himself above all that ever were called Sovereign in England: that he summoned Parliaments with a Word of his Pen, and dispersed them again with the Breath of his Mouth: that he took Arms against Taxes of scarce Two hundred thousand Pounds a Year, and rasied them himself to above Two Millions: that under the pretence of reforming Religion, he robbed it even to the Skin, and then exposed it naked to the Rage of all Sects and Heresies: that he fought against the King under a Commission for him, and then took him forcibly out of the Hands of those for whom he had conquered him, and butchered him in the open Face of all the whole World, with as little Shame as Conscience or Humanity.
 
- Thus he is made a Monster of Baseness, Ingratitude, Hypocrisy, Rebellion and Usurpation.
+Thus he is made a Monster of Baseness, Ingratitude, Hypocrisy, Rebellion and Usurpation.
 
- [ 55 ]
+[ 55 ]
 
- Howbeit there are others who defend him; saying, He was an illustrious Warriour, a great Politician, a Man of the most consummate Prudence, and who had the Art of making himself both feared and respected: that if his Government be compared with those of the two last Kings, there will appear a very great Disparity with regard to the Glory and Reputation of the English Nation: that he made himself equally dreaded by France and Spain, and the United Provinces, who all courted his Friendship with such Ardour, that they may be said to have cringed to him beyond what was becoming: that if his Ambition led him to aggrandize himself, it also led him to advance the Glory of the English Name, and the Terror of their Arms even to the Pitch of Roman Greatness: that as to his Morals, he was guilty of a few of the Vices to which Men are commonly addicted; Gluttony, Drunkenness, Gaming, Luxury and Avarice, were Crimes with which he was never reproached: and as to his Religion, his Principle was, to leave every Man at liberty, and to persecute no one on that Account: In fine, that by his great Capacity and uncommon Abilities he raised himself to the supreme Dignity, supported himself in it with great Glory, and, dying in Peace, bequeathed it to his Posterity.
+Howbeit there are others who defend him; saying, He was an illustrious Warriour, a great Politician, a Man of the most consummate Prudence, and who had the Art of making himself both feared and respected: that if his Government be compared with those of the two last Kings, there will appear a very great Disparity with regard to the Glory and Reputation of the English Nation: that he made himself equally dreaded by France and Spain, and the United Provinces, who all courted his Friendship with such Ardour, that they may be said to have cringed to him beyond what was becoming: that if his Ambition led him to aggrandize himself, it also led him to advance the Glory of the English Name, and the Terror of their Arms even to the Pitch of Roman Greatness: that as to his Morals, he was guilty of a few of the Vices to which Men are commonly addicted; Gluttony, Drunkenness, Gaming, Luxury and Avarice, were Crimes with which he was never reproached: and as to his Religion, his Principle was, to leave every Man at liberty, and to persecute no one on that Account: In fine, that by his great Capacity and uncommon Abilities he raised himself to the supreme Dignity, supported himself in it with great Glory, and, dying in Peace, bequeathed it to his Posterity.
 
- And now behold, he that was a Monster is become an Hero! Wherefore, gentle Reader, out of the two Characters here given, thou mayest form such a one as seemeth best in thine Eyes, and call him Oliver Cromwell.
+And now behold, he that was a Monster is become an Hero! Wherefore, gentle Reader, out of the two Characters here given, thou mayest form such a one as seemeth best in thine Eyes, and call him Oliver Cromwell.
 
- Now the rest of the Acts of this Ruler, and the suprising Things that he did, behold they are written in the Books of the Chronicles of the Kings of England.
+Now the rest of the Acts of this Ruler, and the suprising Things that he did, behold they are written in the Books of the Chronicles of the Kings of England.
 
- [ 56 ]
+[ 56 ]
 
- And Cromwell slept with his Fathers, and was buried in the Chapel of Henry the Seventh, and Richard his Son was Protector in his stead.
+And Cromwell slept with his Fathers, and was buried in the Chapel of Henry the Seventh, and Richard his Son was Protector in his stead.
 
- RICHARD CROMWELL Protector.
+RICHARD CROMWELL Protector.
 
- 
+AND it came to pass that the Man Richard was presently found to be incapable of the Reins of Government; he had neither Capacity to manage, Judgment to guide, nor Resolution to hold them; wherefore the Parliament took from him the Protectorship, and deposed him from the Government.
+
+And now the Commonwealth was left to drive at random, the Government being sometimes administered by a Council of Officers, and sometimes by a Thing called a Committee of Safety, and great Confusion ensued in the Land.
+
+And there dwelt a Man in the Norhtern Part of the Island, which is called Scotland, whose Name was Monk: moreover he was the Governor thereof, and a great Warriour.
+
+Now this Man, taking Advantage of the publick Distractions, assembled an Army and marched to London, declariong for a Restoration of the King.
+
+And the People were terrified at his Presence, or peradventure they were weary with perpetual Changes and Commotions; wherefore they agreed to his Proposals, and sent Messengers unto the King, who was now in Holland, desiring his Return.
+
+And it came to pass in the twenty ninth Day of the fifth Month, which is called May, that the King was conducted in great State to his Palace at Whitehall, and all the People shouted, saying, Long live the King.
+
+[ 57 ]
+
+XXVI. CHARLES II.
+
+NOW as many enormous Crimes had been committed by Men of all Degrees, insomuch that it was apprehended great Numbers, nothinking themselves safe, would depart ouf of the Land; the first Thing that the King set himself to do was to publish an Act of Indemnity.
+
+Howbeit, he excepted out of it forty and nine Persons, who had been principally concerned in the Murder of his Father. Nevertheless only ten of them were executed.
+
+And the King repealed all Laws that had been made in favour of a popular Government; moreover he restored the ancient Discipline of the Church, and replaced the Bishops in their former Dignity and Jurisdiction.
+
+About this Time an Insurrection happened in London, set on foot by a small Remnant of Enthusiasts, not more than fifty, in order to destroy all the Monarchies of the Earth.
+
+These mad Religionists were called Fifth Monarchy Men, who, by reading the Prophecies of Daniel, and the Revelations of St. John, had persuaded themselves that the Time of our Saviour's visible Reign on Earth was come; and therefore it was their Duty to take up Arms for King JESUS against the Power of the World, and that no Weapon formed against them should
+
+[ 58 ]
+
+prosper, but that one should chace a thousand, and two put ten thousand to flight.
+
+In Confidence of this Prophecy being fulfilled, they declared that they would rise up against the Carnal, and possess the Gate of the World; that they would never sheath the Sword till Babylon (as they called Monarchy) should become a Hissing and a Curse, and there were left neither Remnant, Son, nor Nephew: And that when they had led Captivity Captive in England, they would then to into France, Spain and Germany, and bind their Kings in Chains, and their Nobles in Fetters of Iron.
+
+Howbeit these miserable Men were deluded, being cut off in the City by the Edge of the Swords, even by the Train-bands of the City were they destroyed.
+
+Now it came to pass that Charles gave a loose to his Appetites, and indulged himself in all manner of Delights; and he sent forth his Pimps and his Nobles throughout all the Land, to search for the most beautiful Women that could be found.
+
+And they ministered unto the King according to his Wishes: One brought him Eyes that melted with a dying Softness, another Lips that seemed to say come kiss me; this brought him snowy Breasts whose heaving Softness swelled with Love, and that a Shape whose wanton Motions seemed to promise Bliss luxuriant.
+
+Now the King was pleased therewith, and he was enamoured of them all; and put forth his Sceptre unto them, and the Land was filled with Royal Bastards.
+
 
