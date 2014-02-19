@@ -22,6 +22,5 @@
 - Chapter from the Whig Chronicles - 1840?
 
 
-"Written in the Style of Antiquity": Pseudo-Biblicism and the Early American Republic, 1770-1830.
+["Written in the Style of Antiquity": Pseudo-Biblicism and the Early American Republic, 1770-1830](http://www.thefreelibrary.com/%22Written+in+the+Style+of+Antiquity%22%3A+Pseudo-Biblicism+and+the+Early...-a0244888045)
 
-http://www.thefreelibrary.com/%22Written+in+the+Style+of+Antiquity%22%3A+Pseudo-Biblicism+and+the+Early...-a0244888045
