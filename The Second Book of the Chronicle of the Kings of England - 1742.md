@@ -178,4 +178,44 @@ And on the thirtieth Day of the first Month, which is called January, a Scaffold
 
 The Commonwealth.
 
+And it came to pass after the Death of King Charles, that the Commons passed an Act for annulling the House of Lords, and abolishing the Regal Power as useless, burthensome and dangerous; and the Government of England was changed into a Commonwealth.
+
+And the Duke of Hamilton, the Earl of Holland, the Lord Capel, and many others who had been of the King's Party, were put to Death.
+
+Moreover it was enacted, that all who possessed any publich Post, should take out fresh Grants and new Oaths to qualify themselves for holding the same.
+
+This grand Alteration in the Government occasioned also many others: The Oaths of Allegiance and Supremacy were abolished: Justice was no longer
+
+[ 52 ]
+ administered in the King's Name, but in the Names of the Keepers of the Liberties of England: A new Council of State, consisting of thirty nine Persons, was chosen for the Administration of publick Affairs under the Parliament: new Money was coined: and a new Great Seal was made, on one side of which was seen the Parliament sitting, with this Inscription, The Great Seal of the Parliament of the Commonwealth of England; on the other Side, the Arms of England and Ireland, with these Words, The first Year of Freedom by God's Blessing restored. And this Seal was committed to a certain number of Persons, who were stiled Keepers of the Liberties of Great Britain.
+
+ Many also were the Changes that were made in Religion; Episcopacy was abolished, the Common Prayer despised, Canting and Hypocrisy, and doing all kinds of Wickendess in the Name of the Lord, were the Signs of Grace; and every one worshiped God after the Foolishness of his own Heart.
+
+ Howbeit the Son of King Charles, who had fled beyond the Seas, was invited into Scotland, where he was proclaimed King; and he raised an Army of Eighteen thousand Men; and marched into England, to the City of Worcester, and encambed there.
+
+ And Cromwell, with an Army of Thirty thousand Men, pursued him to the Gates of the City, and gave him Battle; and the Army of the King was discomfited, and he was forced to fly from the Presence of Cromwell, and many were slain by the Edge of the Sword.
+
+ Nevertheless he fell not into the Hands of his Enemies, neither was he taken in their Snares: He was beset with Dangers round about, but the Hand of the Lord conducted him in Safety.
+
+ [ 53 ]
+
+ And it came to pass that he was pursued into the middle of a Wood called Boscobel, and he got up into a Tree and concealed himself, that his Pursuers passed by and saw him not.
+
+ And the Tree is called the Royal Oak unto this Day.
+
+ In a Barn also he hid himself, two Days and two Nights concealed he himself from the Rage of his Enemies; Straw only was his Bed, and he was fed by the Hand of a poor Woman with Buttermilk and Bread.
+
+ Moreover he stripped off his Royal Robes, and disguised himself in poor Array; his Hands also and his Face he dyed with Walnuts; a Hempen Shirt was next his Skin, and his outward Garment was a Leathern Doublet: In the Night also he fled, in the Darkness of the Night he escaped.
+
+ And he walked from the Going-down of the Sun even till the Morning Star appeared, insomuch that his Feed were galled with Blood.
+
+ Many other Disguises put he on, and many other Perils did he encounter; now on a Miller's Horse with dusty Bags, and now before a Country Dame on Horseback; till at last arriving at the Sea-side, he escaped to France in a small Vessel belonging to a poor Fisherman.
+
+ Mean time the Power of Cromwell increased, and his Glory grew unto the Height; insomuch that he set himself at the Head of the Commonwealth and was called the Protector thereof.
+
+ [ 54 ]
+
+ OLIVER CROMWELL Protector.
+
+ 
 
