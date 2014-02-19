@@ -217,5 +217,27 @@ This grand Alteration in the Government occasioned also many others: The Oaths o
 
  OLIVER CROMWELL Protector.
 
+ NOW Cromwell was a valiant Man, but a great Hypocrite; and he humoured the Times, pretending to Piety, and to consult the Lord in all his Doings.
+
+ Howbeit his Character is doubtful, whether he was a righteous Man or a Rogue; neither is it determined by which Apellation to call him unto this Day: Peradventure he was a Mixture of both.
+
+ Those who speak Evil of him say, that he set up himself as an Idol, and made the very Streets of London like unto the Valley of Hinnom, by burning the Bowels of Men as a Sacrifice to his Molochship: that his Pretence was Freedom for all Men, and that by the Help of that Pretence he made all Men his Slaves, setting up himself above all that ever were called Sovereign in England: that he summoned Parliaments with a Word of his Pen, and dispersed them again with the Breath of his Mouth: that he took Arms against Taxes of scarce Two hundred thousand Pounds a Year, and rasied them himself to above Two Millions: that under the pretence of reforming Religion, he robbed it even to the Skin, and then exposed it naked to the Rage of all Sects and Heresies: that he fought against the King under a Commission for him, and then took him forcibly out of the Hands of those for whom he had conquered him, and butchered him in the open Face of all the whole World, with as little Shame as Conscience or Humanity.
+
+ Thus he is made a Monster of Baseness, Ingratitude, Hypocrisy, Rebellion and Usurpation.
+
+ [ 55 ]
+
+ Howbeit there are others who defend him; saying, He was an illustrious Warriour, a great Politician, a Man of the most consummate Prudence, and who had the Art of making himself both feared and respected: that if his Government be compared with those of the two last Kings, there will appear a very great Disparity with regard to the Glory and Reputation of the English Nation: that he made himself equally dreaded by France and Spain, and the United Provinces, who all courted his Friendship with such Ardour, that they may be said to have cringed to him beyond what was becoming: that if his Ambition led him to aggrandize himself, it also led him to advance the Glory of the English Name, and the Terror of their Arms even to the Pitch of Roman Greatness: that as to his Morals, he was guilty of a few of the Vices to which Men are commonly addicted; Gluttony, Drunkenness, Gaming, Luxury and Avarice, were Crimes with which he was never reproached: and as to his Religion, his Principle was, to leave every Man at liberty, and to persecute no one on that Account: In fine, that by his great Capacity and uncommon Abilities he raised himself to the supreme Dignity, supported himself in it with great Glory, and, dying in Peace, bequeathed it to his Posterity.
+
+ And now behold, he that was a Monster is become an Hero! Wherefore, gentle Reader, out of the two Characters here given, thou mayest form such a one as seemeth best in thine Eyes, and call him Oliver Cromwell.
+
+ Now the rest of the Acts of this Ruler, and the suprising Things that he did, behold they are written in the Books of the Chronicles of the Kings of England.
+
+ [ 56 ]
+
+ And Cromwell slept with his Fathers, and was buried in the Chapel of Henry the Seventh, and Richard his Son was Protector in his stead.
+
+ RICHARD CROMWELL Protector.
+
  
 
