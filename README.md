@@ -1,8 +1,27 @@
-"By imposing the Bible and its intellectual and cultural landscapes on America, those texts placed the United States in a biblical timeframe, describing the new nation and its history as occurring in a distant, revered, and mythic dimension." -- Eran Shalev
+Pseudo-Biblical Books
+====
+
+This repository is a collection of books that are part of what historian Eran Shalev has dubbed the "pseudo-biblical genre"--books written in America between 1740 and about 1830 that borrow the authority of biblical language to express historical, political, or religious perspectives.
+
+Why was the Pseudo-Biblical genre popular?
+----
 
 "Americans ... intensified the discourse of America as a chosen nation; unsurprisingly, many of the texts written in biblical language referred explicitly to America as "Israel" (and hence of their rivals as helplessly degenerate gentiles). By alluding to the past of God's chosen people through the use of the distinctive language in which that history was originally articulated, Americans attempted not to alter the received facts of that revered history but rather to invoke the authority and meaning that Old Testament history exerted and apply it to their present. The use of biblical language was thus not (only) a way to make the Bible relevant to America; it was an effective way to make America relevant to the Bible, to biblicize America." -- Eran Shalev
 
+"By imposing the Bible and its intellectual and cultural landscapes on America, those texts placed the United States in a biblical timeframe, describing the new nation and its history as occurring in a distant, revered, and mythic dimension." -- Eran Shalev
+
 "the Old Testament is truly so omnipresent in the American culture of 1800 or 1820 that historians have as much difficulty taking cognizance of it as of the air the people breathed." -- Perry Miller
+
+From ["Written in the Style of Antiquity": Pseudo-Biblicism and the Early American Republic, 1770-1830](http://www.thefreelibrary.com/%22Written+in+the+Style+of+Antiquity%22%3A+Pseudo-Biblicism+and+the+Early...-a0244888045).
+
+What does it have to do with the Book of Mormon?
+----
+
+Eran Shalev has identified the Book of Mormon as belonging to this genre. Our work has independently found connections between some of the books (i.e. The Late War by Gilbert Hunt) and The Book of Mormon. We are continuing to study these books through computer algorithms as well as traditional historical and linguistic methods.
+
+
+Index of Books
+----
 
 - The First Chapter of the Book of Preferment - Horace Walpole - 1742
 - The French Gasconade defeated, and then swept out of Germany - 1742
@@ -20,7 +39,4 @@
 - The First Book of Chronicles, Rhode Island Republican - 1835
 - Chronicles of the Times, New-Bedford Mercury - 1836
 - Chapter from the Whig Chronicles - 1840?
-
-
-["Written in the Style of Antiquity": Pseudo-Biblicism and the Early American Republic, 1770-1830](http://www.thefreelibrary.com/%22Written+in+the+Style+of+Antiquity%22%3A+Pseudo-Biblicism+and+the+Early...-a0244888045)
 
