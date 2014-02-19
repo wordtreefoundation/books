@@ -279,4 +279,40 @@ And they ministered unto the King according to his Wishes: One brought him Eyes 
 
 Now the King was pleased therewith, and he was enamoured of them all; and put forth his Sceptre unto them, and the Land was filled with Royal Bastards.
 
+Moreover the Nation, taking Example from the
+
+[ 59 ]
+
+Court, ran headlong into all manner of Licentiousness and Immorality. And having seen in the former Reign all kinds of Wickedness committed under the Mask of Piety, the least Appearnce thereof was now thought Hypocrisy.
+
+All the Wit of the Nation was turned to the Ridicule of Religion and Morality. The Stage became a School of Debauchery; and even the Pulpit, fearing to be too grave for the Times, abounded with Wit: And whereas before, they used to seek the Lord and implore his Direction even in the most trifling Affairs, it was now deemed almost superstitous to believe in him.
+
+Howbeit the Religion of the King, says a noble* Author, was that which is vulgarity, though unjustly, called none at all, namely Deism.
+
+But the Anger of the Lord was kindled against the King and against the People of England, and he smote the Land with a dreadful Pestilence, insomuch that there died in one Year upwards of Sixty and seven thousand Persons: Moreover, in the following Year, a terrible Fire fell on the City of London, which in four Days consumed the greatest Part thereof.
+
+Nevertheless these Judgments made no Impression on the Spirit of Charles, who abandoned himself to his Pleasures, and was carried away so violently by his Lusts, that his whole Time and his Treasures were spent amongst Harlots; and all Matters relating to the Government of his Kingdoms were left unto the Management of his Brother the Duke of York.
+
+And Charles was guided by his Brother in all things,
+
+* The Duke of Buckingham.
+
+[ 60 ]
+
+insomuch that the People murmured greatly. Wherefore Killigrew the Jester reported unto the Courtiers, saying, The King is very ill, and hath got a sore Nose.
+
+Then went the Courtiers in unto the King, and condoled with him, saying, We are sorry to hear your Majesty hath got a sore Nose. Whereat the King marveled greatly, asking who told them so? And they answered and said, Killigrew told us.
+
+Then the King sent Messengers unto Killigrew, commanding him to come before him: and when he was come, the King said unto him, Why saidest thou, Killigrew, that I had got a sore Nose? And Killigrew answered and said, I concluded it must be sore, because your Majesty hath been led so long by it.
+
+Howbeit the King liked not the Jest; moreover he reproved his Jester very severely. And (whether it was thought that Majesty was too serious a Joke to be laughed at, least peradventure it should be made ridiculous; or that it was of too dangerous Example, as it might sometimes set the whole Nation a laughing at the King's Expence; but) from that Day no Jester hath been kept in the King's Court, only plain and solemn Fools.
+
+Now the rest of the Acts of King Charles the Second, and his Wit, and his Gallantries, and all his Intrigues, behold thou mayest find them in the bawdy Novels unto this Day.
+
+And Charles slept with his Fathers, after he had reigned over England from the Time of his Restoration twenty and four Years, eight Months and nine Days, and James his Brother reigned in his stead.
+
+[ 61 ]
+
+XXVII. JAMES II.
+
 
