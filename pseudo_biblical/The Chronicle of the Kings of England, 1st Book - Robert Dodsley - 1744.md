@@ -82,3 +82,73 @@ Now the rest of the acts of king Henry, the lampreys that he ate, and the childr
 
 And Henry reigned over England thirty and five years, and he died, and Stephen earl of Boloign reigned in his stead.
 
+IV.--STEPHEN.
+
+AND Stephen was a goodly man, and a man of great valour; howbeit, as he was not the rightful heir, he bethought himself how he might best obtain the affections of the people; and he sought by all manner of ways to please them.
+
+To the nobles he gave leave to build them forts and castles on their own lands; he won favour with the priests by exempting them from temporal authority; the gentry he pleased with leave to hunt in his forets; and he pleased the people with freeing them from taxes and impositions.
+
+Nevertheless his reign was full of trouble; the word was not sheathed, neither ceased he from war all the days of his life.
+
+And now the sin of laziness began to prevail in the land, and the great men and the nobles made unto themselves coaches and chariots, and were drawn through the streets of the city with horses; moreover, their pride increased daily, insomuch that in process of time they were carried on the shouldres of men, and blushed not.
+
+And Stephen reigned over England eighteen years and nine months, and he died; and Henry Plantagenet reigned in his stead.
+
+V.--HENRY II.
+
+AND Henry was tenty and two years old when he began to reign, and he reigned over England four and thirty years and eight months, and his mother's name was Maud.
+
+And he chose unto himself wise and discreet counsellors of state, he appointed learned and able men to reform abuses in the laws, he disbanded also the foreign army which his father had kept, and utterly destroyed the castles and forts which the nobles and prelates had built in his reign.
+
+And it came to pass, that grievous complaints were made unto the king of divers cruel offences and enormous crimes committed by the clergy, occasioned by their being exempted in the former reign from the civil power, and encouraged as was said, by the connivance of Becket the high priest.
+
+And the king assembled the priests and the elders together, and he said unto them, Is not it meet that this law should be abolished? and they answered him and said, It is meet.
+
+Then Becket the high priest stood up, and opposed the king with great haughtiness, and refused his assent.
+
+And the wrath of the king was kindled against him, and he caused him to be accused of divers crimes and misdemeanors, and he was condemned by the priests and elders, as a perjured man and a traitor.
+
+Then Becket fled from the presence of the king, and became a fugitive in the land of Gaul.
+
+And it came to pass after some time, that the king was reconciled to Becket, and he sent for him, and took him again into favour, and restored unto him all the honours that he before enjoyed.
+
+Howbeit the pride of his heart was not a jot abated, he burned with choler, and cast about how he might revenge himself on his enemies.
+
+And he suspended some, and some he excommunicated, and became in all respects more insolent than before.
+
+Then certain of the priests and the nobles came unto the king, and complained of Becket, saying, O king! the man whom thou forgavest is now more wicked than he was before, his crimes are increased seven-fold.
+
+Then the king waxed exceeding wrath, and his countenance changed, and he cried out, O wrteched man that I am, who shall deliver me from this turbulent priest?
+
+Now this saying was heard by certain of the king's servants, and they went forth privily, and finding the high priest at the altar, they fell on him and slew him, and dashed out his brains at the foot of the altar, and his blood stained the holy place.
+
+And the priests were inflamed with fury, and they sent unto the pope, accusing the king for murder of Becket.
+
+And when the messengers came unto the presence of the pope, they bowed down with great reverence before him, saying,
+
+O most holy father! to whom all power in heaven and earth is given, who art appointed over empires and nations to bind their kings in chains and their nobles, in fetters of iron; behold and see how the boar of the wood hath rooted up the vineyard of the Lord of sabaoth! If the rage of tyranny shall embrue with blood the Sanctum Sanctorum, what place shall be safe? Wherefore, O most mild keeper of the walls of Jerusalem, arm all the ecclesiastical power you may, unsheat the sword of Peter, and revenge the death of this holy martyr, whose blood crieth out for all the church, and whose divine glory is already revealed by miracles.
+
+And the pope was moved exceedingly, and he sent unto the king, commanding him to purge himself of the crime laid to his charge.
+
+And Henry protested his innocence, but it availed not: the words he had spoken testifed against him, and he was compelled to expiate his fault by penance at the tomb of Becket.
+
+Now the pennance enjoined was this: he clothed himself in woollen, and journeyed till he came within sight of the church wherein Becket was slain.
+
+Then he alighted from his horse; and pulling his shoes from his feet, he walked barefoot till he came to the tomb where the holy man was laid, and he prostrated himself before the shrine, and prayed, and offered rich gifts.
+
+Moreover he unclothed himself and received discipline from the hands of the monks; and they strake him with rods, that the blood ran from his shoulders.
+
+And the fame of Becket waxed great, and he was canonized, and miracles were wrought at his tomb.
+
+And of the miracles that he wrought, is it not recorded, how he rose from the coffin and lighted the candles at his own burial? and when the funeral ceremony was ended, how he lifted up his head and blessed the people?
+
+He that believeth, let him believe still; and he that doubteth, let him doubt and be damned.
+
+And Henry was a great prince, and he conquered the kingdom of Ireland, and added it to his dominions.
+
+Now the rest of the acts of king Henry, the concubine that he kept in the bower of Woodstock, and how she was poisoned by Eleanor the Queen, are they not written in the book of the Chronicles of the kings of England?
+
+And Henry slept with his fathers, and Richard his son reigned in his stead.
+
+VI.--RICHARD I.
+
