@@ -315,4 +315,152 @@ And Charles slept with his Fathers, after he had reigned over England from the T
 
 XXVII. JAMES II.
 
+NOW James was a Worshiper of the Church of Rome; he bowed the Knee unto her Idols, and went a whoring after all her Abominations: her Bowings, her Washings, her Sprinklings, her holy Vestments, her Incense, her Ointments, her Absolutions, her Masses, her Crosses, her Idols, her Miracles, her Lies.
 
+Moreover he was a zealous Bigot to all the absurd and foolish Tenets which the Cunning of her Priests have invented, to delude the Ignorant, and enslave the Mighty.
+
+Nevertheless, when he ascended the Throne of England, he made a Speech to the People, declaring he would support the Constitution both in Church and State, as it was by Law established.
+
+Howbeit he afterwards thought fit to act contrary to this Declaration in every Instance: peradventure he made it with a mental Reservation for that very Purpose.
+
+And it came to pass, that the Lord stirred up the Heart of the Duke of Monmouth, and he rebelled against him, and entered the Land with an Army; but he was defeated and taken Prisoner, and his Head was smitten off on Tower-hill.
+
+Many of his Soldiers also were taken, insomuch that the Prisons of the West were filled therewith. And Jefferies the Judge was appointed to try them: and behold it was Judgment without Mercy; he looked on them, and they were condemned; he opened his Lips, and it was Death unto them.
+
+﻿[ 62 ]
+
+Yea, so great was his Cruelty, that when their Eyes rolled in the Agonies of Death, then he mocked; and when their Legs quivered in the Air, then he sent for Musick, and called it Dancing. Wherefore let his Name perish from the Face of the Earth, and let all his Generation be hanged by the Neck.
+
+But woe unto thee, O Kirk! woe unto thee, thou barbarous Insulter of wronged Innocence! Let thy Sin be detested in all Ages, and let'thy Name be accursed from Generation to Generation! For behold thou hast done Iniquity in the sight of the Lord, the Cry of thine Abomination is gone up into Heaven; and it shall come to pass, that whosoever heareth thy Tale shall curse thee.
+
+Now the Thing which he did was this: It came to pass in the Town of Taunton, that he had condemned an ancient Man unto Death, and he was to be executed on the Sign-post of the House where Kirk was sitting.
+
+Then came the Daughter of the poor old Man, a lovely Maiden, her Cheeks were washed with Tears as a Rose in the Morning-dew, and the Look of her Eye was Innocence distressed.
+
+And she threw herself at his Feet, and embraced his Knees for some Time in silent Grief, and in the utmost Agony of Heart.
+
+At length, when Words could find a Passage, she list up her Eyes, still dropping with Tears, and besought him, saying,
+
+* Major General Kirk was appointed to attend on Jefferies in this bloody Business with a Troop of Soldiers, to keep the People in Awe, who hanged several by his own Authority, without any Trial. It was not possible for the King to find in the whole Kingdom two Men more destitute of Religion, Honour and Humanity. They were two cruel and merciless Tygers, that delighted in Blood. Rapin.
+
+[ 63 ]
+
+﻿O save my Father! Let not his gray Hairs be dishonoured with a violent Death! Alas he is an old Man, and hath not many Days to live; suffer him to go down to the Grave in Peace, that my Soul may bless thee.
+
+Then Kirk commanded the Virgin to arise, and he looked on her, and his Heart was smitten with her Beauties, insomuch that he burned to enjoy her. And he ipake unto the Maiden, saying, Behold now the Life of thy Father is in mine Hand, and I can do unto him whatsoever seemeth good in mine Eyes: howbeit, thy Beauty hath softened mine Heart; if therefore thou wilt hearken unto my Voice that I may enjoy thee, I swear unto thee his Life shall be safe, not a Hair of his Head shall be in Danger.
+
+Then fell the Maiden down at his Feet, and bedewed the Ground with her Tears, and her Anguish was very great; and she said unto him, O take my Life, my Life I will give for my Father’s willingly; but let not my Lord desire this Thing, do not this Evil unto thine Handmaid: Alas! I am a poor Virgin ; mine Innocence is mine only Portion. I am, besides, my Father’s only Child, and his Heart is fond of me; he hath none other: and if I do this Thing, what Benefit shall I have of his Life ? for behold he will die with Sorrow.
+
+And her Tears flowed so fast, that she could speak no more; and she continued with her Face towards the Ground weeping.
+
+But the Heart of Kirk was hardened, and his Seal was set in him to do Evil; and he spake unto the Virgin, saying, If thou do not instantly comply, thy Father dieth, nay I will hang him up before thy Face,
+
+[ 64 ]
+
+﻿and thine Eyes shall behold his Agonies: and he seemed to be going.
+
+Then the Damsel caught hold of the Skirt of his Garment, and she wept bitterly; and so moving was her Grief, that it would have melted any human Heart. And she cried out. Kill not my Father! O let me speak! I cannot see him die, indeed I cannot. Here Grief once more stopt up her Voice, and for some time she could not speak or weep; at length, lifting up her Eyes, Forgive me Heaven, she cried; Father,
+forgive me, I will save thy Life, but I will not survive mine Honour.
+
+So she yielded unto him, and was undone. For no sooner had he satiated himself with her ruined Innocence than he brought her to the Window, and, with an insulting Smile, showed her her Father hanging on the Sign-post.
+
+Transfixed with Grief and Horror, she suddenly cried
+out--My Father! O my Father! What have I done!--Then sunk upon the Ground speechless and without Motion: but Life, unhappily for her, returned ; she awaked from her Trance all wild and distracted, nor did her Senses ever return to her any more.
+
+Many other Cruelties did they commit, and many other Barbarities ; insomuch that the Land stunk of Blood, and the Face of the Earth looked dreadful with the Quarters of Men, which they hanged up in every Place, as a Terror to all that should oppose the Measures of this violent and bigotted Prince.
+
+But it came to pass that James was so eager in his Advances to Popery and arbitrary Power, that the great Men and the Nobles, and all the People, were
+
+[ 65 ]
+
+﻿alarmed at his Proceedings: Wherefore they sent over Messengers privily unto William the Prince of Orange, who had married the King’s Danghter, desiring his Assistance, to preserve the Religion and the Liberties of the People.
+
+Then William raised an Army, and came over to England; and great Fear came upon James because of his Misdoings. Wherefore James fled from the Presence of	and	became a Fugitive all the Days of his Life.
+
+Moreover his Throne was declared vacant, and William his Son-in-law reigned in his stead. This is the grand Revolution, this is the Epocha of English Freedom.
+
+XXVIII. WILLIAM III.
+
+AND William was called the Deliverer, in as much as by him the Land was delivered from Popery and arbitrary Power, and the Liberties of the People both civil and religious were settled and established upon a new Foundation: The Prerogatives of the Crown were limited, and the Rights of the Subject were ascertained.
+
+For the Lords and the Commons of England, on the Day that they offered him the Crown, explained also the Conditions on which he must accept it, saying:
+
+Thou shalt not suspend or dispense with Laws, or the Execution of Laws, by Royal Authority, without Consent of Parliament, it is illegal.
+
+Thou shalt not levy Money for the Use of the Crown, by Pretence of Prerogative, it is illegal.
+
+[ 66 ]
+
+Thou shalt not infringe the Right of the Subjects to petition the King, neither Quit thou prosecute or commit any one tor such petitioning, it is illegal.
+
+Thou shalt not keep a standing Arm; within the Kingdom in time of Peace, unless it be with Consent of Parliament, it is illegal.
+
+The Election of Members of Parliament shall be free, and no Freedom of Speech and Debate in Parliament shall be impeached or questioned in any Place or Court out of Parliament.
+
+Excessive Bail shall not be required, nor excessive Fines imposed, nor cruel and unusual Punishments inflicted:
+
+Jurors shall be duty impannelled and returned:
+
+And finally, for Redress of all Grievances, and for the amending, strengthening and preserving of the Laws, Parliaments shall frequently be held.
+
+And we the People of England do claim, demand, and insist upon all these Things as our undoubted Rights and Liberties.
+
+And William was a wise Prince, and be ruled the Kingdom with Power and great Glory; howbeit he had many Oppositions, and it was with great Trouble that he managed the haughty Spirits of the English.
+
+Moreover be made War upon the French, and he led on his Armies himself; and the Hand of the Lord was with him, and he discomfited them by Land and by Sea in many Battles.
+
+Now the rest of the Acts of King William, his Courage at the Boyne, the grand Alliance that he made, the Projects that he formed, and the Battles
+
+[ 67 ]
+
+﻿that he sought, behold they are written in the Books of the Chronicles of the Kings of England.
+
+And William reigned over England thirteen Years and one Month, and he died: and Anne his Sister-in-law reigned in his stead.
+
+XXIX. ANNE.
+
+NOW Anne was thirty and seven Years old when she began to reign; and she reigned over England twelve Years and five Months.
+
+And she pursued the Measures which William her Predecessor had begun, in order to oblige King Lewis of France to recall his Grandson Philip, whom he had seated on the Throne of Spain, and to place that Crown on the Head of Charles, the Emperor Leopold's second Son.
+
+Wherefore War was declared by the confederate Powers of England, Holland and Germany, against France and against Spain; and Marlborough the General was made Commander of their Armies; and he marched into Flanders and encamped there.
+
+And the Arm of the Lord was with him, and he was mighty in Battle, and he defeated the French wheresoever he came: In all the Battles that he fought, he conquered; and whatsoever Town he besieged, it surrendered unto him.
+
+Let Ramelies confess the Wonders of his Courage, let the Siege of Liste proclaim his Conduct; Blenheim shall speak aloud the Glory of his Arms, and Oudenarde declare his invincible Prowess; Tournay also shall remember him for ever, and bloody Malplaquet shall tremble at his Name.
+
+﻿C 68 ]
+And greit Fear came upon all Frenchmen, and up-
+on Lewis their King; wherefore he sought unto
+Queen Anne sot Peace, and in an evil Hour she heark-
+ncd unto him: A shameful Peace was concluded at
+Utrecht, and the Conquests of Marlborough were made
+in vain.
+Now it came to pass in these Days, that the Land
+was divided between two famous Giants; and the
+Name of the one was IVbigaMx*, and the Name ot
+the other was Toribundos.
+And there was Enmity between the Partizans of
+Whiganza, and the Partizans of Toribundos, insomuch
+that they spake of each other with great Bitterness
+and many Reproaches.
+And the Giant Toribundos sent forth an evil Spirit
+in the Shape of a Priest, arid he called his Name
+Sacbevere!; and when he was strongly possessed, he
+Would rave of False Brethren, of Evil Communica-
+tion, of Pajfive Obedience, of Non Resistance, and many
+other Absurdities.
+Now the Party of Toribundos adored him as a God;
+many Pictures of him were taken, and Prints of his
+Face were dispersed in every Corner: yea so worthi-
+ly was he distinguished, that the very Piss-pots of the
+Land displayed his Countenance at their Bottoms,
+and Showers of Honour were daily poured upon
+him.
+Many hardy Champions also enlisted themselves
+beneath his Banners, and fought his Battles with a
+desperate and zealous Fury.
+Howbeit there arose at length from the Tribe of
+Whiganza, a valiant Hero whose Name WflS Benja-
+min
+UULOd hy Google
