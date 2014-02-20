@@ -20,7 +20,9 @@ But the Spirit of Flattery went forth in the Land, and the great Men and the Bis
 
 O most sacred King! Thou art wiser than the Children of Men! thou speakest by the Spirit of God!
 
-There has been none equal to thee before thee, neither will any arise after thee like unto thee.
+[ 42 ]
+
+there has been none equal to thee before thee, neither will any arise after thee like unto thee.
 
 Thus they abused him daily with lying and fulsome Adulation.
 
@@ -40,6 +42,8 @@ And the Pope said unto the Devil, Wherewith shall we destroy him? And the Devil 
 
 Howbeit the Wisdom of James was greater than the Wisdom of the Pope and the Devil, and he smelled out their Plot, and prevented it.
 
+[ 43 ]
+
 And James was glad that he was alive; therefore he appointed the fifth Day of the Month November as a Day of Thanksgiving for ever. And Bonfires are made, and Squibs and Crackers are let off in the Streets, in Derision of the Devil and his Gunpowder Plot unto this Day.
 
 Now James the King was of a sociable and loving Nature, and he could not be without a Bosom Friend with whom he might communicate his internos sensus, and upon whose Shoulders he might sometimes lay a Burden which he was not willing to bear himself.
@@ -52,6 +56,8 @@ Moreover it came to pass, that on Easter Monday, in the Year One thousand six un
 
 Improbe amor, quod non mortalia pectora cogis?
 
+[ 44 ]
+
 But this Sunshine of Konstone(?) lasted not long; whether the King grew weary of him, as not being so agreeable as when he was first taken into Favour, or whether the Machinations of the jealous Queen wrought his Destruction, we cannot say; but being suspected of contriving the Death of Sir Thomas Overbury by Poison, he was arraigned and condemned for the same; and though, through the Clemency of the King, his Life was spared, he was never after suffered to see the King's Face, nor to come over(?) to his Court.
 
 Howbeit, the King could not be long without an Alter idem; wherefore he took unto himself a beautiful Youth named George Villiers; and he loaded him with Honours, and used him in all Respects like unto the other.
@@ -62,7 +68,11 @@ Moreover, he approved the Book of Doctor Blackwood, which laid it down as a Prin
 
 With these Notions he poisoned himself and his Son, and laid the Foundation of those Troubles which ended in the Ruin of his Family.
 
-And it came to pass in these Days, that a certain Impostor, named Richard Hadock, pretended to preach in his Sleep, in such sort, that though he were called aloud, or stirred and pulled by the Hands or Feet, yet he seemed not to hear or to feel.
+And it came to pass in these Days, that a certain Impostor, named Richard Hadock, pretended to preach in his Sleep, in such sort, that though he were called
+
+[ 45 ]
+
+aloud, or stirred and pulled by the Hands or Feet, yet he seemed not to hear or to feel.
 
 And he continued to do this in the Presence of many Persons who resorted to hear him; insomuch that in a short Time his Fame was spread through the Land by the Name of the sleeping Preacher, and many were brought to believe that these his mighty Preachings were by Inspiration from Heaven.
 
@@ -81,6 +91,8 @@ Howbeit, he was a wife Man, and he said within himself, Why should I be any long
 Sorrow dimmeth the Eyes, and Grief withereth the Countenance, but the Smile of a Friend reviveth the Heart.
 
 So the King arose, and washed himself, and did eat Bread.
+
+[ 46 ]
 
 Now the rest of the Acts of King James, and his Wisdom, and his Learning, and all the Books that he wrote, behold thou mayst find them in the Chandlers Shops unto this Day.
 
@@ -429,38 +441,83 @@ And the Arm of the Lord was with him, and he was mighty in Battle, and he defeat
 
 Let Ramelies confess the Wonders of his Courage, let the Siege of Liste proclaim his Conduct; Blenheim shall speak aloud the Glory of his Arms, and Oudenarde declare his invincible Prowess; Tournay also shall remember him for ever, and bloody Malplaquet shall tremble at his Name.
 
-﻿C 68 ]
-And greit Fear came upon all Frenchmen, and up-
-on Lewis their King; wherefore he sought unto
-Queen Anne sot Peace, and in an evil Hour she heark-
-ncd unto him: A shameful Peace was concluded at
-Utrecht, and the Conquests of Marlborough were made
-in vain.
-Now it came to pass in these Days, that the Land
-was divided between two famous Giants; and the
-Name of the one was IVbigaMx*, and the Name ot
-the other was Toribundos.
-And there was Enmity between the Partizans of
-Whiganza, and the Partizans of Toribundos, insomuch
-that they spake of each other with great Bitterness
-and many Reproaches.
-And the Giant Toribundos sent forth an evil Spirit
-in the Shape of a Priest, arid he called his Name
-Sacbevere!; and when he was strongly possessed, he
-Would rave of False Brethren, of Evil Communica-
-tion, of Pajfive Obedience, of Non Resistance, and many
-other Absurdities.
-Now the Party of Toribundos adored him as a God;
-many Pictures of him were taken, and Prints of his
-Face were dispersed in every Corner: yea so worthi-
-ly was he distinguished, that the very Piss-pots of the
-Land displayed his Countenance at their Bottoms,
-and Showers of Honour were daily poured upon
-him.
-Many hardy Champions also enlisted themselves
-beneath his Banners, and fought his Battles with a
-desperate and zealous Fury.
-Howbeit there arose at length from the Tribe of
-Whiganza, a valiant Hero whose Name WflS Benja-
-min
-UULOd hy Google
+﻿[ 68 ]
+
+And great Fear came upon all Frenchmen, and upon Lewis their King; wherefore he sought unto Queen Anne for Peace, and in an evil Hour she hearkned unto him: A shameful Peace was concluded at Utrecht, and the Conquests of Marlborough were made in vain.
+
+Now it came to pass in these Days, that the Land was divided between two famous Giants; and the Name of the one was Whiganza, and the Name of the other was Toribundos.
+
+And there was Enmity between the Partizans of Whiganza, and the Partizans of Toribundos, insomuch that they spake of each other with great Bitterness and many Reproaches.
+
+And the Giant Toribundos sent forth an evil Spirit in the Shape of a Priest, arid he called his Name Sacbeverel; and when he was strongly possessed, he would rave of False Brethren, of Evil Communication, of Passive Obedience, of Non Resistance, and many other Absurdities.
+
+Now the Party of Toribundos adored him as a God; many Pictures of him were taken, and Prints of his Face were dispersed in every Corner: yea so worthily was he distinguished, that the very Piss-pots of the Land displayed his Countenance at their Bottoms, and Showers of Honour were daily poured upon him.
+
+Many hardy Champions also enlisted themselves beneath his Banners, and fought his Battles with a desperate and zealous Fury. Howbeit there arose at length from the Tribe of Whiganza, a valiant Hero whose Name was Benjamin;
+
+[ 69 ]
+
+and he buckled on him the Shield of Reason, and grasping in his Hand the Sword of Truth, he marched into the Host of Toribundos, and the whole Army fled from before him, or fell by his Hand : Yea so totally were they defeated, that they turned not again unto this Day.
+
+Now the rest of the Acts of Queen Anne, and all her glorious Conquests; her Piety also to the Clergy, and the fifty Churches that she built, behold, if thou livest to see them, thou mayest die an old Man.
+
+And Anne slept with her Fathers in the Chapel of Henry the Seventh, and George of Hanover reigned in her stead.
+
+XXX. GEORGE I.
+
+AND George was fifty and six Years old When he began to reign, and he reigned over England twelve Years and ten Months, and his Mother’s Name was Sophia.
+
+Now it came to pass that the Son of King James the Second, who had been abroad since his Father’s Abdicaton, attempted to set himself on the Throne of Great Britain, And there were great Commotions in the Land, and the Spirits of the People were stirred up to Rebellion in many Places.
+
+And the Friends of James assembled an Army and marched to Preston; and they were encountered there by the King’s Forces under the Command of Wills and Carpenter, and entirely defeated.
+
+﻿[ 70 ]
+
+Foster also their General, with the Lords Dervoentwater, Witherington, Nithisdale, Wintoun, Kenmure, and many others, were taken Captive and committed to the Tower of London; and the Heads of some were smitten off on Tower-hill, but some escaped.
+
+The Earl of Marr also assembled an Army in Scotland, but he was discomfited and put to flight by the Duke of Argyle.
+
+And now the Crown of Great Britain began to fit firm on the Head of King George; his Virtues also began to appear, and those that spake Evil of him were confounded and put to Shame.
+
+And behold it came to pass in these Days, that a strong Delusion was sent amongst them, and all the People of the Land were stricken with Madness.
+
+They looked towards the Southern Sea, and behold a surprising Bubble arose on the Surface of the Water; its Circumference filled the Firmament of Heaven, and its Height reached unto the Clouds.
+
+And in the midst of the Bubble were seen the Appearance of sumptuous Palaces, fine Gardens, gilt Chariots, Gold, Silver, and precious Stones, and whatsoever the Heart of Man could desire.
+
+And the People ran together in Crowds, saying, We will be rich! we will all be Lords and Princes of the Earth.
+
+Many also disposed of their Lands and their Houses, their Goods and their Merchandise, the Plate, their Jewels and their Cloaths, in order to purchase the Shadow in the Bubble.
+
+Howbeit the Delusion began to abate, and whilst they were looking, lo the Bubble brake, and all the gay Appearance vanished into Smoke.
+
+﻿[ 71 ]
+
+Then were heard Weepings and Wailings, and bitter Lamentations : he Whose delusive Dreams had flattered him with delicious Gardens and a sumptuous Palace, awakes and finds himself in a wretched Garret, or sweeping those Walks which he had planted for himself: He whose gilt Liveries had glittered in his Imagination, is compelled, for Want, to wear one himself; and he who fed on Venison at five Guineas a Haunch, now dines in Pudding Lane on a Two-penny Chop.
+
+But woe unto you Managers, woe unto you Jobbers, woe unto you the Directors thereof! for the Miseries of the Land are at your Doors, the Cries of the Poor are against you; the Ruin of Thousands compel them to curse you, and the Vengeance of Heaven
+shall fall heavy on your Heads.
+
+Now the rest of the Acts of King George, and all that he did, are they not written in the Books of the Chronicles of the Kings of England.
+
+And George slept with his Fathers, and was buried in his own Tomb at Hanover, and George his Son reigned in his stead.
+
+[ 72 ]
+
+XXXI. GEORGE II.
+
+AND George was forty and four Years old when he began to reign, and behold the Scepter continueth in his Hand, the Crown also is on his Head; and he sitteth an the Throne of his Majesty unto this Day.
+
+Where, that he may long continue in Power great Glory, let us pray, That his Ministers be just, That his Counsellors he wise, and his Captains couragious; so shall he become the Scourge of Spain, the Terror of France, and the Wonder of Europe.
+
+Then will we come before his Presence with Thanksgiving, and enter into his Court with Praise ; we will be thankful unto him, and speak good of his Name.
+
+And now behold these are the Names of the Kings of England, and these are their Generations.
+
+George the Second, who was the Son of George the First, who was the Cousin of Anne, who was tha Sister-in-law of William the Third, who was the Son-in-law of James the Second, who was the Brother of Charles the Second, who was the Son of Charles the First, who was the Son of James the First, who was the Cousin of Elizabeth, who was the Sister of Mary, who was the Sister of Edward the Sixth, who was the Son of Henry the Eighth, who was the Son of Henry the Seventh, who was the Cousin of Richard the Third, who was the Uncle of Edward the Fifth, who was the Son of Edward the Fourth, who was the Cousin of Henry the Sixth, who was the Son of Henry the Fifth, who was the Son of 
+
+[ 73 ]
+
+Henry the Fourth, who was the Cousin of Richard the Second, who was the Grandson of Edward the Third, who was the Son of Edward the Second, who was the Son of Edward the First, who was the Son of Henry the Third, who was the Son of John, who was the Brother of Richard the First, who was the Son of Henry the Second, who was the Cousin of Stephen, who was the Cousin of Henry the First, who was the Brother of William Rufus, who was the Son of William the Conqueror, who was the Son of a Whore.
+
+Thus endeth the Chronicle of the KINGS of ENGLAND.
