@@ -1,4 +1,6 @@
+Historical Reader Containing The Late War Between the United States and Great Britain - Gilbert Hunt
 
+[is this the 1817 historical reader, or the 1819 historical reader? --Duane]
 
 
 CHAP. I 
