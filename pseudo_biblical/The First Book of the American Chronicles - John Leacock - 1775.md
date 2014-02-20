@@ -1,4 +1,12 @@
-The First Book of the American Chronicles of the Times
+---
+short_title: The First Book of the American Chronicles of the Times
+author: John Leacock
+year: 1775
+place: 
+source: 
+status: CLEAN+1
+note: typed by Duane from Carla Mulford hard copy
+---
 
 CHAP. I.
 

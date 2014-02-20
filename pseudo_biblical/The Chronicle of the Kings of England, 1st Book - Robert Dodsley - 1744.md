@@ -1,5 +1,13 @@
-The Chronicle of the Kings of England, Written in the Manner of the Ancient Jewish Historians
-Nathan Ben Saddi, "a priest of the Jews," (attributed to Robert Dodsley)
+---
+short_title: The First Book of the Chronicle of the Kings of England, Written in the Manner of the Ancient Jewish Historians
+author: Robert Dodsley
+pseudonym: Nathan Ben Saddi, "a priest of the Jews"
+year: 1744
+place: 
+source: 
+status: INCOMPLETE TEXT, CLEAN+1
+note: 
+---
 
 PREFACE
 

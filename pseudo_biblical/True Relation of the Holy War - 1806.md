@@ -1,4 +1,13 @@
-
+---
+short_title: True Relation of the Holy War
+title: A True Relation of the Holy War, Made by King Shaddai Upon Diabolus, For the Regaining of the Metropolis of the World, or, The Losing and Taking Again of the Town of Mansoul
+author: John Bunyan
+year: 1670 or so
+place: 
+source: https://archive.org/details/truerelationofho00buny
+status: OCR ONLY
+note: 
+---
 
 A 
 

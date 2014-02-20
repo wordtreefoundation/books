@@ -1,6 +1,12 @@
-The First Book of the Chronicles of John
-Investigator
-Oct. 30, 1812
+---
+short_title: The First Book of the Chronicles of John
+author: 
+year: 1812
+place: 
+source: 
+status: MISSING TEXT
+note: published in the Investigator, Oct. 30, 1812
+---
 
 1. And it came to pass in those days, that there was no King in all the land, even in all Columbia, but every one walked after the imagination of his own heart. 
 

@@ -1,6 +1,14 @@
-Historical Reader Containing The Late War Between the United States and Great Britain - Gilbert Hunt - 1819
+---
+short_title: The Late War
+title: The Historical Reader Containing The Late War Between the United States and Great Britain, From June 1812 to February 1815, In the Scriptural Style
+author: Gilbert J. Hunt
+year: 1819
+place: New York
+source: https://archive.org/details/historicalreader00huntgil
+status: OCR ONLY
+note: 
+---
 
-https://archive.org/stream/historicalreader00huntgil/historicalreader00huntgil_djvu.txt
 
 HISTORICAL READER; 
 

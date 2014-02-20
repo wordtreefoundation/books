@@ -1,4 +1,15 @@
-The Late War - Gilbert Hunt - 1817 (archive.org)
+---
+short_title: The Late War
+title: The Historical Reader Containing The Late War Between the United States and Great Britain, From June 1812 to February 1815, Written in the Ancient Historical Style
+author: Gilbert J. Hunt
+year: 1817
+place: New York
+source: https://archive.org/details/cihm_48806
+status: OCR ONLY
+note: 
+---
+
+
 
 
 THE 

@@ -1,3 +1,12 @@
+---
+short_title: The Book of Mormon
+author: Joseph Smith
+year: 1830
+place: New York
+source: http://www.2think.org/hundredsheep/bom1830/bom_main.shtml
+status: CLEAN+2
+---
+
 
 THE 
 

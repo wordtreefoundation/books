@@ -1,6 +1,12 @@
-The American Revolution: written in Scriptural, or Ancient Historical Style 
-[First published in part in 1793, serially in 1794-1795]
-by Richard Snowden 
+---
+short_title: The American Revolution: written in Scriptural, or Ancient Historical Style
+author: Richard Snowden
+year: 1766
+place: 
+source: 
+status: CLEAN+1
+note: First published in part in 1793, serially in 1794-1795
+---
 
 C H A P. I 
 

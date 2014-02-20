@@ -1,12 +1,17 @@
-Historical Reader Containing The Late War Between the United States and Great Britain - Gilbert Hunt
-
-[is this the 1817 historical reader, or the 1819 historical reader? --Duane]
-
+---
+short_title: The Late War
+title: The Historical Reader Containing The Late War Between the United States and Great Britain, From June 1812 to February 1815, Written in the Ancient Historical Style
+author: Gilbert J. Hunt
+year: 1817 or 1819
+place: New York
+source: Mary
+status: CLEAN+1
+note: is this the 1817 historical reader, or the 1819 historical reader?
+---
 
 CHAP. I 
 
 President's Message--Causes of the War--Energetic Measures proposed. 
-
 
 NOW it came to pass, in the one thousand eight handled and twelfth year of the Christian era, and in the thirty and sixth year after the people of the provinces of Columbia bad declared themselves a free and independent nation ; 
 2 That in the sixth month of the same year, on the first day of the month, the chief Governor, whom the people had chosen to rule over the land of Columbia; 

@@ -1,5 +1,13 @@
-By NATHAN BEN SADDI,
-A Priest of the JEWS
+---
+short_title: The Second Book of the Chronicle of the Kings of England, Written in the Manner of the Ancient Jewish Historians
+author: Robert Dodsley
+pseudonym: Nathan Ben Saddi, "a priest of the Jews"
+year: 1744
+place: 
+source: 
+status: CLEAN+1
+note: 
+---
 
 LONDON
 Printed for T. Cooper, at the Globe in Pater-noster
