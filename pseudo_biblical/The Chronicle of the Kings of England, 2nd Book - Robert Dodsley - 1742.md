@@ -132,7 +132,7 @@ Nevertheless their Petition was rejected.
 
 Moreover the King was exceeding wroth, and he commanded the Petition to be consumed with Fire, and all the Copies thereof to be destroyed. And he protected his Favourite from the publick Rage.
 
-Howbeit he escaped not the Hand of Justice; for the Anger of the Lord was kindled against him, and he stirred up the Zeal o fFelton the Lieutenant, who smote him to the Heart that he died.
+Howbeit he escaped not the Hand of Justice; for the Anger of the Lord was kindled against him, and he stirred up the Zeal of Felton the Lieutenant, who smote him to the Heart that he died.
 
 And it came to pass in these Days, that great Troubles arose in Egnland on account of Religion: many, being smitten with the Tinsel Beauties of the Church of Rome, went a whoring after her Gods, and gave up their Hearts unto the Lusts thereof.
 
@@ -140,7 +140,7 @@ And, forasmuch as many Tokens of his Love appeared, it was thought that Laud the
 
 Certain it is, he was very punctual in observing all the superstitious Gestures, the Bowings, the Washings, the Vestments, and all the painted Ornaments in which the scarlet Whore delighteth.
 
-And he drew many after him, and occasioned much Trouble in the Land, and much Nonsesnse, and many trifling Disputes.
+And he drew many after him, and occasioned much Trouble in the Land, and much Nonsense, and many trifling Disputes.
 
 Moreover he was suspected of debauching the King into his lewd Amour, and imposing on his Royal
 
