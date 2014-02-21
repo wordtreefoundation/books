@@ -160,3 +160,71 @@ And Henry slept with his fathers, and Richard his son reigned in his stead.
 
 VI.--RICHARD I.
 
+AND it came to pass at the coronation of Richard, that certain of the Jews pressing in to see the ceremony, were set upon by the people with great rage and fury, and many of them were murdered.
+
+And it was rumoured abroad, that the king had commanded that all the Jews should be destroyed; and the tumult increased exceedingly, and the Jews were destroyed in several cities of England with a terrible slaughter.
+
+And Richard the king prepared a great army for the Holy Land; and to support this expedition, he extorted money from his subjects by all manner of ways, and the priests were instructed to preach up the great merit of this pious undertaking, and the duty of supporting it.
+
+And he set sail for the Holy Land, with the richest and most powerful fleet that the English had ever seen; and he came to an anchor at Messina, in Sicily, on the three and twentieth day of the month of September.
+
+And Tancred the bastard, then king of Sicily, had imprisoned Joanna, the sister of Richard, whom he had taken to wife: king Richard therefore assembled his forces together, assaulted the city, and took it.
+
+And in his way to Jerusalem he conquered also the island of Cyprus.
+
+And he overcame Saladin the Turk in many battles, and he took from him three thousand camels, and four thousand horses and mules: he took also the towns of Ascalon, Joppa, and Caesarea, and behaved in all things with exceeding great courage, insomuch that the glory of the king of England eclipsed the glory of all the Christian princes.
+
+And it came to pass after he returned from the Holy Land, as he sat at meat in his palace, word was brought unto him that Philip, king of France, had laid siege to one of his towns.
+
+Then Richard the king was exceedingly enraged, and he sware in his wrath he would not turn his face till he came to the army of Philip.
+
+And he caused the wall of the room where he was sitting to be broken down, and he assembled his army together, and came up with the French; and the Lord fought for him, and he discomfited the army of Philip, and put them to flight, and he overthrew, with his own hand, three of the most hardy knights of France.
+
+Wherefore he took for his motto these words, Dieu et mon droit; and this device is used by the kings of England unto this day.
+
+And a certain outlaw, named Robin Hood, infested the forest of Sherwood in those days, insomuth that none might pass that way without his leave.
+
+Howbeit he was a charitable thief, giving unto the poor what he took from the rich; and the blood of man he did not shed.
+
+And Richard reigned over England nine years and nine months; and he was wounded with an arrow at the siege of the castle of Chalons, and the wound mortified, and he died thereof; and John his brother reigned in his stead.
+
+VII.--JOHN.
+
+AND John came not to the crown by hereditary right, he received it from the hands of Hubert the high priest, who, in his oration before the assembly of the people, declared, that, by all reason, divine and human, none ought to succeed in the kingdom, but who should be, for the worthiness of his virtues, universally chosen by the people, as was this man.
+
+Nevertheless his virtues are not recorded, neither do we read of this his election; peradventure it was a lie.
+
+And it came to pass that Hubert the high priest died, and Grey, bishop of Norwich, was elected by king John to succeed him.
+
+But this election was opposed by the pope in favour of Stephen Langton, a cardinal, whom when John refused to admit, a quarrel ensued betwixt the pope and the king; insomuch that the whole nation was laid under an interdict, the king was excommunicated, his subjects were absolved from their obedience, and all divine ordinances ceased; the burying-places were shut up, the dead were cast out as dogs, and remained unberied upon the face of the earth.
+
+Howbeit this severity brake not the spirit of John, nor humbled him a jot.
+
+And in his wrath he sware, by the teeth of God, he would be revenged on the pope, and on all that took part with him.
+
+Accordingly he banished the bishops from the kingdom, and confiscated the lands and goods of all the priests that obeyed the interdict.
+
+Now when the pope perceived the stubbornness of Joh, and that the roaring of his bulls availed not; he sent messengers unto Philip the king of France, and they came unto the king, and they addressed him, saying:
+
+O Philip, thus saith the pope: As thou regardest the remission of thy sins, assemble now thy army together, and drive out king John from the throne of England, and thou and thy sons after thee shall possess it for ever.
+
+And Philip raised an army, and prepared to invade England.
+
+Then John was sore troubled, and his heart smote him, and he humbled himself before Pandolphus the legate of the pope, and he took the crown from his head, and laid it at the feet of Pandolphus.
+
+He resigned also his kingdom unto the pope, and he took an oath that he and his successors should hold it from the see of Rome, at the annual tribute of a thousand marks of silver.
+
+Thus ended the contest betwixt the temporal and spiritual sword; and John returned to the bosom of the church, and continued a dutiful son all the days of his life.
+
+Wherefore the holy father supported him aginst his subjects in all manner of wickedness and oppression.
+
+And he vexed them daily with new taxes and impositions, insomuch that the barons and great men of the kingdom at length made war against him, in behalf of their rights and liberties.
+
+Now these were called the barons' wars; and the sword of justice prevailed, and they compelled the king to confirm their ancient privileges, and he signed a charter of rights, which is called Magna Charta unto this day.
+
+Thus wicked princes are sometimes the instruments of good to a people whom the Lord loveth.
+
+Now the rest of the acts of king John, the bridge that he built, and his blasphemy on the buck, are they not recorded in the book of Baker the historian?
+
+And John reigned over England eighteen years and five months, and he died; and Henry his son reigned in his stead.
+
