@@ -443,3 +443,91 @@ And Edward reigned twenty and three years, and he died, and was buried in his ow
 
 XVII.--EDWARD V.
 
+AND Edward was eleven years old when he began to reign, and he reigned over England nine weeks and three days, and was murdered in the twoer by his uncle Richard, the crooked duke of Gloucester.
+
+XVIII.--RICHARD III.
+
+AND Richard took on him the government of the kingdom, and set the crown upon his own head.
+
+And in order to clear his way to the throne, and secure to himself the possession thereof, he murder'd all who stood in his way.
+
+Wherefore the anger of the Lord was kindled against him, and he smote him by the hand of Henry earl of Richmond, of the house of York, and he died in the field of battle, even Bosworth field.
+
+Thus ended the war betwixt the two houses of York and Lancaster, after twelve pitched battles had been fought, in which there were slain two kings, one prince, ten dukes, two marquisses, twenty-one esquires, and eighty-four thousand nine hundred ninety and eight private soliders.
+
+And they took the crown from the head of king Richard, and put it on the head of Henry earl of Richmond; and all the army shouted for joy, and they cried out, Long live king Henry the Seventh.
+
+And the body of Richard was found in the field of battle, and they laid it on a horse, and brought it to the city of Leicester, and it was buried there, and Henry of Richmond reigned in his stead.
+
+XIX.--HENRY VII.
+
+Now Henry was a wise and politic prince, and he set himself, by all manner of ways, to secure the throne to himself and his successors for ever.
+
+And he extorted from his subjects great sums of money, and filled his coffers, and the whole study of his life was to heap up riches.
+
+To this end he made use of two men, and the name of the one was Empson, and the name of the other was Dudley.
+
+And he gave them power and authority to plunder and oppress his subjects; and they exercised all manner of injustece upon them, accusing the innocent of crimes, and amercing and fining them in great sums without trial, converting law and jsutice into rapine and cruelty.
+
+Now whether it were out of an affectation of state and grandeur, or peradventure that he feared some sudden attempt upon his person (for he was not beloved of the people) he appointed a band of tall men to attend him, called the yeomen of the guard, which all the kings of England since have kept unto this day.
+
+And in his reign there arose two impostors one after the other, laying claim to the crown of England.
+
+And the name of the one was Simnel, a baker's son; and the name of the other was Perkin Warbeck; each pretending to be Richard duke of York, brother to king Edward the fifth.
+
+Howbeit the first was quickly suppressed, and after having been crowned king in Dublin, had the honour to be made king Henry's turnspit.
+
+As to the other, after many honours done him in the courts of France, Spain, Scotland, as a prince of the royal blood, he was at last advanced to the pinnacle of Tyburn.
+
+And in these days a strange disease arose, and was called teh sweating sickness; and it continued for the space of a month, and sweapt away great numbers.
+
+But woe unto you whoremongers, adulterers, and fornicators, and woe unto you harlets and street-walkers, that lie in wait for prey, and spread your nets in every corner; for a disease hath stricken ye through the reins, and the heat of your lusts shall burn ye up.
+
+Now the rest of the acts of king Henry, and the magnificent chapel that he built, are they not written in the book of Bacon the historian?
+
+And Henry reigned over England twenty and three years, and eight months, and he died, and Henry his son reigned in his stead.
+
+XX.--HENRY VIII.
+
+And Henry was eighteen years old when he began to reign, and he reigned over England thirty and eight years, and his mother's name was Elizabeth.
+
+And he gat the love of his subjects in the beginning of his reign by causing to be exected as traitors and oppressors, those wicked instruments of his father, Empson and Dudley.
+
+Moreover he was favour in their eyes, by spending among them in balls and shows, and sumptuous feasts, those immense treasures which had been drained from them, and hoarded up in the coffers of his father.
+
+And in these days the iniquity of the popedom was arrived at its full height, insomuch that indulgences for all manner of crimes were publicly sold for money; and all kinds of people, how vile and profligate soever, were promised everlasting happiness on purchasing them.
+
+Now the impiety of these things provoked the indignation of Martin Luther, and he exposed the absurdity of them in many books. Moreover, he censured the usurpation of the pope, and made a mock of his authority.
+
+Then Henry the king, in the zeal of his heart, wrote an answer to Martin Luther, defending the pope; and from henceforth he and his successors are honoured with the title of Defender of the Faith.
+
+Howbeit he afterwards threw off the pope's authority, and departed from many of the errors of the church of Rome.
+
+Whereof the thunder of the pope was levelled against him, and he was excommunicated: his subjects were absolved from their obedience, and all the princes of Europe were excited to make war upon him.
+
+But Henry was beloved at home, and feared abroad; wherefore the thunder of the pope was despised, neither was he terrified with all the fiery bolts of his wrath.
+
+And Henry made unto himself a great idol, thelikeness of which was not in heaven above, nor in the earth beneath. And he reared up his head unto the clouds, and extended his arm over all the land.
+
+His legs also were as the posts of a gate, or as an arch stretched forth over the doors of all the public offices in the land; and whosoever went out, or whosoever came in, passed beneath, and with idolatrous reverence lift up their eyes, and kissed the cheeks of the postern.
+
+And all the people, both small and grat, fell down before him, and worshipped; for they feared his power.
+
+Priests also and bishops brought him water to wash, and dukes and nobles held the towel.
+
+Howbeit he fell down from the pinnacle of his greatness, and was dashed in pieces even as a potter's vessel. Wherefore let him that standeth, take heed lest he fall.
+
+And Henry was a gracious king, but a tyrannical husband.
+
+And he took unto himself six wives, but they pleased him not; wherefore he accused them of incontinence and divers crimes, and put them away. Moreover, he beheaded some, and some he put in prison, and he dealt cruelly with them.
+
+And it came to pass, when a certain priest in one of his sermons defended the king in this matter, that all the women in the town rose up against him, and they stoned him with stones, and drove him from amongst them.
+
+Now the rest of the acts of king Henry, and all that he did, are they not written in the books of the chronicles of the kings of England?
+
+And Henry was a man of great parts and much experience, and could penetrate very far into hidden things; yea, so great was the opinion of his capacity, that the measure of his abilities is preserved in the twoer of London unto this day; and it behoveth all men to humble themselves before him, and confess his superior greatness.
+
+And Henry slept with his fathers, and Edward his son reigned in his stead.
+
+XXI.--EDWARD VI.
+
