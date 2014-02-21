@@ -228,3 +228,141 @@ Now the rest of the acts of king John, the bridge that he built, and his blasphe
 
 And John reigned over England eighteen years and five months, and he died; and Henry his son reigned in his stead.
 
+VII.--HENRY III.
+
+AND Henry was nine years old when he began to reign, and he reigned over England fifty and five years, and his mother's name was Isabel.
+
+Now the acts of king Henry, and all the foolish things that he did, behold they are written in the book of Speed the historian.
+
+He that hath patience to read, let him read.
+
+And Henry lived all the days of his life, and he died, and Edward his son reigned in his stead.
+
+IX.--EDWARD I.
+
+AND the Lord pitched his tabernacle in the heart of king Edward, and he became a great prince, and was called Long-shanks.
+
+And he conquered the kingdom of Wales, and overthrew Llewellen the king in battle, and slew him, and cut off his head and crowned it with ivy, and set it upon the tower of London as a terror to Wales.
+
+And great fear came upon all Welchmen, and they submitted themselves unto Edward, and the two nations became as one people unto this day.
+
+And it came to pass that Alexander king of Scotland died, and great contentions arose between the lords Baliol and Bruce who should be king.
+
+And the matter was referred unto Edward, and he gave it favour of Baliol, and Baliol was made king, and did homage to Edward for his whole kingdom.
+
+And Edward the king treated king Baliol with great haughtiness, and summoned him to appear before him on every little complaint.
+
+Wherefore the anger of Baliol was kindled against him, and his heart swelled with indignation, and he sought how he might shake off the yoke which galled his neck.
+
+And he sent messengers unto the pope, and got himself absolved from the oaths he had taken to king Edward, and renounced his sovereignty.
+
+Then Edward the king raised an army, and marched against him, and the Lord gave up Baliol into the hands of his enemies, and he was taken prisoner, and carried to the tower of London.
+
+And Edward conquered the kingdom of Scotland, and subjected it unto him; and he burnt the records of the kingdom, and he seized the crown, and the sceptre, and all the regalia, and brought them away:
+
+And the stone also which was Jacob's pillow, and the chair of wood which enclosed it, and it is the coronation-chair unto this day.
+
+And Edward the king enacted divers good laws and useful ordinances; and he laid great fines on many of his judges and other magistrates for their corruption; and he raised from their crimes two hundred and thirty-six thousand marks.
+
+He banished also the Jews, to the number of fifteen thousand, and confiscated their goods.
+
+And edward reigned over England thirty and four years, seven months, and twnety days; and he died, and Edward his son reigned in his stead.
+
+X.--EDWARD II.
+
+Now Edward was a wicked prince, and did that which was evil in the sight of the Lord.
+
+And he departed from the worship of his fathers, and made unto himself two idols: and the name of the one was Gaveston, and the name of the other was Spencer.
+
+And he set them up in his high places, and commanded them to be worshipped.
+
+Howbeit certain of the nobles and great men of the kingdom refused to bow down before the idols, which Edward the king had set up.
+
+And great tumults ensued, and the nobles rose up against the king, and reproved him, saying, O king, the gods which thou hast set up are idols, which we nor our fathers ever knew, neither will we worship.
+
+Moreover they plucked them down from their high places, and dashed thim in pieces, and utterly destroyed them.
+
+Nevertheless the king repented not, neither turned he from the evil of his ways; wherefore they took from him the crown, and the sceptre, and the royal robes, and they deposed him from the government of the kingdom, after he had reigned over England nineteen years, six months, and fifteen days; and Edward his son reigned in his stead.
+
+XI.--EDWARD III.
+
+AND Edward was fourteen years old when he began to reign, and he reigned over England fifty years, and hismother's name was Isabella.
+
+And she took upon her the government of the kigndom during the infancy of her son: and her heart lusted after idols, and after all the abominations of her husband.
+
+And she made unto herself an idol, and called its name Mortimer; and she fell down before it, and worshipped with great zeal day and night.
+
+Howbeit when Edward the king became of age, he was greatly offended at the abominations of his mother: wherefore he put her in prison, and he plucked down the idol which she had set up, and he hung it on a tree, even the tree of Tyburn.
+
+And Edward became a great and mighty king, and begat a son, and called him after his own name: moreover he was afterwards surnamed the Black Prince, and he waxed strong and valiant, and became a mighty warrior in the land.
+
+And he fought the battles of his father, and the arm of the Lord was with him, and he conquered the kingdom of France, and took prisoner the king thereof, with his son and many of the nobles.
+
+And Edward the king took on him the sovereignty of France, and he quartered the arms of the kingdom; and his successors are called kings of France unto this day.
+
+And the Black Prince restored also to his kingdom Peter king of Castile, and defeated his enemies.
+
+And his name became great over all the earth, and the princes thereof sought his friendship.
+
+Howbeit, as it is written of old, the race is not to the swift, nor the battle to the strong, a distemper took him, and he died in the forty and sixth year of his age; and the glory of Edward his father from that time forth diminished.
+
+In these days lived thilk grete poet, hight Geoffery Chaucere, the fader of Inglish Poesie, whose workis ben ritten in rime, and imprinted in a boke, yelyped the workis of maister Geoffery Chaucere: and he smothed the tonge of his contrie, and his fame is woxen grete in the lond.
+
+Now the rest of the acts of king Edward, and the noble order of the garter that he instituted, behold they are written in the book of Ashmole the herald.
+
+And Edward reigned over England fifty years, and he died, and Richard his grandson reigned in his stead.
+
+XII.--RICHARD II.
+
+AND Richard was a wicked prince, and did that which was evil in the sight of the Lord, oppressing the people, and loading them with greivous impositions.
+
+And he laid a tax on the heads of all his subjects, from fifteen years old and upwards, of what sex or condition soever, which was called the poll-tax, and it was collected with great strictness and severity.
+
+And it came to pass, that one of the tax-gatherers came to the house of a certain tyler at the town of Deptford, in Kent, commonly called Wat the tyler, and demanded the tax for one of his daughters.
+
+And Wat the tyler said unto him, Nay verily, but thou shouldst not demand the tax of my daughter, for the maiden is not yet fifteen years old.
+
+Howbeit the tax-gatherer believed not the words of her father, for the virgin was fair and comely to look on.
+
+Wherefore he stooped down, and put his hand beneath the garments of the maiden, to see if peradventure the signs of her womanhood might not appear; and he discovered her nakedness.
+
+And the virgin was covered with shame, insomuch that she spake not a word.
+
+But the impudence of the thing incensed her father, and his indignation kindled against the officer, and he had a hammer in his hand, with which he strake him on the head that his brains came out.
+
+And immediately a great tumult arose, and all the people defended the action of Wat the tyler, and praised his courage: moreover they chose him for their captain, and determined to abolish the tax.
+
+And they marched in a body and encamped on Black-Heath, and and he was joined there by Jack Straw, and their number increased to an hundred thousand men.
+
+And a certain priest named Ball, was chaplain to the army, and he preached to the multitude from these words:
+
+When Adam delv'd and Eve span,
+Who was then a gentleman?
+
+From hence he taught them that all men were born equal, that it was never the design of heaven that one part of mankind should be the slaves and vassals of the other; and therefore exhorted them to destroy the nobility, the clergy, the magistrates, and all who pretended to lord it over them.
+
+With these pious resolutions they marched to London, and encamped on Tower Hill, plundering and burning the houses of all whom they thought their enemies.
+
+And they set fire to the Temple, and burnt and destroyed the writings of all the lawyers; they burned also the palace and all the rich furniture of the duke of Lancaster in the Savoy.
+
+And they dragged from the churches and from the altars many who had fled for refuge, and slew them in the streets.
+
+And they strake off the head of Simon Sudbury, archbishop of Canterbury, and Hales the high treasurer, and many more, on Tower-Hill.
+
+Then the King sent messengers unto them, desiring to know what they would have: and Wat the tyler demanded to speak with the King in person.
+
+Then Richard the King, attended by many of his nobles, and the mayor and the aldermen of London, went forth to meet him, and they met him in Smithfield.
+
+And he behaved with great arrogance, and his demands were so extravagant that the King knew not what answer to make unto him.
+
+Moreover he commanded the squire who held the sword of teh King to deliver it to him: howbeit the squire took courage and refused to deliver it, saying, The sword of a King would ill become the hand of a knave.
+
+Now Wat the tyler was vexed at this saying, and he advanced with his sword to slay the squire.
+
+Then William Walworth, the mayor of London, was exceedingly enraged at the insolence of the tyler, and he stepped forth, and smote him with a dagger that he died: wherefore the dagger was added to the arms of the city.
+
+Thus ended the insurrection of Wat Tyler and Jack Straw; and all the rabble returned each to his own house.
+
+And Richard the King made unto himself idols, as Edward the second his predecessor had done: and the thing which he did, displeased the people, and they took the crown from off his head, and put it on the head of Henry duke of Lancaster, the son of John the Gaunt.
+
+XIII.--HENRY IV.
