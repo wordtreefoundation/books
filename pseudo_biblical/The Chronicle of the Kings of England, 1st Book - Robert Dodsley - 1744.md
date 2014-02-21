@@ -366,3 +366,80 @@ Thus ended the insurrection of Wat Tyler and Jack Straw; and all the rabble retu
 And Richard the King made unto himself idols, as Edward the second his predecessor had done: and the thing which he did, displeased the people, and they took the crown from off his head, and put it on the head of Henry duke of Lancaster, the son of John the Gaunt.
 
 XIII.--HENRY IV.
+
+AND Henry was thirty and three yeasr old when he began to reign and he reigned over England thirteen years, five months, and one and twenty days.
+
+And he did that which was evil in the sight of the Lord, as most of his fathers had done.
+
+Howbeit he made an act for burning of heretics; and they that could not believe as the church commanded, were tied to a stake till the flames consumed them: and for this he was called by the priests and the monks, the writers of that time, a pious and religious prince.
+
+And he was seized with an apoplexy, and he died, and Henry his son reigned in his stead.
+
+XIV.--HENRY V.
+
+AND Henry was a valiant prince, and a great warrior.
+
+And he laid claim to the crown of France, and marched into the kingdom with an army of thirty thousand men, taking the twon of Harfleur, with many other strong towns.
+
+And he defeated the French army at the battle of agincourt, and slew to the number of sixty thousand men. And the Lord fought for him, and the whole kingdom was given into his hands, and he apopinted John Duke of Bedford the regent thereof.
+
+And it came to pass that the doctrines of Wickliffe the preacher, who had been condemned by the church as an heretic, began now to spread over England, and prevailed much.
+
+And the tenets he taught were these: That the bread and wine, in the sacrament of the alter, still continued to be bread and wine after the consecration of the priest; that the worship of images was idolatry, and a great sin; that pilgrimages, penances, and confessions to the priests were not at all necessary to salvation, but only a good life.
+
+Now these were esteemed detestable doctrines, and damnable heresies.
+
+And great fear came upon all priests, lest the eyes of the people should be opened, and their craft exposed: wherefore they besought the King that he would join with them in extirpating out of the land all who should teach or profess these dangerous truths.
+
+And Sir John Oldcastle, Lord Cobham, a man of virtue and great reputation, with Sir Robert Acton, and many others, were hanged and burnt in Smithfield for professing the same.
+
+Thus truth was defeated, and ignorance again prevailed in the land, the priests and the levites triumphed, and the minds of the people were clothed in darkness, and fed with error.
+
+Now the rest of the acts of King Henry, and all that he did, are they not written in the books of the chronicles of the kings of England?
+
+And Henry reigned over England thirty and four years, and he died, and Henry his son reigned in his stead.
+
+XV.--HENRY VI.
+
+AND Henry was eight months old when he began to reign, and he reigned over England thirty and nine years, and his mother's name was Catharine.
+
+And in him was fulfilled what was written of old, Woe to that nation whose king is a child; for he proved a weak and unfortunate prince, losing, by his misconduct, all that Henry his father had won.
+
+And in these days there appeared a false prophetess, named Joan of Arc; and she called herself the maid of God, and pretended to be sent from heaven to deliver the kingdom of France from the English yoke.
+
+And she wrought miracles, and performed many wondrous things.
+
+She raised also siege of Orleans, and defeated the English wherever she came, insomuch that the French believed her to be conducted by the finger of God; but the English thought her sent from the devil, and the soldiers began to be terrified at her presence.
+
+Howbeit, she was at length taken by the English at the city of Roan, in Normandy; and she was convicted of witchcraft, and they burnt her there, that it might be fulfilled which was spoken by the prophet, Thou shalt not suffer a witch to live.
+
+In this reign began the cruel war betwixt the two houses of York and Lancaster, where brother fought with brother, the father against his son, and the son against his father, till the rivers flowed with the blood thereof, and rage and slaughter made desolate the land.
+
+At length Edward Plantagenet, duke of York, having overthrown the king in many battles, and taken him prisoner, deposed him from the government, and was crowned king of England.
+
+XVI.--EDWARD IV.
+
+AND Edward was nineteen years old when he came to the crown, and he was tall and well favoured, and of an exceeding graceful presence.
+
+Moreover he was a prince of great courage and wisdom, and he set himself to enact good laws, and to reform the abuses in his government.
+
+And he sate in the court of justice three days himself, that he might be a witness how his laws were executed.
+
+And many more good qualities had Edward; howbeit he lusted after women exceedingly, and he was a gallant prince, and young and handsome to look on, wherefore the hearts of the ladies were in his hand.
+
+And it came to pass that Matthew Shore, a goldsmith in London, had taken to wife the most beautiful virgin in all the city.
+
+And the fame of her beauty reached the ears of the king, and he disguised himself as a merchant, and went to the house of Shore pretending to buy jewels.
+
+And when he saw how exceeding fair she was, even beyond what fame had reported unto hi, his heart was smitten with love, and he burned to enjoy her.
+
+Wherefore he discovered himself, and took her home to his bed, and she lived in adultery with him all the days of his life.
+
+In his reign was born Thomas Parr, of the county of Salop, who lived during the reign of ten kings, even to the days of king Charles I, when he died, being an hundred fifty and two years old.
+
+Moreover he did penance for the sin of fornication at the age of an hundred years.
+
+And Edward reigned twenty and three years, and he died, and was buried in his own tomb at Windsor, and Edward his son reigned in his stead.
+
+XVII.--EDWARD V.
+
