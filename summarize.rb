@@ -17,8 +17,7 @@ books = Dir[File.join(File.dirname(__FILE__), 'pseudo_biblical', '*.md')].map do
 end
 
 def web_path(file)
-  # file.sub(/^\./, 'tree/master')
-  file
+  file.sub(/^\.\//, '')
 end
 
 books.group_by do |b|

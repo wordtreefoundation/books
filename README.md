@@ -26,34 +26,34 @@ Status of Books
 MISSING TEXT
 ------------
 
-- [Chapter 37th](./pseudo_biblical/Chapter 37th - 1782.md) (1782)
-- [Chronicles of the Kings of England](./pseudo_biblical/Chronicles of the Kings of England - 1773.md) (1773)
-- [Chronicles](./pseudo_biblical/Chronicles, The Maryland Journal - 1766.md) (1766)
-- [The Conquest of Canaan](./pseudo_biblical/The Conquest of Canaan - Timothy Dwight - 1785.md) (1785)
-- [The Fall of Samuel the Squomicutiti](./pseudo_biblical/The Fall of Samuel the Squomicutiti - 1763.md) (1763)
-- [The First Book of the Chronicles of John](./pseudo_biblical/The First Book of the Chronicles of John - 1812.md) (1812)
-- [The First Chapter of the Book of Preferment](./pseudo_biblical/The First Chapter of the Book of Preferment - Horace Walpole - 1742.md) (1742)
-- [The French Gasconade Defeated](./pseudo_biblical/The French Gasconade Defeated - 1743.md) (1743)
+- [Chapter 37th](pseudo_biblical/Chapter 37th - 1782.md) (1782)
+- [Chronicles of the Kings of England](pseudo_biblical/Chronicles of the Kings of England - 1773.md) (1773)
+- [Chronicles](pseudo_biblical/Chronicles, The Maryland Journal - 1766.md) (1766)
+- [The Conquest of Canaan](pseudo_biblical/The Conquest of Canaan - Timothy Dwight - 1785.md) (1785)
+- [The Fall of Samuel the Squomicutiti](pseudo_biblical/The Fall of Samuel the Squomicutiti - 1763.md) (1763)
+- [The First Book of the Chronicles of John](pseudo_biblical/The First Book of the Chronicles of John - 1812.md) (1812)
+- [The First Chapter of the Book of Preferment](pseudo_biblical/The First Chapter of the Book of Preferment - Horace Walpole - 1742.md) (1742)
+- [The French Gasconade Defeated](pseudo_biblical/The French Gasconade Defeated - 1743.md) (1743)
 
 OCR ONLY
 --------
 
-- [The Late War](./pseudo_biblical/The Late War - Gilbert Hunt - 1816.md) (1816)
-- [The Late War](./pseudo_biblical/The Late War - Gilbert Hunt - 1817 (archive.org).md) (1817)
-- [The Late War](./pseudo_biblical/The Late War - Gilbert Hunt - 1819 (archive.org).md) (1819)
-- [True Relation of the Holy War](./pseudo_biblical/True Relation of the Holy War - 1806.md) (1670 or so)
+- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1816.md) (1816)
+- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1817 (archive.org).md) (1817)
+- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1819 (archive.org).md) (1819)
+- [True Relation of the Holy War](pseudo_biblical/True Relation of the Holy War - 1806.md) (1670 or so)
 
 CLEAN+1
 -------
 
-- [The American Revolution](./pseudo_biblical/The American Revolution - Richard Snowden - 1802.md) (1766)
-- [The Book of America](./pseudo_biblical/The Book of America - 1766.md) (1766)
-- [1st Book of the Chronicle of the Kings of England](./pseudo_biblical/The Chronicle of the Kings of England, 1st Book - Robert Dodsley - 1744.md) (1744)
-- [2nd Book of the Chronicle of the Kings of England](./pseudo_biblical/The Chronicle of the Kings of England, 2nd Book - Robert Dodsley - 1744.md) (1744)
-- [The First Book of the American Chronicles of the Times](./pseudo_biblical/The First Book of the American Chronicles - John Leacock - 1775.md) (1775)
-- [The Late War](./pseudo_biblical/The Late War - Gilbert Hunt - Mary.md) (1817 or 1819)
+- [The American Revolution](pseudo_biblical/The American Revolution - Richard Snowden - 1802.md) (1766)
+- [The Book of America](pseudo_biblical/The Book of America - 1766.md) (1766)
+- [1st Book of the Chronicle of the Kings of England](pseudo_biblical/The Chronicle of the Kings of England, 1st Book - Robert Dodsley - 1744.md) (1744)
+- [2nd Book of the Chronicle of the Kings of England](pseudo_biblical/The Chronicle of the Kings of England, 2nd Book - Robert Dodsley - 1744.md) (1744)
+- [The First Book of the American Chronicles of the Times](pseudo_biblical/The First Book of the American Chronicles - John Leacock - 1775.md) (1775)
+- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - Mary.md) (1817 or 1819)
 
 CLEAN+2
 -------
 
-- [The Book of Mormon](./pseudo_biblical/Book of Mormon - Joseph Smith - 1830.md) (1830)
+- [The Book of Mormon](pseudo_biblical/Book of Mormon - Joseph Smith - 1830.md) (1830)
