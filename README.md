@@ -1,10 +1,10 @@
 Pseudo-Biblical Books
-====
+=====================
 
 This repository is a collection of books that are part of what historian Eran Shalev has dubbed the "pseudo-biblical genre"--books written in America between 1740 and about 1830 that borrow the authority of biblical language to express historical, political, or religious perspectives.
 
 Why was the Pseudo-Biblical genre popular?
-----
+------------------------------------------
 
 "Americans ... intensified the discourse of America as a chosen nation; unsurprisingly, many of the texts written in biblical language referred explicitly to America as "Israel" (and hence of their rivals as helplessly degenerate gentiles). By alluding to the past of God's chosen people through the use of the distinctive language in which that history was originally articulated, Americans attempted not to alter the received facts of that revered history but rather to invoke the authority and meaning that Old Testament history exerted and apply it to their present. The use of biblical language was thus not (only) a way to make the Bible relevant to America; it was an effective way to make America relevant to the Bible, to biblicize America." -- Eran Shalev
 
@@ -15,28 +15,46 @@ Why was the Pseudo-Biblical genre popular?
 From ["Written in the Style of Antiquity": Pseudo-Biblicism and the Early American Republic, 1770-1830](http://www.thefreelibrary.com/%22Written+in+the+Style+of+Antiquity%22%3A+Pseudo-Biblicism+and+the+Early...-a0244888045).
 
 What does it have to do with the Book of Mormon?
-----
+------------------------------------------------
 
 Eran Shalev has identified the Book of Mormon as belonging to this genre. Our work has independently found connections between some of the books (i.e. The Late War by Gilbert Hunt) and The Book of Mormon. We are continuing to study these books through computer algorithms as well as traditional historical and linguistic methods.
 
 
-Index of Books
-----
+Status of Books
+===============
 
-- The First Chapter of the Book of Preferment - Horace Walpole - 1742
-- The French Gasconade defeated, and then swept out of Germany - 1742
-- The Chronicle of the Kings of England - Nathan Ben Saddi (aka Robert Dodsley) - 1744
-- The Fall of Samuel the Squomicutiti - Samuel Hopkins - 1763
-- Chronicles, The Maryland Journal - 1766
-- The Book of America - 1766
-- Chronicles of the Kings of England - 1773
-- The First Book of the American Chronicles of the Times - 1775
-- Chapter 37th - 1782
-- The Conquest of Canaan - Timothy Dwight - 1785
-- The First Book of the Chronicles of John - - 1812
-- The Late War - Gilbert Hunt - 1816
-- The Book of Mormon - Joseph Smith - 1830
-- The First Book of Chronicles, Rhode Island Republican - 1835
-- Chronicles of the Times, New-Bedford Mercury - 1836
-- Chapter from the Whig Chronicles - 1840?
+OCR ONLY
+--------
+
+- The Late War (1816)
+- The Late War (1817)
+- The Late War (1819)
+- True Relation of the Holy War (1670 or so)
+
+MISSING TEXT
+------------
+
+- Chapter 37th (1782)
+- Chronicles of the Kings of England (1773)
+- Chronicles (1766)
+- The Conquest of Canaan (1785)
+- The Fall of Samuel the Squomicutiti (1763)
+- The First Book of the Chronicles of John (1812)
+- The First Chapter of the Book of Preferment (1742)
+- The French Gasconade Defeated (1743)
+
+CLEAN+1
+-------
+
+- The American Revolution (1766)
+- The Book of America (1766)
+- 1st Book of the Chronicle of the Kings of England (1744)
+- 2nd Book of the Chronicle of the Kings of England (1744)
+- The First Book of the American Chronicles of the Times (1775)
+- The Late War (1817 or 1819)
+
+CLEAN+2
+-------
+
+- The Book of Mormon (1830)
 
