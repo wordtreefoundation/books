@@ -531,3 +531,53 @@ And Henry slept with his fathers, and Edward his son reigned in his stead.
 
 XXI.--EDWARD VI.
 
+Now Edward was nine years old when he began to reign, and he reigned over England six years and five months.
+
+And he was a pious prince, and he loved the truth, and promoted the reformation which Henry his father had begun.
+
+Howbeit he was cut off as a flower in its bud, or as a rose in the morning sun; his days also were as a span, and the years of his reign as a shadow that passeth away; but his memory smelleth sweet for ever.
+
+And he appointed for his successor the lady Jane Grey, and she was proclaimed queen; but the part of Mary prevailing, Jane was beheaded in the Tower of London, and Mary her sister reigned in her stead.
+
+XXII.--MARY.
+
+AND Mary adhered to the church of Rome, and she revived the errors thereof, and restored all the ancient forms and foolish ceremonies.
+
+Moreover she was of a cruel nature, and she persecuted unto death all who opposed her doctrines, and her reign stinketh of blood unto this day.
+
+Old men and children, young men and maidens, they also that gave suck, with the infant at the breast, she burned at the stake; and the fire of persecution was not quenched all the days of herl ife:
+
+But the vengeance of the Lord overtook her, and she was torn from the face of the earth as a bramble that choaketh the field, and her name is an abomination.
+
+And from the time that she was crowned, to the day which the Lord smote her with sickness, was five years and four months, and she died, and Elizabeth her sister reigned in her stead.
+
+XXIII.--ELIZABETH.
+
+Now Elizabeth was twenty and five yeasr old when she began to reign, and she reigned over England forty and four years, four months, and seven days, and her mother's name was Anna Bullen.
+
+And she was endowed with wisdom from above, and the spirit of the Almighty gave her understanding; she chose unto herself wise and able ministers; she hearkened unto their counsels, and she governed her kingdom with power and great glory.
+
+The sea also was subject unto her, and she reigned on the oceans with a mighty hand.
+
+Her admirals compassed the world about, and brought her home treasures from the uttermost parts of the earth.
+
+The glory of England she advanced to its height, and all the princes of the earth sought her love; her love was fixed on the happiness of her people, and would not be divided.
+
+The aera of learning was also in her reign, and the genius of wit shone bright in the land.
+
+Spenser and Shakespeare, Verulam and Signey, Raleigh and Drake adorned her court, and made her reign immortal.
+
+And woe unto you, Spaniards; woe unto you, ye haughty usurpers of the American seas; for at the lightning of her eyes ye were destroyed, and at the breath of her mouth ye were scattered abroad; she came upon your Armada as a whirlwind, and as a tempest of thunder she overwhelmed you in the sea.
+
+Wisdom and strength were in her right hand, and in her left were glory and wealth.
+
+She spake, and it was war; she waved her hand, and the nations dwelt in peace.
+
+Her ministers were just, her counsellors were sage; her captains were bold, and her maids of honour ate beef-steaks for breakfast.
+
+Now the rest of the acts of queen Elizabeth, and all the glorious things that she did, are they not written in the books of the chronicles of the kings of England?
+
+And Elizabeth slept with her fathers, and she was a virgin; she tasted not of man, neither subjected she herself unto him all the days of her life.
+
+And she was buried in the chapel of king Henry the seventh, and James of Scotland reigned in her stead.
+
