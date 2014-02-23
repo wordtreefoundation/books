@@ -26,314 +26,175 @@ WRITTEN IN THE ANCIENT HISTORICAL STYLE,
 
 BY GILBERT J. HUNT, 
 
-Author of a number of anonymous Publications, id prose and verse. , 
+Author of a number of anonymous Publications, in prose and verse.
 
 
 
-n The good of his couttfryxuas the pride of his heart." — Decatur's victory. 
+"The good of his couttfryxuas the pride of his heart."--Decatur's victory. 
+
 CONTAINING, ALSO, A SKETCH OF THE LATE 
 
-ALGERIJNE WAR; 
+ALGERINE WAR ;
 
-And the treaty concluded with the Dexj of Algiers 
+And the treaty concluded with the Dey of Algiers :
 The Commercial Treaty with Great Britain, 
 and the Treaty concluded with the 
-Creek A nation of Indians, 
-
-
+Creek Nation of Indians.
 
 NEW-YORK, 
 PUBLISHED AND SOLD FOR THE AUTHOR, 
-
 BY DAVID LONGWORTH, 
 11 Park. 
 
+J. DESNOUES Printer, no. 7, Murray-st. 
 
+1816.
 
-X. Dessoues Printer, no. 7, Murray-st. 
+[page break]
 
-" 1816."" 
+Southern District of New-York, as.
 
+BE it remembered, that on the twelfth day of July, in the forty first year of the independence of the United States of America, GILBERT J. HUNT, of the said district 
+hath deposited in this office the title of a Book, the right whereof he claims as author and proprietor, in the words and figures following, to wit: -- " The Late War between the United States and Great Britain, from June 1812 to February 1815, written in the ancient historical style, by Gilbert J. Hunt, author of a number of anonymous publications in prose and verse. 
 
+The good of his country was the pride of his heart. -- Decatur's Victory.
 
-^ 
+Containing, also, a sketch of the late Algerine War and the Treaty concluded with the Dey of Algiers ; the Commercial Treaty with Great Britain, and the Treaty concluded with the Creek nation of Indians." 
 
+In conformity to the act of the congress of the United Stales, entitled " An act for the encouragement of learning, by securing the copies of Maps, Charts, and Books to the authors and proprietors of such copies, during the time therein mentioned ;" and also to an act, entitled " an act supplementary to an act, entitled an act for the encouragement of learning, by securing the copies of Maps, Charts, and Books, to the authors and 
+proprietors of such copies, during the times therein mentioned, and extending the benefits thereof to the arts of designing, engraving and etching historical and other prints." 
 
+THERON RUDD. 
+Clerk of the Southern District of New-York.
 
-
-
-
-Southern District of Jf em-Tori, «i. 
-
-BE it remembered, that on the twelfth day of July, in the forty first year of the indepen- 
-dence of the United States of America, 6ILBERT J. HUNT, of the said district 
-hath deposited in this office the title of a Book, the right whereof he claims as author ana 
-proprietor, in the words and figures following, to wit: — u The Late War between the 
-United States and Great Britain, from June 1812 to February 1815, written in the ancient 
-historical style, by Gilbert J. Hunt, author of a number of anonymous publications in prose 
-and verse. 
-
-The good of hit country was the pride of his heart. — Decatur's Victory. 
-Containing, also, a sketch of the late Algerine War and the Treaty concluded with the 
-Bey of Algiers', the Commercial Treaty with Great Britain, and the Treaty concluded 
-with the Creek nation of Indians." 
-
-In conformity to the act of the congress of the United Stales, entitled" An act for the 
-encouragement of learning, by securing the copies of Maps, Charts, and Books to the 
-authors and proprietors of such copies, during the time therein mentioned ;" and also to 
-an act, entitled " an act supplementary to an act, entitled an act for the encouragement 
-of learning, by securing the copies of Maps, Charts, and Books, to the authors and 
-proprietors of such copies, during the times therein mentioned, and extending the bene- 
-fits thereof to the arts of designing, engraving and etching historical and other prints." 
-
-THEKON RUDD. 
-Clerk of the Southern District of New-York, 
-
-
+[page break]
 
 PREFACE. 
 
+THE records of truth have been esteemed by men in all ages ; but when connected with history, especially that of our own country, they become doubly interesting. 
 
+The work here presented to the public, is a faithful statement of the principal facts which took place during the Late War between the United States and Great Britain. It was written not only for the author's amusement, but to condense, in as concise a manner as his talents would allow him, those prominent circumstances which ought to live forever in the American memory. 
 
-THE records of truth have been esteemed By 
-men in all ages ; but when connected with his- 
-tory, especially that of our own country, they 
-J become doubly interesting. 
+He has avoided every expression or sentiment that might wound the most delicate ear, and endeavoured throughout to inculcate the principles of virtue, liberty and patriotism.
 
-The work here presented to the public, 'is a 
+Zealous as the author is to record whatever in his opinion redounds to the honor of his beloved country, he believes he has, in no instance
 
-?s faithful statement of the principal facts which 
+[4]
 
-took place during the Late War between the 
+overstepped the modesty of truth, or suffered his passions to triumph over his prudence. He has had recourse, principally, to official documents ; and, where these failed, to private accounts, well authenticated. He, therefore, commits his work to the public candour, apologising only for any defect in the style, which he hopes nill not he less pleasing for being an humble imitation of the oriental. 
 
-United States and Great Britain. It was writ- 
-
-v ten not only for the author's amusement, but to 
-
-*i condense, in as concise a manner as his talents 
-
-would allow him, those prominent circumstances 
-
-which ought to live forever in the American 
-
-J? memory. 
-
-He has avoided every expression or sentiment 
-r that might wound the most delicate ear, and 
-r endeavoured throughout to inculcate the prin- 
-ciples of virtue, liberty and patriotism.^ 
-
-Zealous as the author is to record whatever 
-jv in his opinion redounds to the honor of his be- 
-I loved country, he believes he has, in no instance 
-I 
-
-
-
-
-overstepped the modesty of truth, or suffered his 
-passions to triumph over his prudence. He has 
-had recourse, principally, to official documents ; 
-and, where these failed, to private accounts, 
-well authenticated. He, therefore, commits his 
-work to the public candour, apologising only 
-for any deject in the style, which lie hopes nill 
-not he less pleasing for being an humble imita- 
-tion of the oriental. 
-
-Should this effort succeed, he intends publish- 
-ing, in the same mode of writing, the History 
-of England, from the time of Julius Cesar to 
-the commencement of the American Revolution, 
-and the History of America, including the 
-Revolutionary war, from that period to the 
+Should this effort succeed, he intends publishing, in the same mode of writing, the History of England, from the time of Julius Cesar to the commencement of the American Revolution, and the History of America, including the Revolutionary war, from that period to the 
 commencement of this work. 
 
 G. J. HUNT, 
 
-
-
-mz 
-
-
+[page break]
 
 TABLE OF CONTENTS. 
 
+PAGE
 
+CHAP. I--President's Message--Causes of the War--Energetic Measures proposed 15
 
+CHAP. II--Report of the Committee--Declaration of War. 20 
 
+CHAP. III--Reception of the Declaration of War in 
+Great Britain--her friends in America--Caleb Strong--Hartford Convention. 28 
 
+CHAP. IV--John Henry--Elijah Parish. 29 
 
+CHAP. V--American Army--Militia--Navy--British Navy--Rogers' first Cruise--capture of the U. S. brig Nautilus--removal of aliens beyond tide-water 32 
 
-PAOS. 
+CHAP VI--Hull's expedition--he enters Canada, and encamps at Sandwich--issues his Proclamation--retreats to Detroit. 36 
 
-CHAP. I — President's Message — Causes of the War 
-
-— Energetic Measures ¦proposed li 
-
-CHAP. II — Report of the Committee — Declaration of 
-
-War. 20 
-
-CHAP. Ill-Reception of the Declaration of War in 
-Great Britain — her friends in America 
-— Caleb Strong — Hartford Convention. 28 
-
-CHAP. IV-John Henry— Elijah Parish. 29 
-
-CHAP. V — American Army — Militia — Navy — Bri- 
-tish Navy — Rogers' first Cruise — capture 
-of the U. S. brig Nautilus— removal of 
-aliens beyond tide-water 32 
-
-CHAP VI — Hull's expedition — he enters Canada, and 
-encamps at Sandwich — issues his Procla- 
-mation — retreats to Detroit. 36 
-
-CHAP. Vll-HulVs expedition — surrender of his army 
-and the whole Michigan Territory his 
-trial and pardon by the President — cap- 
-ture of Mkhilimackinack 4# 
+CHAP. VII--Hull's expedition--surrender of his army and the whole Michigan Territory his trial and pardon by the President--capture of Michilimackinack 48
 
 A2 
 
+[vi]
 
+TABLE OF CONTENTS. 
 
-VI TABLE OF CONTENTS. 
+PAGE.
 
-
-
-Page, 
-
-
-
-GHAP. VIII— Capture of the British frigate Gver- 
-riere, by the United States' frigate Con- 
-stitution, captain Hull — capture of the 
-Alert sloop of roar, by captain Porter, in 
+CHAP. VIII--Capture of the British frigate Guerriere, by the United States' frigate Constitution, captain Hull--capture of the Alert sloop of war, by captain Porter, in 
 the Essex. 48 
 
-CHAP. IX — Attack on SackeWs Harbor — affair of 
-Ogdensburgh — British drove from St. 
-Regh, by the Troy militia under major 
-Young — the brigs Adams and Caledonia 
+CHAP. IX--Attack on Sackett's Harbor--affair of Ogdensburgh--British drove from St. Regis, by the Troy militia under major Young--the brigs Adams and Caledonia 
 re-captured by capt. Elliot, near fort Erie. 52 
 
-CHAP. X — Battle of Queenslown — the British Gen. 
+CHAP. X--Battle of Queenslown--the British Gen. Brock killed. 56 
 
-Brock killed. 56 
+CHAP. XI--Gen. Smythe succeeds Gen. Van Rensselaer--his attempt to cross the Niagara, and failure--causes. 61 
 
-CHAP. XI — Gen. Smythe succeeds Gen. Van Rens- 
-selaer — his attempt to cross the Niagara, 
-and failure — causes. 61 
+CHAP. XII--Capture of the sloop of war, Frolic of 22 guns, by the United Slates' sloop of war Wasp of 18 guns. 64 
 
-CHAP. XII — Capture of the sloop of war, Frolic of 
-22 guns, by the United Slates' sloop of 
-war Wasp of 18 guns. 64 
+CHAP. XIII--Capture of the British frigate Macedonian, by Com. Decatur, in the frigate United States--brig Vixen captured by the British frigate Southampton. 67 
 
-CHAP. XIII— Capture of the British frigate Macedo- 
-nian, by Com. Decatur, in the frigate 
-United States — brig Vixen captured by 
-the British frigate Southampton. 67 
+CHAP. XIV--Affairs in the north--skirmishes--battle of Frenchtown, on the river Raisin--capture of Gen. Winchester's army--massacre of American prisoners. 72 
 
-CHAP. XIV — Affairs in the north— skirmishes— bat- 
-tle of Frenchtorvn, on the river Raisin — 
-capture of Gen. Winchester's army — 
-massacre of American prisoners. 72 
+CHAP. XV--Capture of the British frigate Java, by the United States frigate Constitution. 79 
 
-CHAP. XV— Capture of the British frigate Java, by 
+[vii]
 
-the United State* frigate Constitution, 79 
+TABLE OF CONTENTS
 
+PAGE.
 
+CHAP. XVI--Com. Rogers' return from a second cruise--capture of the United States brig Viper--the General Armstrong and a British frigate--privateering 84
 
-TABLE OF CONTENTS, Tli 
+CHAP. XVII--Capture and burning of Ogdensbugh by the British. 90
 
-Pace. 
-CHAP. XVI — Com. Rogers* return from a second 
-cruise — capture of the United States brig 
-Viper — the General Armstrong and a 
-Britishfrigate — privateering 84 
+CHAP. XVIII--Capture of the Peacock of 18 guns by United States sloop of niar Hornet of 18 guns--return of the Chesapeake from a cruize. 93
 
-CHAP. XVII — Capture and burning of Ogdensbug'i 
+CHAP. XIX--Capture of Little York in upper Canada--the destruction of the American army prevented by the precaution of Gen. Pike--his death. 98
 
-by the British. 90 
+CHAP. XX--Sketches of the History of America. 108
 
-CHAP. XVIII— Capture of the Peacock of IS guns by 
-Ihiited States sloop of niar Hornet of IS 
-gu?is — reluvn of the Chesapeake from a 
-cruize. 93 
+CHAP. XXI--Depredations in the Chesapeake--Havrede-Grace burnt by the British under Admiral Cockburn--attack on Crany Island--Hampton taken by the British--outrages. 114
 
-CHAP. XIX — Capture of Little York in upper Ca. 
-nada — the destruction of the American 
-army prevented by the precaution of Gen. 
-Pike — his death. 98 
+CHAP. XXII--Bayard and Galatin sail for St. Petersburgh--the British compelled to abandon the siege of fort Meigs. 122
 
-CHAP. XX — Sketches of the History of America. 108 
+CHAP. XXIII--Surrender of fort George and fort Erie to the Americans--General Brown drives the British from before Sackett's Harbor, with great loss--Gens. Hinder and Chandler made prisoners at Forty Mile Creek. 125 
 
-CHAP. XXl-Depredations in the Chesapeake — Havre- 
-de-Grace burnt by the British under Ad- 
-miral Cockburn — attack on Crany Island 
-— Hampton taken by the British — out- 
-rages. 114 
+[viii]
 
-CHAP. XXII— Bayard and Galatin sail for St. Pc- 
-tersburgh — the British compelled to aban- 
-don the siege of fort Meigs. \22 
+TABLE OF CONTENTS.
 
-CHAP. XXIII — Surrender of fort George and fort 
-Erie to the Americans — General Brown 
-drives the British from before SackcWs 
-Harbor, 7vith great Inss — Gens. Hinder 
-and Chandler made prisoners at Forty 
-Mile Creek. 12$ 
+PAGE.
 
+CHAP. XXIV--Capture of the Chesapeake--Com. Decatur blockaded in New-London. 129
 
+CHAP. XXV--Capture nf Col. Boerstler and Major Chapin, with their command--treatment of prisoners--Major Chapin' s escape. 136
 
-Vlil TABLE OF CONTENTS. 
-
-
-
-Passt:. 
-
-
-
-CHAP. XXIV— Capture of the Chesapeake— Com. 
-
-Decatur blockaded in New-London. 129 
-
-CHAP. XXV— Capture nf Col. Boerstler and Major 
-Chapm, with their command — treatment 
-of prisoners — Major Chapm' s escape. 136 
-
-CHAP. XXVI — Capture of Fort Schlosser and Black 
-Rock — Gen. Dearborn resigns his com- 
+CHAP. XXVI--Capture of Fort Schlosser and Black 
+Rock--Gen. Dearborn resigns his com- 
 mand to Gen. Boyd, on account nf sick- 
-ness — the Six Nations declare war against 
+ness--the Six Nations declare war against 
 Canada. 139 
 
-CHAP. XXVII — Affairs on Lake Ontario, between 
+CHAP. XXVII--Affairs on Lake Ontario, between 
 the fleets of Com. Chauncey and Sir 
 James Yeo. 144 
 
-CHAP. XXVIII — Affairs on Lake Champlain — pil- 
-lage of Pittsburgh by the British — bom- 
-bardment of Burlington — depredations 
+CHAP. XXVIII--Affairs on Lake Champlain--pil- 
+lage of Pittsburgh by the British--bom- 
+bardment of Burlington--depredations 
 committed in the Chesapeake, andalmg 
 the coast. 147 
 
-CHAP. XXIX— Major Croghan defeats the British 
+CHAP. XXIX--Major Croghan defeats the British 
 and Indians, under Gen. Proctor, in their 
 attack on Fort Stephenson, Lower San- 
 dusky. 151 
 
-CHAP. XXX — British schooner Dominica, of 14 
+CHAP. XXX--British schooner Dominica, of 14 
 guns, captured by the privateer Decatur, 
-of 7 guns — U. S. brig Argus captured 
-by the Pelican — capture of the Boxer by 
+of 7 guns--U. S. brig Argus captured 
+by the Pelican--capture of the Boxer by 
 the U. S. brig Enterprise. I5f 
 
-CHAP. XXXI— Ca; Jure of the British fleet on Lake 
+CHAP. XXXI--Ca; Jure of the British fleet on Lake 
 Erie, by the American fleet under Com. 
 Perry. 161 
 
@@ -343,42 +204,39 @@ TABLE OP CONTENTS. ix
 
 Page, 
 
-CHAP. XXXII — Capture of Maiden and Detroit — the 
+CHAP. XXXII--Capture of Maiden and Detroit--the 
 army of Gen. Proctor retreat towards 
-the Moravian towns — Gen. Harrison pur- 
+the Moravian towns--Gen. Harrison pur- 
 sues them. 167 
 
-CHAP. XXXIII— Battle of the Thames— Gen. Har- 
+CHAP. XXXIII--Battle of the Thames--Gen. Har- 
 rison captures the British army under 
-Gen. Proctor — illumination on account 
-of it — news of it received in England. 1 72 
+Gen. Proctor--illumination on account 
+of it--news of it received in England. 1 72 
 
-CHAP. XXXIV— War with the Creek Nation of In- 
-dians — massacre at Fort Mimms 
+CHAP. XXXIV--War with the Creek Nation of In- 
+dians--massacre at Fort Mimms 
 
 Georgia and Tennessee militia, under 
 Gen. Jackson, retaliate. 179 
 
-CHAP. XXXV— Continuation of the Creek War- 
-Gen Jackson's grand victory over them — 
-they sue for peace — a treaty is Concluded 
+CHAP. XXXV--Continuation of the Creek War- 
+Gen Jackson's grand victory over them--they sue for peace--a treaty is Concluded 
 with them. 183 
 
-CHAP. XXX VI— Plan of attack on Montreal defeated. 1 9@ 
+CHAP. XXX VI--Plan of attack on Montreal defeated. 1 9@ 
 
-CHAP. XXXVII— Newark burnt— Fort George eva- 
-cuated — JSiagara frontier laid waste — 
-Buffalo burnt. 195 
+CHAP. XXXVII--Newark burnt--Fort George eva- 
+cuated--JSiagara frontier laid waste--Buffalo burnt. 195 
 
-CHAP. XXXVIII— Cruise of the U.S. frigate Essex, 
-D. Porter commander — her defence and 
+CHAP. XXXVIII--Cruise of the U.S. frigate Essex, 
+D. Porter commander--her defence and 
 capture, at Valparaiso. W3 
 
-CHAP. XXXIX— Capture of the U. S.- sloop of war 
-Frolic, by the British frigate Orpheus — 
-capture of the British sl>op of war L'E- 
+CHAP. XXXIX--Capture of the U. S.- sloop of war 
+Frolic, by the British frigate Orpheus--capture of the British sl>op of war L'E- 
 pervier, by the Peacock, Cap. Warring- 
-ton — capture of the Reindeer, by the 
+ton--capture of the Reindeer, by the 
 
 
 
@@ -394,44 +252,42 @@ Page*
 
 
 
-Wasp, Capt. Blakely — the Avon captured 
-and sunk — U. S. vessels Syren and Rat- 
-tlesnake captured — Admiral Cochrane de- 
+Wasp, Capt. Blakely--the Avon captured 
+and sunk--U. S. vessels Syren and Rat- 
+tlesnake captured--Admiral Cochrane de- 
 clares the whole American coast in a state 
 of blockade. 20* 
 
-CHAP. XL— Breaking vp of the cantonment at French 
-Mills— affair at La Cole Mill— Major 
+CHAP. XL--Breaking vp of the cantonment at French 
+Mills--affair at La Cole Mill--Major 
 Appling captures two hundred British sea- 
-men — Gen. Brown captures Fort Erie — 
-battle of Chippana plains. 209 
+men--Gen. Brown captures Fort Erie--battle of Chippana plains. 209 
 
-CH AP. XLI— Battle of Bridgewaier. 21 4 
+CH AP. XLI--Battle of Bridgewaier. 21 4 
 
-CHAP. XLII — Assault on Fort Erie, by the British, 
-under Gen. Drummond — Cen. Brown re- 
-sumes his command — sallies out of Fort 
-Erie against the British camp — M' Ar- 
+CHAP. XLII--Assault on Fort Erie, by the British, 
+under Gen. Drummond--Cen. Brown re- 
+sumes his command--sallies out of Fort 
+Erie against the British camp--M' Ar- 
 thur's expedition into Canada. 217 
 
-CHAP. XLHI— Attack on Slonington, by the British 
+CHAP. XLHI--Attack on Slonington, by the British 
 ships of mar, which are defeated and 
 driven off. 222 
 
-CHAP. XLIV — Affairs in the Chesapeake — British 
-army move up the Patuxent — land and 
-maixh towards the city of Washington — 
-prepare themselves for battle at Bladens- 
+CHAP. XLIV--Affairs in the Chesapeake--British 
+army move up the Patuxent--land and 
+maixh towards the city of Washington--prepare themselves for battle at Bladens- 
 burgh. 225 
 
-CHAP. XLV — Capture of Washington— sacking of 
+CHAP. XLV--Capture of Washington--sacking of 
 
-Alexandria — death of Sir Peter Parker. 229 
+Alexandria--death of Sir Peter Parker. 229 
 
-CHAP. XLVI — British, under Gov. Prevost, go a- 
-gainst Plaltsburgh — Com. M' Donough 
+CHAP. XLVI--British, under Gov. Prevost, go a- 
+gainst Plaltsburgh--Com. M' Donough 
 captures the British squadron on Lake 
-Champlaih — 240 
+Champlaih--240 
 
 
 
@@ -443,27 +299,25 @@ XI
 
 
 
-CHAP. XLVH— Battle of Pittsburgh— defeat of Sir 
+CHAP. XLVH--Battle of Pittsburgh--defeat of Sir 
 
 George Ptevost. 246 
 
-CHAP. XLVIII— ^Macfc on Baltimore, by the British 
+CHAP. XLVIII--^Macfc on Baltimore, by the British 
 army, under Gen. Ross, and the fleet un- 
 der Admirals Cochrane and Cockburn. 250 
 
-CHAP. XLIX — Destruction of the privateer Gen. 
-Armstrong, Samuel C. Rcid, captain — 
-Scorpion and Tigress captured— U. S. 
-frigate Adams burnt — Castine — Fort 
-Boyer attacked — destruction of the pi* 
-rates at Barrataria, t.y Com. Patterson 
-— Gen. Jackson captures Pensacola, and 
+CHAP. XLIX--Destruction of the privateer Gen. 
+Armstrong, Samuel C. Rcid, captain--Scorpion and Tigress captured--U. S. 
+frigate Adams burnt--Castine--Fort 
+Boyer attacked--destruction of the pi* 
+rates at Barrataria, t.y Com. Patterson--Gen. Jackson captures Pensacola, and 
 returns to New-Orleans. 25* 
 
 
 
-CHAP. L — Steam boats — Fulton — torpedoes — attempt 
-to blow up the Plantagemt — kidnapping 
+CHAP. L--Steam boats--Fulton--torpedoes--attempt 
+to blow up the Plantagemt--kidnapping 
 Joshua Penny. 
 
 
@@ -472,19 +326,18 @@ Joshua Penny.
 
 
 
-CHAP. LI — Affairs in and about Kern-York, the first 
-commercial ci!y !n America— working on 
+CHAP. LI--Affairs in and about Kern-York, the first 
+commercial ci!y !n America--working on 
 the fortifications of Brooklyn and Hacr- 
-lem — capture of the British lender Eagle, 
+lem--capture of the British lender Eagle, 
 by the Yankee smack. 274 
 
-CHAP. LII — Affairs on the cc*an—priva!eer Prince 
-of Neufchatel — Marquis of Tweedale de- 
-feated in Upper Canada — capture of the 
-President — loss of the Sylph — cnplvre of 
+CHAP. LII--Affairs on the cc*an--priva!eer Prince 
+of Neufchatel--Marquis of Tweedale de- 
+feated in Upper Canada--capture of the 
+President--loss of the Sylph--cnplvre of 
 e tyane and the Jjevant by the Consti- 
-tution — capture of the St. Lawrence — 
-capture of the Penguin by ihe Hornet, 
+tution--capture of the St. Lawrence--capture of the Penguin by ihe Hornet, 
 eoptain Biddle. 282 
 
 
@@ -500,15 +353,14 @@ pag eg.
 
 
 
-CHAP. LIII — British fleet arrives near New-Orleans 
-— the Am rican flotilla captured—attacks 
+CHAP. LIII--British fleet arrives near New-Orleans--the Am rican flotilla captured--attacks 
 by the British upon the army of Gen. 
 
 Jackson. 289 
 
-CHAP. LI V— Grand Battle ofNtw-OrUans. 294 
+CHAP. LI V--Grand Battle ofNtw-OrUans. 294 
 
-CHAP. LV— Peace. 301 
+CHAP. LV--Peace. 301 
 
 Algerine War 307 
 
@@ -542,7 +394,7 @@ Between the U. States and G. Britain.
 
 CHAP. I. 
 
-Presidents Message — Causes of the War — - 
+Presidents Message--Causes of the War--- 
 Energetic Measures proposed. 
 
 1 NOW it came to pass, in the one thousand 
@@ -685,7 +537,7 @@ and Independence ?
 
 CHAP. II. 
 
-Report of the Committee — Declaration of 
+Report of the Committee--Declaration of 
 War. 
 
 1 NOW, when there was an end made of 
@@ -774,8 +626,8 @@ CHAP. III.
 
 
 Reception of the Declaration of War in Great 
-Britain — her friends in America — Caleb 
-Strong — Hartford Convention. 
+Britain--her friends in America--Caleb 
+Strong--Hartford Convention. 
 
 
 AND it came to pass, that when the princes 
@@ -894,7 +746,7 @@ doubts : but the reader is referred to the relation of P. N. Fo-
 ersch, who has given a satisfactory account oi it, froru his o^a 
 travels in its neighborhood. 
 
-f Shittamite, in the hebrew, is applied to a dissenter :— f»et- 
+f Shittamite, in the hebrew, is applied to a dissenter :--f»et- 
 baps it may be equally applicable here, 
 
 
@@ -974,7 +826,7 @@ casteth a stone therein.
 
 CHAP. IV. 
 
-John Henry — Elijah Parish. 
+John Henry--Elijah Parish. 
 
 .LET the children of Columbia beware of 
 false prophets, which come in sheep's clo- 
@@ -1088,9 +940,9 @@ CHAP. V.
 
 
 
-American A rmy — Militia — Navy — British 
-Navy~~ Rogers' first Cruise — capture of the 
-U. S. brig Nautilus — removal of aliens be- 
+American A rmy--Militia--Navy--British 
+Navy~~ Rogers' first Cruise--capture of the 
+U. S. brig Nautilus--removal of aliens be- 
 yond tide-water. 
 
 
@@ -1232,9 +1084,9 @@ CHAP. VI.
 
 
 
-HulVs expedition — Tie enters Canada, and en- 
-camps at Sandwich — issues his Proclama- 
-tion — retreats to Detroit. 
+HulVs expedition--Tie enters Canada, and en- 
+camps at Sandwich--issues his Proclama- 
+tion--retreats to Detroit. 
 
 
 
@@ -1379,9 +1231,9 @@ CHAP. VII.
 
 
 
-Hull's expedition — surrender of his army and 
-the whole Michigan Territory — his trial 
-and pardon by the President — capture of 
+Hull's expedition--surrender of his army and 
+the whole Michigan Territory--his trial 
+and pardon by the President--capture of 
 Michilimackinack. 
 
 
@@ -1615,7 +1467,7 @@ CHAP. VIII.
 
 Capture of the British frigate Guerriere, by 
 the United States' frigate Constitution, cap- 
-tain Hull — capture of the Alert sloop of 
+tain Hull--capture of the Alert sloop of 
 war, by the Essex, captain Porter. 
 
 
@@ -1748,10 +1600,9 @@ CHAP. IX.
 
 
 
-Attack on SackeWs Harbor — affair of Og~. 
-densburgh — British drove from St. Regis, 
-by the Troy militia under major Young — 
-the brigs Adams and Caledonia re-captured 
+Attack on SackeWs Harbor--affair of Og~. 
+densburgh--British drove from St. Regis, 
+by the Troy militia under major Young--the brigs Adams and Caledonia re-captured 
 by capU Elliot, near fort Erie. 
 
 
@@ -1911,7 +1762,7 @@ CHAR X.
 
 
 
-Battle of Queenstown — the British General 
+Battle of Queenstown--the British General 
 Brock killed. 
 
 
@@ -2096,9 +1947,7 @@ CHAP. XL
 
 
 
-Gen. Smyth succeeds Gen. Van Rensselaer — 
-his attempt to cross the Niagara, and failure 
-— causes. 
+Gen. Smyth succeeds Gen. Van Rensselaer--his attempt to cross the Niagara, and failure--causes. 
 
 
 
@@ -2314,8 +2163,7 @@ CHAP. XIII.
 
 
 Capture of the British frigate Macedonian, by 
-Com. Decatur, in the frigate United States 
-— brig Vixen captured by the British fri- 
+Com. Decatur, in the frigate United States--brig Vixen captured by the British fri- 
 gate Southampton. 
 
 
@@ -2510,9 +2358,9 @@ CHAP. XIV.
 
 
 
-Affairs in the north — skirmishes— battle of 
-Jfrenchtown, on the river Raisin — capture 
-of Gen. Winchester's army — massacre of 
+Affairs in the north--skirmishes--battle of 
+Jfrenchtown, on the river Raisin--capture 
+of Gen. Winchester's army--massacre of 
 American prisoners. 
 
 
@@ -2924,10 +2772,8 @@ CHAP. XVI.
 
 
 
-Com. Rogers' return from a second cruise — 
-capture of the United Stales'' brig Viper — 
-the General Armstrong and a British fri- 
-gate — privateering. 
+Com. Rogers' return from a second cruise--capture of the United Stales'' brig Viper--the General Armstrong and a British fri- 
+gate--privateering. 
 
 
 
@@ -3192,7 +3038,7 @@ CHAP. XVIIL
 
 
 Capture of the Peacock, of 1 8 guns, by the U. 
-S. sloop of war Hornet, of 16 guns — return 
+S. sloop of war Hornet, of 16 guns--return 
 of the Chesapeake from a cruise. 
 
 
@@ -3357,10 +3203,8 @@ CHAP. XIX.
 
 
 
-Capture of Little York, in Upper Canada — 
-the destruction of the whole American army 
-prevented by the precaution of Gen. Pike — 
-his death. 
+Capture of Little York, in Upper Canada--the destruction of the whole American army 
+prevented by the precaution of Gen. Pike--his death. 
 
 
 
@@ -3639,7 +3483,7 @@ men that fought that day.
 55 Nevertheless, Sheaffe, the captain of 
 the king, escaped with a handful of men,, 
 and the swift-footed savages : leaving behind 
-him the insignia of British mercy ! — a human 
+him the insignia of British mercy !--a human 
 scalp! 
 
 56 But the rejoicings of the people were 
@@ -3859,10 +3703,10 @@ CHAP. XXI.
 
 
 
-Pepredations in the Chesapeake — Havre-de- 
+Pepredations in the Chesapeake--Havre-de- 
 Grace burnt by the British under Adm* 
-Cockburn — attack on Crany Island — - 
-Hampton taken by the British — outrages. 
+Cockburn--attack on Crany Island--- 
+Hampton taken by the British--outrages. 
 
 
 
@@ -4133,8 +3977,8 @@ CHAP. XXII.
 
 
 
-Mnssian mediation — Bayard and Gallatin sail 
-for St. Petersburgh — the British compelled 
+Mnssian mediation--Bayard and Gallatin sail 
+for St. Petersburgh--the British compelled 
 to abandon the siege of Fort Meigs. 
 
 
@@ -4226,9 +4070,9 @@ acts of their sons that day.
 CHAP XXIII. 
 
 Surrender of Fort George and Fori Erie to 
-the Americans — Gen. Brown drives the Bri- 
+the Americans--Gen. Brown drives the Bri- 
 tish from before Sacketfs Harbor, with 
-great loss — Gens. Winder and Chandler 
+great loss--Gens. Winder and Chandler 
 made prisoners at Forty-mile Creek. 
 
 
@@ -4364,7 +4208,7 @@ CHAP. XXIV.
 
 
 
-Capture of the Chesapeake — Com. Decatur 
+Capture of the Chesapeake--Com. Decatur 
 blockaded in New-London. 
 
 
@@ -4594,8 +4438,7 @@ CHAP. XXV.
 
 
 Capture of Col. Boerstler and Major Chapin, 
-with their command — treatment of prisoners 
-— Major Chopin's escape. 
+with their command--treatment of prisoners--Major Chopin's escape. 
 
 
 
@@ -4685,9 +4528,8 @@ CHAP. XXVI.
 
 
 
-Capture of Fort Schlosser and Black Rock — 
-Gen. Dearborn resigns his command to Gen. 
-Boyd, on account of sickness — star nations 
+Capture of Fort Schlosser and Black Rock--Gen. Dearborn resigns his command to Gen. 
+Boyd, on account of sickness--star nations 
 declare war against Canada. 
 
 
@@ -4917,9 +4759,9 @@ ten in the book of Palmer, the scribe ?*
 
 CHAP. XXVIII. 
 
-Affairs on Lake Champlain — pillage of 
-Platlsburgk by the British — bombardment 
-of Burlington — depredations committed in 
+Affairs on Lake Champlain--pillage of 
+Platlsburgk by the British--bombardment 
+of Burlington--depredations committed in 
 the Chesapeake, and along the coast. 
 
 1 NOW the fighting vessels of Britain began 
@@ -5209,9 +5051,7 @@ CHAP. XXX.
 
 
 British schooner Dominica; of 14 guns, cap' 
-tured by the privateer Decatur, of 7 guns — 
-XJ. 8. brig Argus captured by the Pelican — 
-capture of the Boxer by the U* S. brig En- 
+tured by the privateer Decatur, of 7 guns--XJ. 8. brig Argus captured by the Pelican--capture of the Boxer by the U* S. brig En- 
 terprise, 
 
 
@@ -5561,9 +5401,9 @@ CHAP. XXXII.
 
 
 
-Capture of Maiden and Detroit — the army of 
+Capture of Maiden and Detroit--the army of 
 Gen. Proctor retreat towards the Moravian 
-towns — Gen. Harrison pursues them. 
+towns--Gen. Harrison pursues them. 
 
 
 
@@ -5703,9 +5543,9 @@ CHAR XXXIIL
 
 
 
-Battle of the Thames — Gen. Harrison cap* 
+Battle of the Thames--Gen. Harrison cap* 
 tures the British army under Gen. Proc- 
-tor — illuminations on account of it — news of 
+tor--illuminations on account of it--news of 
 it received in England. 
 
 
@@ -5908,8 +5748,8 @@ CHAP. XXXI V.
 
 
 
-War with the Creek Nation of Indians — mas- 
-sacre of Fort Minims — Georgia and Ten- 
+War with the Creek Nation of Indians--mas- 
+sacre of Fort Minims--Georgia and Ten- 
 nessee militia, under General Jackson, re- 
 taliate* 
 
@@ -6033,9 +5873,9 @@ CHAP. XXXV.
 
 
 
-Continuation of the War with the Creeks — Gen, 
-Jackson's grand victory over them — they sue 
-for peace — a treaty is concluded with them. 
+Continuation of the War with the Creeks--Gen, 
+Jackson's grand victory over them--they sue 
+for peace--a treaty is concluded with them. 
 
 
 
@@ -6436,8 +6276,8 @@ throughout the land.
 
 CHAP. XXXVII. 
 
-Newark burnt — Fort George evacuated — Ni- 
-agara frontier laid waste — Buffalo burnt, 
+Newark burnt--Fort George evacuated--Ni- 
+agara frontier laid waste--Buffalo burnt, 
 
 AN the meantime, however, the strong ves- 
 sels of Chauncey went out and brought Har- 
@@ -6524,7 +6364,7 @@ ruin and a desolation.
 CHAP. XXXVIII. 
 
 Cruise of the V. S. frigate Essex , _D. Porter 
-commander — her defence and capture? at 
+commander--her defence and capture? at 
 Valparaiso. 
 
 1 NOW while the great lakes and rivers were 
@@ -6732,12 +6572,12 @@ spent the day in gladness and mirth.
 CHAP. XXXIX. 
 
 Capture of the U. & sloop of war Frolic, by 
-the British frigate Orpheus — capture of 
+the British frigate Orpheus--capture of 
 the British sloop of war JU Epervier, by the 
-Peacock, Capt. Warrington — capture of the 
-Reindeer, by the Wasp, Capt. Blakely — the 
-Avon captured and sunk — U. S. vessels Sy- 
-ren and Rattlesnake captured — Admiral 
+Peacock, Capt. Warrington--capture of the 
+Reindeer, by the Wasp, Capt. Blakely--the 
+Avon captured and sunk--U. S. vessels Sy- 
+ren and Rattlesnake captured--Admiral 
 Cochrane declares the whole American coast 
 in a state of blockade. 
 
@@ -6852,9 +6692,8 @@ outwitted them.
 CHAP. XL, 
 
 ireaking up of the cantonment at French 
-Mills— affair at La Cole Mill— Major Ap- 
-pling captures two hundred British seamen 
-— Gen. Brown captures Fort Erie — battle 
+Mills--affair at La Cole Mill--Major Ap- 
+pling captures two hundred British seamen--Gen. Brown captures Fort Erie--battle 
 of Chippawa plains. 
 
 
@@ -7088,9 +6927,9 @@ CHAP. XLII.
 
 
 Assault on Fort Erie, by the British, under 
-Gen. Drummond — Gen. Brown resumes his 
-command — sallies out of Fort Erie against 
-the British camp — M l Arthur's expedition 
+Gen. Drummond--Gen. Brown resumes his 
+command--sallies out of Fort Erie against 
+the British camp--M l Arthur's expedition 
 into Canada. 
 
 
@@ -7333,9 +7172,9 @@ CHAP. XLIV\
 
 
 
-Affairs in the Chesapeake — British army 
-move up the Paluxent — land and march to- 
-wards the city of Washington — prepare 
+Affairs in the Chesapeake--British army 
+move up the Paluxent--land and march to- 
+wards the city of Washington--prepare 
 themselves for battle at Bladensburgh. 
 
 
@@ -7464,8 +7303,8 @@ CHAR XLV.
 
 
 
-Capture of Washington — sacking of Alexan- 
-dria — death of Sir Peter Parker. 
+Capture of Washington--sacking of Alexan- 
+dria--death of Sir Peter Parker. 
 
 
 
@@ -7782,7 +7621,7 @@ CHAP. XLVI.
 
 
 British, under Gov. Prevost, go against 
-Plattsburgh — Com. Macdonough captures 
+Plattsburgh--Com. Macdonough captures 
 the British squadron on Lake Champlain. 
 
 
@@ -7956,7 +7795,7 @@ CHAP. XLVir.
 
 
 
-Battle of Plattsburgh— defeat of Sir George 
+Battle of Plattsburgh--defeat of Sir George 
 Prevost. 
 
 1M0W while Macdonough was capturing 
@@ -8302,11 +8141,10 @@ defenders ?
 CHAP. XLIX. 
 
 Destruction of the privateer Gen. Armstrongs 
-Samuel C. Re id, captain — Scorpion and Ti- 
-gress captured — U. S. frigate Adams burnt 
-— Castine — Fort Boyer attacked — destruc- 
+Samuel C. Re id, captain--Scorpion and Ti- 
+gress captured--U. S. frigate Adams burnt--Castine--Fort Boyer attacked--destruc- 
 tion of the pirates at Barrataria, by Com, 
-Patterson — Gen. Jackson captures Pensaco- 
+Patterson--Gen. Jackson captures Pensaco- 
 la, and returns to New-Orleans. 
 
 
@@ -8566,8 +8404,8 @@ the second day of the twelfth month.
 
 CHAP. L. 
 
-Steam-boats — Fulton — torpedoes — attempt to 
-blow up the Plantagenet — kidnapping 
+Steam-boats--Fulton--torpedoes--attempt to 
+blow up the Plantagenet--kidnapping 
 
 Joshua Penny. 
 
@@ -8756,7 +8594,7 @@ thereof was, as it were, the voice of thunder,
 31 And the servants of the king were 
 frightened horribly by the means thereof; 
 after which they trembled at the name of 
-torpedo ! — and were obliged to guard their 
+torpedo !--and were obliged to guard their 
 vessels in the night, and put a double watch 
 upon them ; 
 
@@ -8824,9 +8662,8 @@ CHAP. LI.
 
 
 Affairs in and about New- York, the first com- 
-mercial city in America — working on the 
-fortifications of Brooklyn and Haerlem — 
-capture of the British tender Eagle, by the 
+mercial city in America--working on the 
+fortifications of Brooklyn and Haerlem--capture of the British tender Eagle, by the 
 Yankee smack. 
 
 
@@ -9043,12 +8880,11 @@ with a fatted calf and a Yankee goose.
 
 CHAP. LII. 
 
-Affairs on the ocean — privateer Prince of 
-Neufchatel — Marquis of Tiveedale defeated 
-in Upper Canada — capture of the President 
-— loss of the Sylph — capture of the Cyane 
-and the Levant by the Constitution — capture 
-of the St. Lawrence — capture of the Penguin 
+Affairs on the ocean--privateer Prince of 
+Neufchatel--Marquis of Tiveedale defeated 
+in Upper Canada--capture of the President--loss of the Sylph--capture of the Cyane 
+and the Levant by the Constitution--capture 
+of the St. Lawrence--capture of the Penguin 
 by the Hornet, captain Biddle. 
 
 
@@ -9244,8 +9080,8 @@ and display the vigor of manhood.
 
 CHAP. LIII. 
 
-British fled arrives near New-Orleans — the 
-American flotilla captured — attacks by the 
+British fled arrives near New-Orleans--the 
+American flotilla captured--attacks by the 
 British upon the army of Gen. Jackson. 
 
 
