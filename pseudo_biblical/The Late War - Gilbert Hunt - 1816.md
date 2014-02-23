@@ -167,215 +167,104 @@ CHAP. XXIV--Capture of the Chesapeake--Com. Decatur blockaded in New-London. 129
 
 CHAP. XXV--Capture nf Col. Boerstler and Major Chapin, with their command--treatment of prisoners--Major Chapin' s escape. 136
 
-CHAP. XXVI--Capture of Fort Schlosser and Black 
-Rock--Gen. Dearborn resigns his com- 
-mand to Gen. Boyd, on account nf sick- 
-ness--the Six Nations declare war against 
-Canada. 139 
+CHAP. XXVI--Capture of Fort Schlosser and Black Rock--Gen. Dearborn resigns his command to Gen. Boyd, on account of sickness--the Six Nations declare war against Canada. 139
 
-CHAP. XXVII--Affairs on Lake Ontario, between 
-the fleets of Com. Chauncey and Sir 
-James Yeo. 144 
+CHAP. XXVII--Affairs on Lake Ontario, between the fleets of Com. Chauncey and Sir James Yeo. 144
 
-CHAP. XXVIII--Affairs on Lake Champlain--pil- 
-lage of Pittsburgh by the British--bom- 
-bardment of Burlington--depredations 
-committed in the Chesapeake, andalmg 
-the coast. 147 
+CHAP. XXVIII--Affairs on Lake Champlain--pillage of Pittsburgh by the British--bombardment of Burlington--depredations committed in the Chesapeake, and along the coast. 147
 
-CHAP. XXIX--Major Croghan defeats the British 
-and Indians, under Gen. Proctor, in their 
-attack on Fort Stephenson, Lower San- 
-dusky. 151 
+CHAP. XXIX--Major Croghan defeats the British and Indians, under Gen. Proctor, in their attack on Fort Stephenson, Lower Sandusky. 151
 
-CHAP. XXX--British schooner Dominica, of 14 
-guns, captured by the privateer Decatur, 
-of 7 guns--U. S. brig Argus captured 
-by the Pelican--capture of the Boxer by 
-the U. S. brig Enterprise. I5f 
+CHAP. XXX--British schooner Dominica, of 14 guns, captured by the privateer Decatur, of 7 guns--U. S. brig Argus captured by the Pelican--capture of the Boxer by the U. S. brig Enterprize. 156
 
-CHAP. XXXI--Ca; Jure of the British fleet on Lake 
-Erie, by the American fleet under Com. 
-Perry. 161 
+CHAP. XXXI--Capture of the British fleet on Lake Erie, by the American fleet under Com. Perry. 161
 
+[ix]
 
+TABLE OP CONTENTS.
 
-TABLE OP CONTENTS. ix 
+PAGE.
 
-Page, 
+CHAP. XXXII--Capture of Maiden and Detroit--the army of Gen. Proctor retreat towards the Moravian towns--Gen. Harrison pursues them. 167
 
-CHAP. XXXII--Capture of Maiden and Detroit--the 
-army of Gen. Proctor retreat towards 
-the Moravian towns--Gen. Harrison pur- 
-sues them. 167 
+CHAP. XXXIII--Battle of the Thames--Gen. Harrison captures the British army under Gen. Proctor--illumination on account of it--news of it received in England. 172
 
-CHAP. XXXIII--Battle of the Thames--Gen. Har- 
-rison captures the British army under 
-Gen. Proctor--illumination on account 
-of it--news of it received in England. 1 72 
+CHAP. XXXIV--War with the Creek Nation of Indians--massacre at Fort Mimms Georgia and Tennessee militia, under Gen. Jackson, retaliate. 179 
 
-CHAP. XXXIV--War with the Creek Nation of In- 
-dians--massacre at Fort Mimms 
+CHAP. XXXV--Continuation of the Creek War--Gen Jackson's grand victory over them--they sue for peace--a treaty is Concluded with them. 183 
 
-Georgia and Tennessee militia, under 
-Gen. Jackson, retaliate. 179 
+CHAP. XXXVI--Plan of attack on Montreal defeated. 190
 
-CHAP. XXXV--Continuation of the Creek War- 
-Gen Jackson's grand victory over them--they sue for peace--a treaty is Concluded 
-with them. 183 
+CHAP. XXXVII--Newark burnt--Fort George evacuated--Niagara frontier laid waste--Buffalo burnt. 195
 
-CHAP. XXX VI--Plan of attack on Montreal defeated. 1 9@ 
+CHAP. XXXVIII--Cruise of the U.S. frigate Essex, D. Porter commander--her defence and capture, at Valparaiso. 193
 
-CHAP. XXXVII--Newark burnt--Fort George eva- 
-cuated--JSiagara frontier laid waste--Buffalo burnt. 195 
+CHAP. XXXIX--Capture of the U. S. sloop of war Frolic, by the British frigate Orpheus--capture of the British sloop of war L'Epervier, by the Peacock, Cap. Warrington--capture of the Reindeer, by the
 
-CHAP. XXXVIII--Cruise of the U.S. frigate Essex, 
-D. Porter commander--her defence and 
-capture, at Valparaiso. W3 
-
-CHAP. XXXIX--Capture of the U. S.- sloop of war 
-Frolic, by the British frigate Orpheus--capture of the British sl>op of war L'E- 
-pervier, by the Peacock, Cap. Warring- 
-ton--capture of the Reindeer, by the 
-
-
-
-• 
-
-
+[x]
 
 TABLE OF CONTENTS. 
 
+PAGE.
 
+  Wasp, Capt. Blakely--the Avon captured and sunk--U. S. vessels Syren and Rattlesnake captured--Admiral Cochrane declares the whole American coast in a state of blockade. 205
 
-Page* 
+CHAP. XL--Breaking up of the cantonment at French Mills--affair at La Cole Mill--Major Appling captures two hundred British seamen--Gen. Brown captures Fort Erie--battle of Chippana plains. 209
 
+CHAP. XLI--Battle of Bridgewaier. 214
 
+CHAP. XLII--Assault on Fort Erie, by the British, under Gen. Drummond--Cen. Brown resumes his command--sallies out of Fort Erie against the British camp--M'Arthur's expedition into Canada. 217
 
-Wasp, Capt. Blakely--the Avon captured 
-and sunk--U. S. vessels Syren and Rat- 
-tlesnake captured--Admiral Cochrane de- 
-clares the whole American coast in a state 
-of blockade. 20* 
+CHAP. XLIII--Attack on Slonington, by the British ships of war, which are defeated and driven off. 222
 
-CHAP. XL--Breaking vp of the cantonment at French 
-Mills--affair at La Cole Mill--Major 
-Appling captures two hundred British sea- 
-men--Gen. Brown captures Fort Erie--battle of Chippana plains. 209 
+CHAP. XLIV--Affairs in the Chesapeake--British army move up the Patuxent--land and march towards the city of Washington--prepare themselves for battle at Bladensburgh. 225
 
-CH AP. XLI--Battle of Bridgewaier. 21 4 
+CHAP. XLV--Capture of Washington--sacking of Alexandria--death of Sir Peter Parker. 229
 
-CHAP. XLII--Assault on Fort Erie, by the British, 
-under Gen. Drummond--Cen. Brown re- 
-sumes his command--sallies out of Fort 
-Erie against the British camp--M' Ar- 
-thur's expedition into Canada. 217 
+CHAP. XLVI--British, under Gov. Prevost, go against Plattsburgh--Com. M'Donough captures the British squadron on Lake Champlain-- 240
 
-CHAP. XLHI--Attack on Slonington, by the British 
-ships of mar, which are defeated and 
-driven off. 222 
+[xi] 
 
-CHAP. XLIV--Affairs in the Chesapeake--British 
-army move up the Patuxent--land and 
-maixh towards the city of Washington--prepare themselves for battle at Bladens- 
-burgh. 225 
+TABLE OF CONTENTS. 
 
-CHAP. XLV--Capture of Washington--sacking of 
+PAGE.
 
-Alexandria--death of Sir Peter Parker. 229 
+CHAP. XLVII--Battle of Pittsburgh--defeat of Sir George Prevost. 246
 
-CHAP. XLVI--British, under Gov. Prevost, go a- 
-gainst Plaltsburgh--Com. M' Donough 
-captures the British squadron on Lake 
-Champlaih--240 
+CHAP. XLVIII--Attack on Baltimore, by the British army, under Gen. Ross, and the fleet under Admirals Cochrane and Cockburn. 250 
 
+CHAP. XLIX--Destruction of the privateer Gen. Armstrong, Samuel C. Reid, captain--Scorpion and Tigress captured--U. S. frigate Adams burnt--Castine--Fort Boyer attacked--destruction of the pirates at Barrataria, by Com. Patterson--Gen. Jackson captures Pensacola, and returns to New-Orleans. 257
 
+CHAP. L--Steam boats--Fulton--torpedoes--attempt to blow up the Plantagemt--kidnapping Joshua Penny. 266
 
-TABLE OP CONTENTS. 
+CHAP. LI--Affairs in and about Kern-York, the first commercial city in America--working on the fortifications of Brooklyn and Haerlem--capture of the British lender Eagle, by the Yankee smack. 274
 
+CHAP. LII--Affairs on the ocean--privateer Prince of Neufchatel--Marquis of Tweedale defeated in Upper Canada--capture of the President--loss of the Sylph--capture of the Cyane and the Levant by the Constitution--capture of the St. Lawrence--capture of the Penguin by the Hornet, 
+captain Biddle. 282
 
+[xii]
 
-XI 
+TABLE OF CONTENTS. 
 
+PAGE.
 
+CHAP. LIII--British fleet arrives near New-Orleans--the American flotilla captured--attacks by the British upon the army of Gen. Jackson. 289
 
-CHAP. XLVH--Battle of Pittsburgh--defeat of Sir 
+CHAP. LIV--Grand Battle of New-Orleans. 294
 
-George Ptevost. 246 
+CHAP. LV--Peace. 301
 
-CHAP. XLVIII--^Macfc on Baltimore, by the British 
-army, under Gen. Ross, and the fleet un- 
-der Admirals Cochrane and Cockburn. 250 
+Algerine War 307
 
-CHAP. XLIX--Destruction of the privateer Gen. 
-Armstrong, Samuel C. Rcid, captain--Scorpion and Tigress captured--U. S. 
-frigate Adams burnt--Castine--Fort 
-Boyer attacked--destruction of the pi* 
-rates at Barrataria, t.y Com. Patterson--Gen. Jackson captures Pensacola, and 
-returns to New-Orleans. 25* 
+Conclusion 315
 
+Commercial Treaty. 319
 
+Treaty with Algiers. 323
 
-CHAP. L--Steam boats--Fulton--torpedoes--attempt 
-to blow up the Plantagemt--kidnapping 
-Joshua Penny. 
+Treaty with tke Creeks. 329
 
-
-
-266 
-
-
-
-CHAP. LI--Affairs in and about Kern-York, the first 
-commercial ci!y !n America--working on 
-the fortifications of Brooklyn and Hacr- 
-lem--capture of the British lender Eagle, 
-by the Yankee smack. 274 
-
-CHAP. LII--Affairs on the cc*an--priva!eer Prince 
-of Neufchatel--Marquis of Tweedale de- 
-feated in Upper Canada--capture of the 
-President--loss of the Sylph--cnplvre of 
-e tyane and the Jjevant by the Consti- 
-tution--capture of the St. Lawrence--capture of the Penguin by ihe Hornet, 
-eoptain Biddle. 282 
-
-
-
-£11 TABLE OF CONTENTS. 
-
-
-
-
-
-
-pag eg. 
-
-
-
-CHAP. LIII--British fleet arrives near New-Orleans--the Am rican flotilla captured--attacks 
-by the British upon the army of Gen. 
-
-Jackson. 289 
-
-CHAP. LI V--Grand Battle ofNtw-OrUans. 294 
-
-CHAP. LV--Peace. 301 
-
-Algerine War 307 
-
-Conclusion 315 
-
-Commercial Treaty. 319 
-
-Treaty with Algiers. 323 
-
-Treaty with tke Creeks. 32? 
-
-
-
-•' 
-
+[page break]
 
 
 THE 
@@ -383,8 +272,6 @@ THE
 HISTORY 
 
 OF THE 
-
-
 
 LATE WAR, 
 
@@ -394,591 +281,266 @@ Between the U. States and G. Britain.
 
 CHAP. I. 
 
-Presidents Message--Causes of the War--- 
-Energetic Measures proposed. 
+Presidents Message--Causes of the War--Energetic Measures proposed.
 
-1 NOW it came to pass, in the one thousand 
-eight hundred and twelfth year of the chris- 
-tian era, and in the thirty and sixth year af- 
-ter the people of the provinces of Columbia 
-ha I declared themselves independent of all 
+1 NOW it came to pass, in the one thousand eight hundred and twelfth year of the christian era, and in the thirty and sixth year after the people of the provinces of Columbia had declared themselves independent of all 
 the kingdoms of the earth ; 
 
-2 That in the sixth month of the same 
-year, on the first day of the month, the chief 
-Governor, whom the people had chosen to 
-rule over the land of Columbia ; 
+2 That in the sixth month of the same year, on the first day of the month, the chief Governor, whom the people had chosen to rule over the land of Columbia ; 
 
-B 
+[16]
 
+3 Even James, whose sur-name was Madison, delivered a written paper* to the Great Sanhedrim** of the people, who were assembled together. 
 
+4 And the name of the city where the people were gathered together was called after the name of the chief captain of the land of Columbia, whose fame extendeth to the uttermost parts of the earth : albeit, he had gone to the land of his fathers. 
 
-16 
+5 Nevertheless, the people loved him, inasmuch as he wrought their deliverance from the yoke of tyranny in times past : so they called the city Washington. 
 
-3 Even James, whose sur-name was 
-Madison, delivered a written paper* to the 
-Great Sanhedrim! of the people, who were 
-assembled together. 
+6 Now, when the written paper was received, the doors of the chambers of the Great Sanhedrim were closed, and a seal was put upon every man's mouth. 
 
-4 And the name of the city where the 
-people were gathered together was called 
-after the name of the chief captain of the 
-land of Columbia, whose fame extendeth to 
-the uttermost parts of the earth : albeit, he 
-had gone to the land of his fathers. 
+7 And the counsellors of the nation, and the wise men thereof, ordered the written paper which James had delivered unto them to be read aloud ; and the interpretation thereof was in this wise : 
 
-5 Nevertheless, the people loved him, in- 
-asmuch as he wrought their deliverance 
-from the yoke of tyranny in times past : so 
-they called the city Washington. 
+* President's manifesto.
+** Congress.
 
-6 Now, when the written paper was re- 
-ceived, the doors of the chambers of the 
-Great Sanhedrim were closed, and a seal was 
-put upon every man's mouth. 
+[17]
 
-7 And the counsellors of the nation, and 
-the wise men thereof, ordered the written 
-paper which James had delivered unto them 
-to be read aloud ; and the interpretation 
-thereof was in this wise : 
+8 Lo! the lords and the princes of the Kingdom of Britain, in the fulness of their pride and power, have trampled upon the altar of Liberty, and violated the sanctuary thereof : 
 
-8 Lo! the lords and the princes of the 
-Kingdom of Britain, in the fulness of their pride and power, have trampled upon the 
-altar of Liberty, and violated the sanctuary 
-thereof : 
+9 Inasmuch as they hearkened not unto the voice of moderation, when the voice of the people of Columbia was, Peace ! peace !
 
-9 Inasmuch as they hearkened not unto 
-the voice of moderation, when the voice of 
-the people of Columbia was, Peace ! peace ! 
+10 Inasmuch as they permitted not the tall ships of Columbia to sail in peace on the waters of the mighty deep ; saying in their hearts, These spoils shall be given unto the king. 
 
-10 Inasmuch as they permitted not the tall 
-ships of Columbia to sail in peace on the 
-waters of the mighty deep ; saying in their 
-hearts, These spoils shall be given unto the 
-king. 
+11 Inasmuch as they robbed the ships of Columbia of the strong men that wrought therein, and used them for their own use, even as a man useth his ox or his ass. 
 
-11 Inasmuch as they robbed the ships of 
-Columbia of the strong men that wrought 
-therein, and used them for their own use, 
-even as a man useth his ox or his ass. 
+12 Inasmuch as they kept the men stolen from the ships of Columbia in bondage many years, and caused them to fight the battles of the king, even against their own brethren ! neither gave they unto them silver or gold, but many stripes. 
 
-12 Inasmuch as they kept the men stolen 
-from the ships of Columbia in bondage many 
-years, and caused them to fight the battles of 
-the king, even against their own brethren ! 
-neither gave they unto them silver or gold, 
-but many stripes. 
+13 Now the men of Columbia were not like unto the slaves of Britain ; neither were their backs hardened unto the whip, as were the servants of the king; therefore they murmured, and their murmurings have been heard. 
 
-13 JN'ovv thfr men of Columbia were not 
-like unto the slaves of Britain ; neither 
-were their backs hardened unto the whip, as 
-were the servants of the king; therefore 
-they murmured, and their murmurings have 
-been heard. 
+[18]
 
-1 4 Moreover the Council of Britain sent 
-forth a Decree to all the nations of the earth, 
-sealed with the signet of the Prince Regent, 
-who governed the nation in the name of the 
-King his father ; for, lo ! the King was pos- 
-sessed of an evil spirit, and his son reigned 
-in his stead. 
+14 Moreover the Council of Britain sent forth a Decree to all the nations of the earth, sealed with the signet of the Prince Regent, who governed the nation in the name of the King his father ; for, lo ! the King was possessed of an evil spirit, and his son reigned in his stead. 
 
-1 5 For the lords of the kingdom of Britain 
-loved to dwell under the shadow of George 
-the King, and under the shadow of George 
-his son. ? 
+15 For the lords of the kingdom of Britain loved to dwell under the shadow of George the King, and under the shadow of George his son. 
 
-16 Now this Decree of the Council of 
-Britain was a grievous thing, inasmuch as it 
-permitted not those who dealt in merchan- 
-dize to go whithersoever they chose, and 
-trade freely with all parts of the earth. 
+16 Now this Decree of the Council of Britain was a grievous thing, inasmuch as it permitted not those who dealt in merchandize to go whithersoever they chose, and trade freely with all parts of the earth. 
 
-17 And it fell hard upon the people of 
-Columbia; for the king said unto them, 
-Ye shall come unto me and pay tribute, 
-then may ye depart to another country. 
+17 And it fell hard upon the people of Columbia; for the king said unto them, Ye shall come unto me and pay tribute, then may ye depart to another country. 
 
-18 Now these things pleased the pirates 
-and the cruisers and all the sea-robbers of 
-Britain mishtilv, inasmuch as thev could rob 
-with impunity the commerce of ^Columbia, 
-under the cloak of British honor. 
+18 Now these things pleased the pirates and the cruisers and all the sea-robbers of Britain mightily, inasmuch as they could rob with impunity the commerce of Columbia, under the cloak of British honor. 
 
-19 Furthermore, have not the servants of 
-the king leagued with the savages of the 
-wilderness, and given unto them silver and 
-gold, and placed the destroying engines in 
-their hands ? 
+[19]
 
-20 Thereby stirring up the spirit of Satan 
-within them, that they might spill the blood 
-of the people of Columbia ; even the blood 
-of our old men, our wives,and our little ones ! 
+19 Furthermore, have not the servants of the king leagued with the savages of the wilderness, and given unto them silver and gold, and placed the destroying engines in their hands ?
 
-21 Thus hath Britain in her heart com- 
-menced War against the people of Colum- 
-bia, whilst they have cried aloud for peace : 
-and when she smote them on the one cheek 
-they have turned unto her the other also. 
+20 Thereby stirring up the spirit of Satan within them, that they might spill the blood of the people of Columbia ; even the blood of our old men, our wives, and our little ones ! 
 
-22 Now, therefore, shall we the independ- 
-ent people of Columbia, sit down silently, as 
-slaves, and bow the neck to Britain ? 
+21 Thus hath Britain in her heart commenced War against the people of Columbia, whilst they have cried aloud for peace : and when she smote them on the one cheek they have turned unto her the other also.
 
-23 Or, shall we nobly, and like our fore- 
-fathers, assert our rights, and defend that 
-which the Lord hath given unto us, Liberty 
-and Independence ? 
+22 Now, therefore, shall we the independent people of Columbia, sit down silently, as slaves, and bow the neck to Britain ?
 
+23 Or, shall we nobly, and like our forefathers, assert our rights, and defend that which the Lord hath given unto us, Liberty and Independence ?
 
+[20]
 
 CHAP. II. 
 
-Report of the Committee--Declaration of 
-War. 
+Report of the Committee--Declaration of War. 
 
-1 NOW, when there was an end made of 
-reading the paper which James had written, 
-the Sanhedrim communed one with another 
-touching the matter. 
+1 NOW, when there was an end made of reading the paper which James had written, the Sanhedrim communed one with another touching the matter.
 
-2 And they chose certain wise men from 
-among them to deliberate thereon. 
+2 And they chose certain wise men from among them to deliberate thereon.
 
-3 And they commanded them to go forth 
-from their presence, for that purpose, and 
-return again on the third day of the same 
-month. 
+3 And they commanded them to go forth from their presence, for that purpose, and return again on the third day of the same month.
 
-4 Now, when the third day arrived, at the 
-"eleventh hour of the day, they came forth 
+4 Now, when the third day arrived, at the eleventh hour of the day, they came forth and presented themselves before the Great Sanhedrim of the people. 
 
-and presented themselves before the Great 
-Sanhedrim of the people. 
+5 And the chief of the wise men, whom they had chosen, opened his mouth and spake unto them after this manner : 
 
-5 And the chief of the wise men, whom 
-they had chosen, opened his mouth and 
-spake unto them after this manner : 
+6 Behold! day and night have we meditated upon the words which James hath delivered, and we are weary withal, for our hearts wished peace. 
 
-6 Behold ' day and night have we medi- 
-tated upon the words which James hath delivered, and we are weary withal, for our 
-hearts wished peace. 
+[21]
 
-7 But the wickedness of the kingdom of 
-Great Britain, and the cruelty of the princes 
-thereof, towards the peaceable inhabitants of 
-the land of Columbia, may be likened un- 
-to the fierce lion, when he putteth his paw 
-upon the innocent lamb to devour him. 
+7 But the wickedness of the kingdom of Great Britain, and the cruelty of the princes thereof, towards the peaceable inhabitants of the land of Columbia, may be likened unto the fierce lion, when he putteth his paw upon the innocent lamb to devour him.
 
-8 Nevertheless, the lamb shall not be 
-slain; for the Lord will be his deliverer. 
+8 Nevertheless, the lamb shall not be slain; for the Lord will be his deliverer.
 
-9 And if, peradventure, the people of 
-Columbia go not out to battle against the 
-king, then will the manifold wrongs commit- 
-ted against them be increased ten-fold, and 
-they shall be as a mock and a bye-word 
-among all nations. 
+9 And if, peradventure, the people of Columbia go not out to battle against the king, then will the manifold wrongs committed against them be increased ten-fold, and they shall be as a mock and a bye-word among all nations. 
 
-10 Moreover, the righteousness of your 
-cause shall lead you to glory, and the pillars 
-of your liberty shall not be shaken. 
+10 Moreover, the righteousness of your cause shall lead you to glory, and the pillars of your liberty shall not be shaken.
 
-11 Therefore, say we unto you, Gird on 
-your swords and go forth to battle against 
-the king ; even against the strong powers of 
-Britain ; and the Lord God of Hosts be with 
-you. 
+11 Therefore, say we unto you, Gird on your swords and go forth to battle against the king ; even against the strong powers of Britain ; and the Lord God of Hosts be with you.
 
-12 Now when the great Sanhedrim of the 
-people heard those things which the wise 
+12 Now when the great Sanhedrim of the people heard those things which the wise men had uttered, they pondered them in their minds many days, and weighed them well. 
 
+[22]
 
+13 Even until the seventeenth day of the month pondered they in secret concerning the matter. 
 
-22 
+14 And it was so, that on the next day they sent forth a Decree, making WAR upon the kingdom of Great Britain, and upon the servants and upon the slaves thereof. 
 
-men had uttered, they pondered them in 
-their minds many days, and weighed them 
-well. 
+15 And the Decree was signed with the hand writing of James, the chief Governor of the land of Columbia. 
 
-13 Even until the seventeenth day of the 
-month pondered they in secret concerning 
-the matter. 
+16 After these things, the doors of the chambers of the Sanhedrim were opened.
 
-14 And it was so, that on the next day 
-they sent forth a Decree, making WAR 
-upon the kingdom of Great Britain, and upon the servants and upon the slaves thereof. 
-
-15 And the Decree was signed with the 
-hand writing of James, the chief Governor 
-of the land of Columbia. 
-
-16 After these things, the doors of the 
-chambers of the Sanhedrim were opened.
-
+[23]
 
 CHAP. III. 
 
+Reception of the Declaration of War in Great Britain--her friends in America--Caleb Strong--Hartford Convention. 
 
+AND it came to pass, that when the princes and the lords and the counsellors of Britain saw the Decree, their wrath was kindled, and their hearts were ready to burst with indignation. 
 
-Reception of the Declaration of War in Great 
-Britain--her friends in America--Caleb 
-Strong--Hartford Convention. 
+2 For, verily, said they, this insult hath overflowed the cup of our patience ; and now will we chastise the impudence of these Yankees, and the people of Columbia shall bow before the king. 
 
+3 (Now the word Yankees was used by the people of Britain as a term of reproach.)
 
-AND it came to pass, that when the princes 
-awl the lords and the counsellors of Britain 
-saw the Decree, their wrath was kindled, and 
-their hearts were ready to burst with indigna- 
-tion. 
+4 Then will we rule them with a rod of iron ; and they shall be, unto us, hewers of wood and drawers of water. 
 
-2 For, verily, said they, this insult hath 
-overflowed the cup of our patience ; and now 
-will we chastise the impudence of these 
-Yankees, and the people of Columbia shall 
-bow before the king. 
+[24]
 
-3 (Now the word Yankees was used by 
-the people of Britain as a term of reproach.) 
+5 For, verily, shall we suffer these cunning Yankees to beard the mighty lion, with half a dozen fir-built frigates, the men whereof are but mercenary cowards, bastards and outlaws ? 
 
-4 Then will we ruic them with a rod of 
-iron; and they shall be, unto us, hewers of 
-wood and drawers of water. 
+6 Neither durst they array themselves in battle against the men of Britain; no! we will sweep their stars from the face of the waters, and their name shall be heard no 
+more among nations.
 
-5 For, verily, shall we suffer these cun- 
-ning Yankees to beard the mighty lion, with 
-half a dozen fir-built frigates, the men 
-whereof are but mercenary cowards, bas- 
-tards and outlaws ? 
+7 Shall the proud conquerors of Europe not laugh to scorn the feeble efforts of a few unorganized soldiers, undisciplined, and fresh from the plough, the hoe, and the mattock ? 
 
-6 Neither durst they array themselves in 
-battle against the men of Britain; no! we 
-will sweep their stars from the face of the 
-waters, and their name shall be heard no 
-more among nations. 
+8 Yea, they shall surely fall ; for they were not bred to fighting as were the servants of the king. 
 
-7 Shall the proud conquerors of Europe 
-not laugh to scorn the feeble efforts of a few 
-unorganized soldiers, undisciplined, and fresh 
-from the plough, the hoe, and the mattock ? 
+9 Their large cities, their towns, and their villages will we burn with consuming fire. 
 
-8 Yea, they shall surely fall ; for they 
-were not bred to fighting as were the ser- 
-vants of the king. 
+10 Their oil, and their wheat, and their rye, and their corn, and their barley, and their rice, and their buckwheat, and their oats, and their flax, and all the products of their country will we destroy, and scatter the remnants thereof to the four winds of heaven. 
 
-9 Their large cities, their towns, and their 
-villages will we burn with consuming fire. 
+[25]
 
-10 Their oil, and their wheat, and their 
-rye, and their corn, and their barley, and 
-their rice, and their buckwheat, and their 
-oats, and their flax, and all the products of 
-their country will we destroy, and scatter 
-the remnants thereof to the four winds of 
-heaven. 
+11 All these things, and more, will we do 
+unto this fro ward people.
 
-1 1 All these things, and more, Avill we do 
-unto this fro ward people. 
-? 12 Neither shall there be found safety for 
-age or sex from the destroying swords of the 
-soldiers of the king. 
+12 Neither shall there be found safety for age or sex from the destroying swords of the soldiers of the king.
 
-13 Save in those provinces and towns 
-where dwell the friends of the king ; for lo ! 
-said they, the king's friends are many. 
+13 Save in those provinces and towns where dwell the friends of the king ; for lo ! said they, the king's friends are many.
 
-14 These will we spare ; neither will we 
-hurt a hair of their heads : nor shall the sa- 
-vages of the wilderness stain the scalping 
-knife or the tomahawk with the blood of the 
-king's friends. 
+14 These will we spare ; neither will we hurt a hair of their heads : nor shall the savages of the wilderness stain the scalping knife or the tomahawk with the blood of the king's friends.
 
-15 Now it happened about this time that 
-there were numbers of the inhabitants of the 
-country of Columbia whose hearts yearned 
-after the king of Britain. 
+15 Now it happened about this time that there were numbers of the inhabitants of the country of Columbia whose hearts yearned after the king of Britain.
 
-16 These men were called Tories, which 
-signifieth, in the vernacular tongue, the blind 
-followers of royalty. 
+16 These men were called Tories, which signifieth, in the vernacular tongue, the blind followers of royalty.
 
-17 And with their false flattering words 
-they led astray some of the children of Columbian Liberty ; for their tongues were 
-smoother than oil. 
+17 And with their false flattering words they led astray some of the children of Columbian Liberty ; for their tongues were smoother than oil.
 
-18 Evil machinations entered into their 
-hearts, and the poison of their breath might 
-be likened unto the deadly Bohon Upas, 
-which rears its lofty branches in the barren 
+18 Evil machinations entered into their hearts, and the poison of their breath might be likened unto the deadly Bohon Upas, which rears its lofty branches in the barren 
 valley of Java.* 
 
-19 And they strove to dishearten the true 
-friends of the great Sanhedrim ; but they pre- 
-vailed not. 
+* Of the existence of this wonderful tree there have been joubts : but the reader is referred to the realtion of P. N. Foersch, who has given a satisfacory account of it, from his own travels in its neighborhood.
 
-20 Moreover, Satan entered into the heart 
-of one of the governors of the east, and he 
-was led astray by the wickedness thereof, 
-even Caleb, the shittamite.f 
+[26]
 
-21 Now Caleb, which in the cherokee 
-tongue, signifieth an ass, liked not the decree 
-of the great Sanhedrim, inasmuch as he fa- 
-vored the king of Britain ; and, though willing 
-to become a beast of burden, yet would not 
-move on account of his very great stupidity. 
+19 And they strove to dishearten the true friends of the great Sanhedrim ; but they prevailed not. 
 
-22 And he said unto the captains of the 
-hosts of the state over which he presided, Lo! 
-it seemeth not meet unto me that ye go forth 
-to battle against the king. 
+20 Moreover, Satan entered into the heart of one of the governors of the east, and he was led astray by the wickedness thereof, even Caleb, the shittamite.*
 
-23 For, lo ! are not the fighting men of 
+21 Now Caleb, which in the cherokee tongue, signifieth an ass, liked not the decree of the great Sanhedrim, inasmuch as he favored the king of Britain ; and, though willing to become a beast of burden, yet would not move on account of his very great stupidity. 
 
+22 And he said unto the captains of the hosts of the state over which he presided, Lo! it seemeth not meet unto me that ye go forth to battle against the king. 
 
+* Shittamite, in the hebrew, is applied to a dissenter :--perhaps it may be equally applicable here.
 
-* Of the existence of this wonderful tree there have been, 
-doubts : but the reader is referred to the relation of P. N. Fo- 
-ersch, who has given a satisfactory account oi it, froru his o^a 
-travels in its neighborhood. 
+[27]
 
-f Shittamite, in the hebrew, is applied to a dissenter :--f»et- 
-baps it may be equally applicable here, 
+23 For, lo ! are not the fighting men of Britain in multitude as the sand on the sea shore ? and shall we prevail against them ? 
 
+24 Are not the mighty ships of the king spread over the whole face of the waters? is not Britain the " bulwark of our religion ?" 
 
+25 Therefore, I command that ye go not out to battle, but every man remain in his own house. 
 
-27 
+26 And all the governors of the east listened unto the voice of Caleb, the shittamite.
 
-Britain in multitude as the sand on the sea 
-shore ? and shall we prevail against them ? 
+27 Moreover, the angel of the Lord whispered in the ear of Caleb, and spake unto him, saying,
 
-24 Are not the mighty ships of the king 
-spread over the whole face of the waters? is 
-not Britain the " bulwark of our religion?*' 
+28 If, peradventure, thou dost refuse to obey the laws of the land, the thing will not be pleasant in the sight of the Lord ;
 
-25 Therefore, I command that ye go not 
-out to battle, but every man remain in his 
-own house. 
+29 Inasmuch as it may cause the people to rise up one against another, and spill the blood of their own children.
 
-26 And all the governors of the east lis- 
-tened unto the voice of Caleb, the shittamite. 
+30 And the time of warfare will be lengthened out, and the blood of thousands will be upon thine head.
 
-27 Moreover, the angel of the Lord whis- 
-pered in the ear of Caleb, and spake unto 
-him, saying, 
+31 And Satan spake, and said unto Caleb, Fear not ; for if thou wilt forsake thy country, and throw off the paltry subterfuge of Columbian Liberty, and defy the councils of the great Sanhedrim,
 
-28 If, peradventure, thou dost refuse to 
-obey the laws of the land, the thing will not 
-be pleasant in the sight of the Lord ; 
+[28]
 
-29 Inasmuch as it may cause the people to 
-rise up one against another, and spill the 
-blood of their own children. 
+32 Then shall thy name be proclaimed with the sound of the trumpet throughout all the earth ; and thou shalt be a prince and a ruler over this people.
 
-30 And the time of warfare will be length- 
-ened out, and the blood of thousands will be 
-upon thine head. 
+33 Now the smooth words of Satan tickled Caleb mightily, and he hearkened unto the counsel of the wicked one :
 
-31 And Satan spake, and said unto Caleb, 
-Fear not ; for if thou wilt forsake thy coun- 
-try, and throw off the paltry subterfuge of Columbian Liberty, and defy the councils 
-of the great Sanhedrim, 
+34 For the good counsel given unto him was as water thrown upon a rock.
 
-32 Then shall thy name be proclaimed 
-with the sound of the trumpet throughout all 
-the earth ; and thou shalt be a prince and a 
-ruler over this people. 
+35 But when the chief governor and the great Sanhedrim of the people saw the wickedness of Caleb, their hearts were moved with pity toward him and his followers : yea, even those who had made a convention at the little town of Hartford. 
 
-33 Now the smooth words of Satan tickled 
-Caleb mightily, and he hearkened unto the 
-counsel of the wicked one : 
+36 Neither doth the scribe desire to dwell upon the wickedness which came into the village of Hartford, the signification of the name whereof, in the vernacular tongue, appeareth not. 
 
-34 For the good counsel given unto him 
-was as water thrown upon a rock. 
+37 For the meddling therewith is as the green pool of unclean waters, when a man casteth a stone therein.
 
-3.5 But when the chief governor and the 
-great Sanhedrim of the people saw the wick- 
-edness of Caleb, their hearts were moved 
-with pity toward him and his followers : yea, 
-even those who had made a convention at the 
-little town of Hartford. 
-
-36 Neither doth the scribe desire to dwell 
-upon the wickedness which came into the vil- 
-lage of Hartford, the signification of the 
-name whereof, in the vernacular tongue, ap- 
-peareth not. 
-
-37 For the meddling therewith is as the 
-green pool of unclean waters, when a man 
-casteth a stone therein. 
-
-
-
-
-
-
-29 
+[29]
 
 CHAP. IV. 
 
 John Henry--Elijah Parish. 
 
-.LET the children of Columbia beware of 
-false prophets, which come in sheep's clo- 
-thing ; for it is written, Ye shall know them 
-by their fruits. 
+LET the children of Columbia beware of false prophets, which come in sheep's clothing ; for it is written, Ye shall know them by their fruits. 
 
-2 J\ T ow it came to pass, that a certain man, 
-whose sir-name was Henry, came before 
-James, the chief governor, and opened his 
-mouth, and spake unto him, saying, 
+2 Now it came to pass, that a certain man, whose sir-name was Henry, came before James, the chief governor, and opened his mouth, and spake unto him, saying,
 
-3 Lo ! if thou wilt give unto me two score 
-and ten thousand pieces of silver, then will I 
-unfold unto thee the witchcraft of Britain, 
-that thereby thy nation may not be caught in 
-her snares. 
+3 Lo ! if thou wilt give unto me two score and ten thousand pieces of silver, then will I unfold unto thee the witchcraft of Britain, that thereby thy nation may not be caught in her snares.
 
-4 And James said unto him, Verily, for the 
-good of my country, I will do this thing. 
+4 And James said unto him, Verily, for the good of my country, I will do this thing.
 
-5 And immediately the man Henry open- 
-ed his mouth, a second time, and said, 
+5 And immediately the man Henry opened his mouth, a second time, and said,
 
-6 Lo ! the lords' and the counsellors of 
-Britain have made a covenant with me, and 
+6 Lo ! the lords and the counsellors of Britain have made a covenant with me, and have promised me many pieces of gold if I would make a league with the provinces of the east, that they might favor the king ; and long and faithfully have I labored in their cause.
 
+[30]
 
+7 But they deceived me, even as they would deceive the people of Columbia ; for their promises are as the idle wind that passeth by, which no man regardeth.
 
-i 
+8 And, when he had gotten the silver into his own hands, he departed to the land of the Gauls, where he remaineth even until this day. 
 
+9 Nevertheless, the people profited much thereby ; inasmuch as it put them upon the watch, and they guarded themselves against the evil accordingly. 
 
+10 He that longeth after the interpretation of the deeds of Henry, let him go and make inquiry of those who acted with him, the ministers of the Hartford Convention.
 
-30 
+11 Now, there was a certain hypocrite whose name was Elijah, and he was a false prophet in the east, and led astray those of little understanding : moreover, he was an hireling, and preached for the sake of filthy lucre. 
 
-have promised me many pieces of gold if I 
-would make a league with the provinces of 
-ihe east, that they might favor the king ; and 
-long and faithfully have I labored in their 
-cause. 
+[31]
 
-7 But they deceived me, even as they 
-would deceive the people of Columbia ; for 
-their promises are as the idle wind that pass- 
-eth by, which no man regardeth. 
+12 And he rose up and called himself a preacher of the gospel, and his words were smooth, and the people marvelled at him ;
 
-8 And, when he had gotten the silver into 
-his own hands, he departed to the land of the 
-Gauls, where he remaineth even until this 
-day. 
+13 But he profaned the temple of the Lord, and he strove to lead his disciples into the wrong way.
 
-9 Nevertheless, the people profited much 
-thereby ; inasmuch as it put them upon the 
-watch, and they guarded themselves against 
-the evil accordingly. 
+14 And many wise men turned their backs against him ; nevertheless he repented not of his sins unto this day.
 
-10 He that longeth after the interpreta- 
-tion of the deeds of Henry, let hirn go and 
-make inquiry of those who acted with him, 
-the ministers of the Hartford Convention. 
+15 Neither did the people, as Darius the Mede did unto the prophet Daniel, cast him into the den of lions, that they might see whether the royal beasts would disdain to devour him.
 
-11 Now, there was a certain hypocrite 
-whose name was Elijah, and he was a 
-false prophet in the east, and led astray those 
-of little understanding : moreover, he was 
+16 But they were rejoiced that power was not given unto him to command fire to come down from heaven to consume the friends of the great Sanhedrim.
 
-
-
-31 
-
-an hireling, and preached for the sake of fil- 
-thy lucre. 
-
-12 And he rose up and called himself a 
-preacher of the gospel, and his words were 
-smooth, and the people marvelled at him ; 
-
-13 But he profaned the temple of the 
-Lord, and he strove to lead his disciples into 
-the wrong way. 
-
-14 And many wise men turned their 
-backs against him ; nevertheless he repented 
-not of his sins unto this day. 
-
-15 Neither did the people, as Darius the 
-Mede did unto the prophet Daniel, cast him 
-into the den of lions, that they might see 
-whether the royal beasts would disdain to 
-devour him. 
-
-16 But they were rejoiced that power was 
-not given unto him to command fire to come 
-down from heaven to consume the friends of 
-tjie great Sanhedrim. 
-
-
-
-g 2 
-
-
-
-*/ 
-
-
-
-32 
-
-
+[32]
 
 CHAP. V. 
 
+American Army--Militia--Navy--British Navy-- Rogers' first Cruise--capture of the U.S. brig Nautilus--removal of aliens beyond tide-water.
 
+THE whole host of the people of Columbia, who had been trained to war, being numbered, was about seven thousand fighting men.* 
 
-American A rmy--Militia--Navy--British 
-Navy~~ Rogers' first Cruise--capture of the 
-U. S. brig Nautilus--removal of aliens be- 
-yond tide-water. 
+2 Neither were they assembled together ; but they were extended from the north to the south, about three thousand miles.**
 
+3 But the husbandmen, who lived under their own fig-tree, and lifted the arm in defence of their own homes, were more than seven hundred thousand, all mighty men of valor. 
 
-
-A HE whole host of the people of Columbia, 
-who had been trained to war, being number- 
-ed, was about seven thousand fighting men.* 
-
-2 Neither were they assembled together ; 
-but they were extended from the north to 
-the south, about three thousand miles.f 
-
-3 But the husbandmen, who lived under 
-their own fig-tre^, and lifted the arm in de- 
-fence of their own homes, were more than 
-seven hundred thousand, all mighty men of 
-valor. 
-
-4 Now the armies of the king of Britain, 
-are they not numbered and written in the 
-book of Hume, the scribe ? is not their name 
-a terror to all nations ? 
-
-
+4 Now the armies of the king of Britain, are they not numbered and written in the book of Hume, the scribe ? is not their name a terror to all nations ? 
 
 * Standing army. 
 
-) From District of Maine to Mobile bay and New-Orleans, 
+** From District of Maine to Mobile bay and New-Orleans.
 
-
-
-* 
-
-
-
-33 
+[33]
 
 5 Moreover, the number of the strong 
 ships of the peaceable inhabitants of Colum- 
