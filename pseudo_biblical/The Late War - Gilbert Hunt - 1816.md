@@ -542,490 +542,230 @@ THE whole host of the people of Columbia, who had been trained to war, being num
 
 [33]
 
-5 Moreover, the number of the strong 
-ships of the peaceable inhabitants of Colum- 
-bia, that moved on the waters of the deep, 
-carrying therein the destroying engines, 
-which vomited their thunders, was about one 
-score; besides a handful of "cock-boats;" 
-with " a bit of striped bunting at their mast- 
-head." 
+5 Moreover, the number of the strong ships of the peaceable inhabitants of Columbia, that moved on the waters of the deep, carrying therein the destroying engines, which vomited their thunders, was about one score; besides a handful of "cock-boats;" with " a bit of striped bunting at their masthead."
 
-6 But the number of the fighting vessels of 
-Britain was about one thousand one score 
-and one, which bore the royal cross. 
+6 But the number of the fighting vessels of Britain was about one thousand one score and one, which bore the royal cross.
 
-7 And the men of war of Britain were ar- 
-rayed in their might against the people of the 
-land of Columbia. 
+7 And the men of war of Britain were arrayed in their might against the people of the land of Columbia. 
 
-8 Nevertheless, it came to pass, that about 
-this time a strong ship of t^e United Slates, 
-called the President, commanded by a skillful 
-man whose name was Rogers,* 
+8 Nevertheless, it came to pass, that about this time a strong ship of the United Slates, called the President, commanded by a skillful man whose name was Rogers,* 
 
-9 Sailed towards the island of Britain, and 
-went nigh unto it, and made captive numbers 
-of the vessels of the people of Britain, in 
-their own waters ; after which she return- 
-ed in safety to the land of Columbia. 
-
-10 And the people gave much praise to 
+9 Sailed towards the island of Britain, and went nigh unto it, and made captive numbers of the vessels of the people of Britain, in their own waters ; after which she returned in safety to the land of Columbia. 
 
 * Com. Rogers. 
 
+[34]
 
+10 And the people gave much praise to Kogers, for it was a cunYiing thing ; inasmuch as he saved many ships that were richly laden, so that they fell not into the hands of the people of Britain. 
 
-34 
+11 Moreover, it happened about the fifteenth day of the seventh month, in the same year in which the decree of the great Sanhedrim was issued, that a certain vessel of the states of Columbia was environed round about by a multitude of the ships of the king ;
 
-Kogers, for it was a cunYiing thing ; inas- 
-much as he saved many ships that were rich- 
-ly laden, so that they fell not into the 
-hands of the people of Britain. 
+12 And the captain thereof was straitened, and he looked around him, and strove to escape : 
 
-1 1 Moreover, it happened about the fif- 
-teenth day of the seventh month, in the same 
-year in which the decree of the great San- 
-hedrim was issued, that a certain vessel of 
-the states of Columbia was environed round 
-about by a multitude of the ships of the 
-king ; 
+13 But he was entrapped, and fell a prey to the vessels of the king ; howbeit, the captain, whose name was Crane, tarnished not his honor thereby.
 
-12 And the captain thereof was strait- 
-ened, and he looked around him, and strove 
-to escape : 
+14 And the name of the vessel of the United States was called Nautilus.
 
-13 But he was entrapped, and fell a prey 
-to the vessels of the king ; howbeit, the cap- 
-tain, whose name was Crane, tarnished not 
-his honor thereby. 
+15 Now, about this time, there was a law sent forth from the great Sanhedrim, commanding all servants and subjects of the king of Britain forthwith to depart beyond the swellings of the waters of the great deep; even two score miles. 
+ 
+[35]
 
-14 And the name of the vessel of the 
-United States was called Nautilus. 
+16 And they did so ; and their friends from whom they were compelled to flee, mourned for them many days.
 
-15 Now, about this time, there was a law 
-sent forth from the great Sanhedrim, com- 
-manding all servants and subjects of the 
-king of Britain forthwith to depart beyond 
-the swellings of the waters of the great 
-deep; even two score miles,. 
+17 After this they could do no evil, on the which their hearts were bent continually.
 
+18 And when they arrived in the back parts of the far extended provinces of Columbia, the husbandmen opened their mouths, and the dumb beasts looked at them with astonishment.
 
+19 Neither doth the scribe marvel at their astonishment; for were not the servants of the king astonished, out of measure, at the brave men of Columbia.
 
-I 
-35 
-
-16 And they did so ; and their friends 
-from whom they were compelled to flee, 
-mourned for them many days. 
-
-17 After this they could do no evil, on 
-the which their hearts were bent continually. 
-
-J 8 And when they arrived in the back 
-parts of the far extended provinces of Co- 
-lumbia, the husbandmen opened their 
-mouths, and the dumb beasts looked at 
-them with astonishment. 
-
-19 Neither doth the scribe marvel at their 
-astonishment; for were not the servants of 
-the king astonished, out of measure, at the 
-brave men of Columbia. 
-
-
-
-
-
-
-36 
-
-
+[36]
 
 CHAP. VI. 
 
+Hull's expedition--he enters Canada, and encamps at Sandwich--issues his Proclamation--retreats to Detroit.
 
+NOW it was known throughout the land of Columbia that war was declared against the kingdom of Britain.
 
-HulVs expedition--Tie enters Canada, and en- 
-camps at Sandwich--issues his Proclama- 
-tion--retreats to Detroit. 
+2 And to a certain chief captain called William, whose sur-name was Hull, was given in trust a band of more than two thousand chosen men, to go forth to battle in the north.*
 
-
-
-IN OW it was known throughout the land 
-of Columbia that war was declared against 
-the kingdom of Britain. 
-
-2 And to a certain chief captain called 
-William, whose sur-name was Hull, was 
-given in trust a band of more than two 
-thousand chosen men, to go forth to battle 
-in the north.* 
-
-3 Now Hull was a man well stricken in 
-years, and he had been a captain in the 
-host of Columbia, in the days that tried men's 
-souls; even in the days of Washington. 
-
-4 Therefore, when he appeared in the 
-
-
+3 Now Hull was a man well stricken in years, and he had been a captain in the host of Columbia, in the days that tried men's souls; even in the days of Washington.
 
 * Canada. 
 
+[37]
 
+4 Therefore, when he appeared in the presence of the great Sanhedrim,* they were pleased with his countenance, and put much faith in him.
 
-37 
+5 Moreover, he was a governor in the north, ** and a man of great wealth.
 
-presence of the great Sanhedrim,* they 
-were pleased with his countenance, and put 
-much faith in him. 
+6 And, now when he arrived with his army hard by the Miami of the Lakes, he gat him a vessel and placed therein those things which were appertaining unto the preservation of the lives of the sick and the maimed. 
 
-5 Moreover, he was a governor in the 
-north, f and a man of great wealth. 
+7 But, in an evil hour, the vessel was ensnared, near unto a strong hold,*** beside a river, called in the language of the Gauls, Detroit. 
 
-6 And, now when he arrived with his 
-army hard by the Miami of the Lakes, he gat 
-him a vessel and placed therein those things 
-which were appertaining unto the preserva- 
-tion of the lives of the sick and the maimed. 
+8 And the army of the provinces of Columbia suffered much thereby.
 
-7 But, in an evil hour, the vessel was en- 
-snared, near unto a strong hold,J beside a ri- 
-ver, called in the language of the Gauls, 
-Detroit. 
+9 Nevertheless, on the twelfth of the seventh month, about the fourth watch of the night, William with his whole host crossed the river which is called Detroit.
 
-8 And the army of the provinces of Co- 
-lumbia suffered much thereby. 
+* Gen. Hull had been to Washington and obtained an appointment previous to the war.
+** Michigan territory.
+*** Maldera. 
 
-9 {Nevertheless, on the twelfth of the se- 
-venth month, about the fourth watch of the 
-night, William with his whole host crossed 
-the river which is called Detroit. 
+[38]
 
-10 And he eneamped his men round about 
+10 And he eneamped his men round about the town of Sandwich in the province of the king.
 
+11 From this place, he sent forth a Proclamation, which the great Sanhedrim had prepared for him ; and the wisdom thereof appeareth even unto this day.
 
+12 But if a man's ass falleth into a ditch, shall the master suffer thereby ? if injury can be prevented, shall we not rather with our might endeavor to help him ?
 
-* Gen. Hull had been to Washington and obtained an appoint- 
-ment previous to the war. 
+13 Now in the proclamation which Hull published abroad, he invited the people of the province of Canada to join themselves to the host of Columbia, who were come to drive the servants ol the king from their borders.
 
-t Michigan territory, J Maldera. 
+14 And it came to pass, that a great multitude flocked to the banners of the great Sanhedrim.
 
+15 Nevertheless, they knew not that they were to be entrapt.
 
+16 However it was so, that William departed from the province of the king, and again passed the river. 
 
-
-
-
-38 
-
-the town of Sandwich in the province of the 
-king. 
-
-1 1 From this place, he sent forth a Pro- 
-clamation, which the great Sanhedrim had 
-prepared for him ; and the wisdom thereof 
-appeareth even unto this day. 
-
-12 But if a man's ass falleth into a ditch, 
-shall the master suffer thereby ? if injury can 
-be prevented, shall we not rather with our 
-might endeavor to help him ? 
-
-13 Now in the proclamation which Hull 
-published abroad, he invited the people of 
-the province of Canada to join themselves to 
-the host of Columbia, who were come to 
-drive the servants ol the king from their 
-borders. 
-
-14 And it came to pass, that a great multi- 
-tude flocked to the banners of the great 
-Sanhedrim. 
-
-15 Nevertheless, they knew not that they 
-were to be entrapt. 
-
-16 However it was so, that William de- 
-parted from the province of the king, and 
-again passed the river. 
+[39]
 
 17 And when the husbandmen of the pro- 
-vince of Canada, who had joined the standard 
+vince of Canada, who had joined the standard of Columbia, learned those things, they wept bitterly ; for they were left behind.
 
+18 After this William secured himself in the strong hold of Detroit ; and the eyes of the men and the women of Columbia were fixed upon him.
 
+19 And the expectation thereof may be likened unto a man who hath watered well his vineyard.
 
-39 
+[40]
 
-of Columbia, learned those things, they wept 
-bitterly ; for they were left behind. 
+CHAP. VII.
 
-18 After this William secured himself in 
-the strong hold of Detroit ; and the eyes of 
-the men and the women of Columbia were 
-fixed upon him. 
+Hull's expedition--surrender of his army and the whole Michigan Territory--his trial and pardon by the President--capture of Michilimackinack.
 
-19 And the expectation thereof may be 
-likened unto a man who hath watered well 
-his vineyard. 
+NOW the host of the king were few in numbers ; nevertheless, they came in battle array against the strong hold of William.
 
+2 And when he beheld them from afar, he was afraid; his knees smote one against another, and his heart sunk within him; for, lo! the savages of the wilderness appeared amongst them.
 
+3 And a rumor went throughout the camp of Columbia, and it bore hard upon William. 
 
+4 Inasmuch as they said the wickedness of his heart was bent on giving up the strong hold to the servants of the king. 
 
+5 Howbeit he was not taxed with drinking of the strong waters of Jamaica ; which when they enter into the head of a man, destroy his reason and make him appear like unto one who hath lost his senses.
 
+[41]
 
-i 
+6 And when the charge against William was made known unto the soldiers of Columbia, they were grieved much, for they were brave men, and feared nought.
 
+7 So the officers communed one with another touching the thing: but they wist not what to do.*
 
+8 And they fain would have done violence unto William, that they might have been enabled to pour forth their thunders against the approaching host of Britain ; which he had forbidden to be done.
 
+9 Moreover, the names of these valiant men, who were compelled to weep before the cowardice of William, are they not recorded in the bosom of every friend of Columbian liberty?**
 
+10 And it was about the sixteenth of the eighth month when the servants of the king appeared before the strong hold of Detroit.
 
+* The officers present were not sufficiently numerous to warrant any opposition to th eweakness of the general.
+** Miller, Cass, McArthur, Bruch, Findley, &c.
 
-» 
+[42]
 
+11 And the name of the chief captain of the province of Canada, that came against the strong hold, was Brock, whose whole force was about seven hundred soldiers of the king, and as many savages.
 
+12 Now when the soldiers of Canada were distant about a furlong, moving towards the strong hold ; even when the destroying engines were ready to utter their thunders, and smite them to the earth,
 
-40 
+13 William, whose heart failed him, commanded the valiant men of Columbia to bow
+down before the servants of the king ;
 
+14 And he ordered them to yield up the destructive weapons which they held in their hands.
 
+15 Neither could they appear in battle against the king again in many days.
 
-CHAP. VII. 
+16 Moreover, the cowardice of his heart caused him to make a league with the slaves of the king, in the which he gave unto them the whole territory over which the people had entrusted him to preside ; notwithstanding it appertained not unto him.
 
+17 And the balls of solid iron, and the black dust, and the destroying engines became a prey unto the men of Britain.
 
+[43]
 
-Hull's expedition--surrender of his army and 
-the whole Michigan Territory--his trial 
-and pardon by the President--capture of 
-Michilimackinack. 
+18 Now there had followed after William a band of brave men from the west,* and the name of their captain was Brush ; and he had in trust the bread and the wine which were to support the army of Columbia.
 
+19 And, lest they should fall into the hands of the savages, a captain, whose name was Vanhorn, was ordered to go forth and meet him.
 
+20 And the band that went forth, was entrapped at Brownstown, by the cunning savages, that laid wait for them, and the killed and the wounded of Columbia were about two score.
 
-JN OW the host of the king were few in num- 
-bers ; nevertheless, they came in battle array 
-against the strong hold of William. 
+21 And again there were sent from the camp of William more than five hundred men to go to the aid of Brush.
 
-2 And when he beheld them from afar, he 
-was afraid; his knees smote one against ano- 
-ther, and his heart sunk within him; for, 
-lo! the savages of the wilderness appeared 
-amongst thern. 
+22 And the name of the chief captain thereof, was Miller** and the captain whom he ordered to go before him was called Snelling.***
 
-3 And a rumor went throughout the 
-camp of Columbia, and it bore hard upon 
-William. 
+23 Now Snelling was a valiant man, and strove hard against the men of Britain, and the savages; even until Miller the chief captain arrived.
 
-4 Inasmuch as they said the wickedness 
-of his heart was bent on giving up the strong 
-hold to the servants of the king. 
+* Ohio
+** Col. Miller
+*** Col. J. Snelling.
 
-5 Howbeit he was not taxed with drinking of the strong waters of Jamaica ; which 
-when they enter into the head of a man, destroy his reason and make him appear like 
-unto one who hath lost his senses. 
+[44]
 
-6 And when the charge against William 
-was made known unto the soldiers of Colum- 
-bia, they were grieved much, for they were 
-brave men, and feared nought. 
+24 And the place, which is called Maguago, lieth about an hundred furlongs distant from Detroit.
 
-7 So the officers communed one with 
-another touching the thing: but they wist 
-not what to do.* 
+25 Now the battle waxed hot ; and the host of Miller pressed hard upon the savages and upon the men of Britain.
 
-8 And they fain would have done violence 
-unto William, that they might have been en- 
-abled to pour forth their thunders against 
-the approaching host of Britain ; which he 
-had forbidden to be done. 
+26 Inasmuch as they were compelled to flee before the arms of Columbia : and Miller gat great honor thereby.
 
-9 Moreover, the names of these valiant 
-men, who were compelled to weep before 
-the cowardice of William, are they not re- 
-corded in the bosom of every friend of Co- 
-lumbian liberty? 
+27 And there fell of the men of Britain that day an hundred two score and ten.
 
-10 And it was about the sixteenth of the 
-eighth month when the servants of the king 
-appeared before the strong hold of Detroit. 
+28 Nevertheless, in the league which William had made, he had included Miller, and all the brave captains and men of war of Columbia that were nigh the place.
 
-11 And the name of the chief captain of the province of Canada, that came against 
-the strong hold, was Brock, whose whole 
-force was about seven hundred soldiers of the 
-king, and as many savages. 
+29 Now, therefore, whether it was cowardice outright, in William, or whether he became treacherous for filthy lucre's sake, appeareth not unto the scribe.*
 
-12 Now when the soldiers of Canada were 
-distant about a furlong, moving towards the 
-strong hold ; even when the destroying en- 
-gines were ready to utter their thunders, 
-and smite them to the earth, 
-
-13 William, whose heart failed him, com- 
-manded the valiant men of Columbia to bow 
-down before the servants of the king ; 
-
-14 And he ordered them to yield up the 
-destructive weapons which they held in 
-their hands. 
-
-15 Neither could they appear in battle 
-against the king again in many days. 
-
-16 Moreover, the cowardice of his heart 
-caused him to make a league with the slaves 
-of the king, in the which he gave unto them 
-the whole territory over which the people 
-had entrusted him to preside ; notwithstand- 
-ing it appertained not unto him. 
-
-17 And the balls of solid iron, and the 
-black dust, and the destroying engines be- 
-came a prey unto the men of Britain. 
-
-3 8 Now there had followed after William a band of brave men from the west,* 
-and the name of their captain was Brush ; 
-and he had in trust the bread and the wine 
-which were to support the army of Columbia. 
-
-19 And, lest they should fall into the 
-hands of the savages, a captain, whose name 
-was Vanhorn, was ordered to go forth and 
-meet him. 
-
-20 And the band that went forth, was en- 
-trapped at Brownstown, by the cunning sa- 
-vages, that laid wait for them, and the killed 
-and the wounded of Columbia were about 
-two score. 
-
-21 And again there were sent from the 
-camp of William more than five hundred 
-men to go to the aid of Brush 
-
-22 And the name of the chief captain 
-thereof, was Miller and the captain whom 
-he ordered to go before him was called 
-Snelling. 
-
-23 Now Snelling was a valiant man, and 
-strove hard against the men of Britain, and 
-the savages; even until Miller the chief cap- 
-tain arrived. 
-
-24 And the place, which is called Magna- 
-go, lieth about an hundred furlongs distant 
-from Detroit. 
-
-25 Now the battle waxed hot ; and the 
-host of Miller pressed hard upon the savages 
-and upon the men of Britain. 
+* To palliate Hull's conduct it has been urged, that he surrendered his army to prevent the effusion of blood: but let us ask those charitable palliators what they would have said of Gen. Jackson, if, when a mighty and a blood-thirsty enemy appeared before his battlements, in quest of beauty and booty, he had given up N. Orleans and ceded the Louisiana territory to him ? or of the gallant Croghan, when left to defent fort Stephenson with a handful of men and a single six pounder?--These palliators might even have wished that the heroes of Erie and Champlain had eflt the same qualms of conscience:--but they ought to know that it was such noble deeds that stopt the "effusion of blood."
 
-26 Inasmuch as they were compelled to 
-flee before the arms of Columbia : and Mil- 
-ler gat great honor thereby. 
+30 But the effect thereof to the nation, was as a man having a millstone cast about his neck.
 
-27 And there fell of the men of Britain 
-that day an hundred two score and ten. 
+31 So William and his whole army fell into the hands of the servants of the king.
 
-28 Nevertheless, in the league which Wil- 
-liam had made, he had included Miller, and 
-all the brave captains and men of war of Co- 
-lumbia that were nigh the place. 
+32 But as it is written in the book of Solomon, There is a time for all things, so it came to pass, afterwards, that William was called to account for his evil deeds.
 
-29 Now, therefore, whether it was coward- 
-ice outright, in William, or whether he be- 
-came treacherous for filthy lucre's sake, ap- 
-peareth not unto the scribe.
+33 And he was examined before the lawful tribunal of his country, and they were all valiant warriors and chief captains in the land of Columbia.
 
-30 But the effect thereof to the nation, 
-was as a man having a millstone cast about 
-his neck. 
+34 Howbeit, when the council* had weighed well the matter, they declared him guilty, and ordered that he should suffer death.
 
-31 So William and his whole army fell 
-into the hands of the servants of the king. 
+35 Nevertheless, they recommended him to the mercy of James, the chief governor of the land of Columbia.
 
-32 But as it is written in the book of Solomon, There is a time for all things, so it 
-came to pass, afterwards, that William was 
-called to account for his evil deeds. 
+36 Saying, Lo ! the wickedness of the man appeareth unto us as the noon day ;
 
-33 And he was examined before the law- 
-ful tribunal of his country, and they were all 
-valiant warriors and chief captains in the 
-land of Columbia. 
+* Court-martial.
 
-34 Howbeit, when the council had weigh- 
-ed well the matter, they declared him guilty, 
-and ordered that he should suffer death. 
+[46]
 
-35 Nevertheless, they recommended him 
-to the mercy of James, the chief governor of 
-the land of Columbia. 
+37 But the infirmities of his age have weakened his understanding, therefore let his gray hairs go down into the grave in silence.
 
-36 Saying, Lo ! the wickedness of the 
-man appeareth unto us as the noon day ; 
+38 And when James heard the words of the council, his heart melted as wax before the fire.
 
-37 But the infirmities of his age have 
-weakened his understanding, therefore let his 
-gray hairs go down into the grave in silence. 
+39 And he said, Lo ! ye have done that which seemeth right unto me.
 
-38 And when James heard the words of 
-the council, his heart melted as wax before 
-the fire. 
+40 Nevertheless, as my soul hopeth for mercy, for this thing William shall not surely die ; but his name shall be blotted out from ihe list of the brave.
 
-39 And he said, Lo ! ye have done that 
-which seemeth right unto me. 
+41 For it appeareth unto me that he was possessed of an evil spirit, and wist not what he did.
 
-40 Nevertheless, as my soul hopeth for 
-mercy, for this thing William shall not sure- 
-ly die ; but his name shall be blotted out 
-from ihe list of the brave. 
+42 Not withstanding this, William thanked him not, but added insult to cowardice.*
 
-41 For it appeareth unto me that he was 
-possessed of an evil spirit, and wist not what 
-he did. 
+43 So William was ordered to depart to the land which lieth in the east,** where he remaineth unto this day ; and his name shall be no more spoken of with reverence 
+amongst men.
 
-42 Not withstanding this, William thanked 
-him not, but added insult to cowardice.* 
+* Hull's address to the public.
+** Massachusetts.
 
-43 So William was ordered to depart to 
-the land which lieth in the east,f where he 
-remaineth unto this day ; and his name shall 
-be no more spoken of with reverence 
-amongst men. 
+[47]
 
-44 Moreover, there was another evil which 
-fell upon the people of the United States,
-about the time the host of Columbia crossed 
-the river Detroit. 
+44 Moreover, there was another evil which fell upon the people of the United States, about the time the host of Columbia crossed the river Detroit.
 
-45 For, lo ! the strong hold of Michili- 
-mackinack, which lieth nigh unto the Lakes 
-of Michigan and Huron fell an easy prey un- 
-to the men of Britain, and their red brethren ; 
+45 For, lo ! the strong hold of Michilimackinack, which lieth nigh unto the Lakes of Michigan and Huron fell an easy prey unto the men of Britain, and their red brethren ;
 
-46 Howbeit, their numbers were more 
-than four-fold greater than the men of Co- 
-lumbia, who knew not of the war. 
+46 Howbeit, their numbers were more than four-fold greater than the men of Columbia, who knew not of the war.
 
-47 Nevertheless, the people of the United 
-States, even the great Sanhedrim, were not 
-disheartened ; neither were they afraid ; for 
-they had counted the cost, and were pre- 
-pared to meet the evil. 
+47 Nevertheless, the people of the United States, even the great Sanhedrim, were not disheartened ; neither were they afraid ; for they had counted the cost, and were prepared to meet the evil.
 
-
-
-
-
-
-
-
-
-48 
-
-
+[48]
 
 CHAP. VIII. 
-
-
 
 Capture of the British frigate Guerriere, by 
 the United States' frigate Constitution, cap- 
