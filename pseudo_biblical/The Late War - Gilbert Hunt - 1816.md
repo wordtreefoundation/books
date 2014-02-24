@@ -767,550 +767,240 @@ amongst men.
 
 CHAP. VIII. 
 
-Capture of the British frigate Guerriere, by 
-the United States' frigate Constitution, cap- 
-tain Hull--capture of the Alert sloop of 
-war, by the Essex, captain Porter. 
+Capture of the British frigate Guerriere, by the United States' frigate Constitution, captain Hull--capture of the Alert sloop of war, by the Essex, captain Porter.
 
 
 
-IN OW it came to pass, on the nineteenth 
-day of the eighth month, that one of the tall 
-ships of Columbia, called the Constitution, 
-commanded by Isaac whose sur-name was 
-Hull, 
+NOW it came to pass, on the nineteenth day of the eighth month, that one of the tall ships of Columbia, called the Constitution, commanded by Isaac whose sur-name was Hull,
 
-2 Having spread her snowy wings on the 
-bosom of the mighty deep, beheld from afar 
-one of the fighting ships of Britain bearing 
-the royal cross. 
+2 Having spread her snowy wings on the bosom of the mighty deep, beheld from afar one of the fighting ships of Britain bearing the royal cross.
 
-3 And the name of the ship was called, in 
-the language of the French, Guerriere,* 
-which stgnifieth a warrior, and Dacres was 
-the captain thereof. 
+3 And the name of the ship was called, in the language of the French, Guerriere,* which signifieth a warrior, and Dacres was the captain thereof.
 
-4 Now when Dacres beheld the ship of 
-Columbia his eyes sparkled with joy, for he 
-had defied the vessels of Columbia. 
+4 Now when Dacres beheld the ship of Columbia his eyes sparkled with joy, for he had defied the vessels of Columbia.
 
-* The Guerriere was taken from the French bj the British*- 
+* The Guerriere was taken from the French by the British.
 
+[43] 
 
+5 And he spake unto his officers and his men that were under him, saying,
 
-43 
+6 Let every man be at his post, and ere the glass hath passed the third part of an hour, her stripes shall cease to sweep the air of heaven.
 
-5 And he spake unto his officers and hiv 
-men that were under him, saying, 
+7 And the yawning deep shall open its mouth to receive the enemies of the king.
 
-6 Let every man be at his post, and ere 
-the glass hath passed the third part of an 
-hour, her stripes shall cease to sweep the air 
-of heaven. 
+8 And the men of Dacres shouted aloud, and drank of the strong waters of Jamaica, which make men mad ; moreover they mixed the black dust therewith.
 
-7 And the yawning deep shall open its 
-mouth to receive the enemies of the king. 
+9 Now when Isaac drew nigh unto the king's ship the people of Columbia shouted.
 
-8 And the men of Dacres shouted aloud, 
-and drank of the strong waters of Jamaica, 
-which make men mad ; moreover they mixed 
-the black dust therewith. 
+10 And Isaac bore down upon the strong ship of the king.
 
-9 Now when Isaac drew nigh unto the 
-king's ship the people of Columbia shouted. 
+11 About this time they put the lighted match to the black dust of the destroying engines, and it was like unto a clap of thunder.
 
-10 And Isaac bore down upon the strong 
-ship of the king. 
+12 Moreover, the fire and smoke issued out of the mouths of the engines in abundance, so as to darken the air, and they were overshadowed by the means thereof.
 
-11 About this time they put the lighted 
-match to the black dust of the destroying en- 
-gines, and it was like unto a clap of thunder. 
+13 (Now the black dust was not known among the ancients ; even Solomon, in alibis wisdom, knew it not)
 
-12 Moreover, the fire and smoke issued 
-out of the mouths of the engines in abun- 
-dance, so as to darken the air, and they were 
-overshadowed by the means thereof. 
+[50]
 
-13 (Now the black dust was not known 
-among the ancients ; even Solomon, in alibis 
-wisdom, knew it not) 
+14 And the battle continued with tremendous roar until about the space of half an hour, when its noises ceased.
 
-14 And the battle continued with tremendous roar until about the space of half 
-an hour, when its noises ceased. 
+15 But when the clouds of smoke had passed away, behold ! the mighty Guerriere lay a sinking wreck upon the face of the waters.
 
-15 But when the clouds of smoke had 
-passed away, behold ! the mighty Guerriere 
-lay a sinking wreck upon the face of the 
-waters. 
+16 The shadow of hope passed over her as a dream; and most reluctantly was she compelled to strike the lion's red cross to the eagle of Columbia.
 
-16 The shadow of hope passed over her 
-as a dream; and most reluctantly was she 
-compelled to strike the lion's red cross to 
-the eagle of Columbia. 
+17 Whilst the Constitution, like Shadrach in the fiery furnace, filled her white sails and passed along as though nothing had happened unto her.
 
-17 Whilst the Constitution, like Sha- 
-drach in the fiery furnace, filled her white 
-sails and passed along as though nothing had 
-happened unto her. 
+18 Now the slain and the maimed of the king that day were five score and five.
 
-18 Now the slain and the maimed of the 
-king that day were five score and five. 
+19 And the loss of the people of Columbia, was seven slain and seven wounded.
 
-19 And the loss of the people of Colum- 
-bia, was seven slain and seven wounded. 
+20 After this Isaac caused a burning coal to be placed in the ship that she might be consumed, and the flames thereof mounted towards the heavens.
 
-20 After this Isaac caused a burning coal 
-to be placed in the ship that she might be 
-consumed, and the flames thereof mounted 
-towards the heavens. 
+21 And the great Sanhedrim honored Isaac with great honor, and the people were rejoiced in him, and they forgat the evils which had befallen them in the north.
 
-21 And the great Sanhedrim honored 
-Isaac with great honor, and the people were 
-rejoiced in him, and they forgat the t 
-which had befallen them in the north. 
+[51]
 
-22 But when the lorxis and counsel! 
-Britain heard those things they believed 
-them not ; it was as the bitterness of gall to 
-their souls ; for the pride of Britain was fixed 
-upon her navy ; it was the apple of her eye. 
+22 But when the lords and counsel! Britain heard those things they believed them not ; it was as the bitterness of gall to their souls ; for the pride of Britain was fixed upon her navy ; it was the apple of her eye.
 
-23 Now, as one evil followeth after ano- 
-ther to the sons of men, so it happened that, 
-in the same month, a certain strong ship of 
-the United States, even the Essex, the name 
-of the captain whereof, was Porter, sailed in 
-search of the vessels of the king, on the wa- 
-ters of the ocean. 
+23 Now, as one evil followeth after another to the sons of men, so it happened that, in the same month, a certain strong ship of the United States, even the Essex, the name of the captain whereof, was Porter, sailed in search of the vessels of the king, on the waters of the ocean.
 
-24 And in process of time, she fell upon 
-one of the ships of Britain, called the Alert, 
-and made spoil thereof to the people of Co- 
-lumbia. 
+24 And in process of time, she fell upon one of the ships of Britain, called the Alert, and made spoil thereof to the people of Columbia.
 
+[52]
 
+CHAP. IX.
 
-i 
+Attack on Sackett's Harbor--affair of Ogdensburgh--British drove from St. Regis, by the Troy militia under major Young--the brigs Adams and Caledonia re-captured by capt. Elliot, near fort Erie. 
 
+NOW the movements of the enemy were as the motion of a whirlwind, which passeth from the north to the south, and from the east to the west.
 
+2 And they sought to encorppass the whole land of Columbia round about.
 
-52 
+3 So it came to pass that a number of the armed vessels of the king, that sailed on the great lake which is called Ontario, moved toward Sacketl's Harbor.
 
+4 And they demanded certain vessels of the people of the United States, which they had taken from the king, to be given up unto them, saying :
 
-
-CHAP. IX. 
-
-
-
-Attack on SackeWs Harbor--affair of Og~. 
-densburgh--British drove from St. Regis, 
-by the Troy militia under major Young--the brigs Adams and Caledonia re-captured 
-by capU Elliot, near fort Erie. 
-
-
-
-JM OW the movements of the enemy were 
-as the motion of a whirlwind, which passeth 
-from the north to the south, and from the east 
-to the west. 
-
-2 And they sought to encorppass the 
-whole land of Columbia round about. 
-
-3 So it came to pass that a number of the 
-armed vessels of the king, that sailed on the 
-great lake which is called Ontario, moved 
-toward Sacketl's Harbor. 
-
-4 And they demanded certain vessels of 
-the people of the United States, which they 
-had taken from the king, to be given up un- 
-to them, saying : 
+[53]
 
 5 Verily, if ye give them not up, then will 
+we lay a contribution upon you, and ye shall pay tribute.
 
+6 But Bellinger, the chief captain of the Harbor, refused.
 
+7 And when the vessels of the king were hard by, a certain captain whose name was Woolsey, set one of the engines to work.
 
-53 
+8 And the vessels of the king also opened the mouths of their engines and shot into the camp of Columbia.
 
-we lay a contribution upon you, and ye shall 
-pay tribute. 
+9 And the number of the husbandmen of the United States that flocked to the defence of the Harbor was about three thousand.
 
-6 But Bellinger, the chief captain of the 
-Harbor, refused. 
+10 And when the men of war of Britain saw that the people of Columbia were not afraid, and that they knew to use the destroying engines, they fled to their strong hold, in the province of the king, which is called Kingston.
 
-7 And when the vessels of the king were 
-hard by, a certain captain whose name was 
-Woolsey, set one of the engines to work. 
+11 Howbeit, some of their ships received much damage from the balls of heavy metal, that smote them, from the strong hold.
 
-8 And the vessels of the king also opened 
-the mouths of their engines and shot into the 
-camp of Columbia. 
+12 Now as the malice of the nations increased one against another, so did the evils increase which surrounded them. 
 
-9 And the number of the husbandmen of 
-the United States that flocked to the defence 
-of the Harbor was about three thousand. 
+[54]
 
-10 And when the men of war of Britain 
-saw that the people of Columbia were not 
-afraid, and that they knew to use the des- 
-troying engines, they fled to their strong 
-hold, in the province of the king, which is 
-called Kingston. 
+13 And it came to pass on the fourth day of the tenth month, there came a thousand fighting men of Britain to lay waste the village of Ogdensburg, which lieth hard by the river St. Lawrence.
 
-1 1 Howbeit, some of their ships received 
-much damage from the balls of heavy metal, 
-that smote Ihem, from the slrons: hold. 
+14 Howbeit, the people of Columbia permitted them not to come unto the land; but compelled them to depart in haste.
 
-12 Now as the malice of the nations in- 
-creased one against another, so did the evils 
-increase which surrounded them. 
+15 Nigh unto this place is a village which is called St. Regis, where the soldiers of Britain had come to fix a strong hold, on the borders of Columbia.
 
-1 3 And it came to pass on the fourth day 
-of the tenth month, there came a thousand 
+16 But a brave captain, whose name was Young, with a band of men, called militia, went against them.
 
+17 And he sat the destroying engines to work, and the noise thereof sounded in their ears ; so they were discomfitted and fled in confusion.
 
+18 And the number of the servants of the king, made captive that day, was two score men, with the instruments of destruction in their hands.
 
-• 
+19 Moreover, one of the banners of the king, even the red-cross standard of Britain, fell into the hands of Young.
 
+20 On the eighth day of the same month, a captain, of Columbia, whose name was Elliot, a cunning man, took a chosen band, who came from the sea-coast, and put them in boats.
 
+[55]
 
-54 
+21 And he departed with them from Niagara towards the strong hold of Erie, even in the dead of the night.
 
-fighting men of Britain to lay waste the vil- 
-lage of Ogdensburg, which lieth hard by the 
-river St. Lawrence. 
+22 And he came unawares upon the two vessels which were covenanted to the king, with the army at Detroit.
 
-14 Howbeit, the people of Columbia per- 
-mitted them not to come unto the land; but 
-compelled them to depart in haste. 
+23 And the name of the vessels were the Adams and the Caledonia, and Elliot captured them the same night.
 
-] 5 Nigh unto this place is a village which 
-is called St. Regis, where the soldiers of Bri- 
-tain had come to fix a strong hold, on the 
-borders of Columbia. 
+24 However, the next day, as Elliot and his men were returning with their prizes, the men of Britain, who were upon the other shore, let the destroying engines loose upon them from their strong hold ;
 
-16 But a brave captain, whose name was 
-Young, with a band of men, called militia, 
-went against them. 
+25 And a few of the people of Columbia were slain ; moreover, it was here the valiant Cuyler fell ; a ball of heavy metal struck him as he was coming on a fleet horse toward the water's edge.
 
-17 And he sat the destroying engines to 
-work, and the noise thereof sounded in their 
-ears ; so they were discomfitted and fled in 
-confusion. 
+26 Now Cuyler was a man well beloved ; and the officers and men of Columbia grieved for him many days.
 
-18 And the number of the servants of the 
-king, made captive that day, was two score 
-men, with the instruments of destruction in 
-their hands. 
+[56]
 
-19 Moreover, one of the banners of the 
-king, even the red-cross standard of Britain, 
-fell into the hands of Young. 
+CHAP X. 
 
-20 On the eighth day of the same month, 
-a captain, of Columbia, whose name was El- 
-liot, a cunning man, took a chosen band, who 
-
-
-
-55 
-
-came from the sea-coast, and put them in 
-boats. 
-
-21 And he departed with them from Nia- 
-gara towards the strong hold of Erie, even 
-in the dead of the night. 
-
-22 And he came unawares upon the two 
-vessels which were covenanted to the king, 
-with the army at Detroit. 
-
-23 And the name of the vessels were the 
-Adams and the Caledonia, and Elliot cap- 
-tured them the same night. 
-
-24 However, the nest day, as Elliot and 
-his men were returning with their prizes, the 
-men of Britain, who were upon the other 
-shore, let the destroying engines loose upon 
-them from their strong hold ; 
-
-25 And a few of the people of Columbia 
-were slain ; moreover, it was here the valiant 
-Cuylcr fell ; a ball of heavy metal struck him 
-as he was coming on a fleet horse toward the 
-water's edge. 
-
-26 Now Cuyler was a man well beloved ; 
-and the officers and men of Columbia grieved 
-for him many days. 
-
-
-
-E 2 
-
-
-
-
-
-
-56 
-
-
-
-CHAR X. 
-
-
-
-Battle of Queenstown--the British General 
-Brock killed. 
-
-
+Battle of Queenstown--the British General Brock killed.
 
 AND it came to pass on the morning of the 
 thirteenth day of the tenth month, 
 
-2 That Stephen, a chief captain of Colum- 
-bia, sur-named Van Rensselaer, essayed to 
-cross the river which is called Niagara, with 
-his whole army. 
+2 That Stephen, a chief captain of Columbia, sur-named Van Rensselaer, essayed to cross the river which is called Niagara, with his whole army.
 
-3 Now the river lieth between the Lake 
-Erie and the Lake Ontario. 
+3 Now the river lieth between the Lake Erie and the Lake Ontario.
 
-4 And the noise of the waters of the river 
-is louder than the roarings of the forest; 
-yea, it is like unto the rushing of mighty 
-armies to battle. 
+4 And the noise of the waters of the river is louder than the roarings of the forest; yea, it is like unto the rushing of mighty armies to battle.
 
-5 And the movement of the falls thereof 
-bringeth the people from all parts of the 
-earth to behold it.* 
-
-6 Ho Stephen gat his soldiers into the 
-boats that were prepared for them, and they 
+5 And the movement of the falls thereof bringeth the people from all parts of the earth to behold it.* 
 
 * Niagara falls. 
 
+[57]
 
+6 So Stephen gat his soldiers into the boats that were prepared for them, and they moved upon the rough waters of the river, toward the strong hold of Queenstown.
 
-¦ 
+7 And when the men of Britain saw them approach, they opened the engines upon them, from Fort George, Erie, and Black Mock.
 
+8 Nevertheless, they persevered ; although the strength of the waters, which were ungovernable, separated the army.
 
+9 However, Solomon,* a captain and a kinsman of Stephen, reached the shore with the men under his command, in all about two hundred.
 
-I 
+10 And he put the army in battle array, in a valley, and moved up towards the strong hold ; and Brock was the chief captain of the host of Britain.
 
+11 And from their strong hold they shot, with their mischievous engines, balls of lead in abundance ; and it was as a shower of hail upon the people of Columbia ;
 
+12 For there was no turning to the right hand nor to the left for safety.
 
-57 
+13 And Solomon and his men fought hard ; and they rushed into the hottest of the battle. 
 
-moved upon the rough waters of the river, 
-toward the strong hold of Queenslown. 
+* Col. Solomon Van Rensselaer.
 
-7 And when the men of Britain saw them 
-approach, they opened the engines upon 
-them, from Fort George, Erie, and Black 
-Mock. 
+[58]
 
-8 Nevertheless, they persevered ; although 
-the strength of the waters, which were un- 
-governable, separated the army. 
+14 And a captain of the United States, whose name was Chrystie, followed close after them, with a chosen band of brave men.
 
-9 However, Solomon,* a captain and a 
-kinsman of Stephen, reached the shore with 
-the men under his command, in all about two 
-hundred. 
+15 So they pushed forward to the strong hold, and drove the men of Britain before them, like sheep, and smote them hip and thigh, with great slaughter ; and Brock, their chief captain, was among the slain. 
 
-10 And he put the army in battle array, 
-in a valley, and moved up towards the strong 
-hold ; and Brock was the chief captain of the 
-host of Britain. 
+16 And Chrystie, and the valiant Wool, and Ogilvie, and the host of Columbia gat into the hold, and the army of the king fled : and Chrystie was wounded in the palm of his hand.
 
-1 1 And from their strong hold they shot, 
-with their mischievous engines, balls of lead 
-in abundance ; and it was as a shower of 
-hail upon the people of Columbia ; 
+17 But Solomon was sorely wounded, so that his strength tailed him, and he went not into the hold.
 
-12 For there was no turning to the right 
-hand nor to the left for safety. 
+18 And that day there fell of the servants of the king many valiant men, even those who were called invincibles, and had gained great honor in Egypt.
 
-1 3 And Solomon and his men fought hard ; 
-and they rushed into the hottest of the battle. 
+19 Nevertheless, the same day a mighty host of savages and soldiers of the king,* came forth again to battle, and rushed upon the people of the United States, and drove them from the strong hold of Queenstown.
 
-* Col. Solomon Van Rensselaer. 
+* Reinforcements from Fort George and Chippawa.
 
+[59]
 
+20 For, lo ! Stephen, the chief captain, could not prevail on the host of militia, on the other side of the river, to cross over.
 
-58 
+21 So the army of Columbia moved down towards the river to cross over again, that they might escape.
 
-14 And a captain of the United State?, 
-whose name was Chrystie, followed close after 
-them, with a chosen band of brave men. 
+22 But when they came down to the water side, lo ! they were deceived, for there was not a boat to convey them to a place of safety ; so they became captives to the men of Britain.
 
-15 So they pushed forward to the strong 
-hold, and drove the men of Britain before 
-them, like sheep, and smote them hip and 
-thigh, with great slaughter ; and Brock, their 
-chief captain, was among the slain. 
+23 Now the men of Britain treated the prisoners kindly, and showed much tenderness towards them; for which the people blessed them.
 
-16 And Chrystie, and the valiant Wool, 
-and Ogilvie, and the host of Columbia gat in- 
-to the hold, and the army of the king fled : 
-and Chrystie was wounded in the palm of his 
-hand. 
+24 And the killed and wounded of the host of Columbia, were an hundred two score and ten.
 
-17 But Solomon was sorely wounded, so 
-that his strength tailed him, and he went not 
-into the hold. 
+25 And the prisoners that fell into the hands of the king, were about seven hundred.
 
-18 And that day there fell of the servants 
-of the king many valiant men, even those 
-who were called invincibles, and had gained 
-great honor in Egypt. 
+26 Nevertheless, in a letter which Stephen sent to Henry* the chief captain of the army of the north, he gave great honor unto the captains who fought under him that 
+day.
 
-19 Nevertheless, the same day a mighty 
-host of savages and soldiers of the king,* 
-came forth again to battle, and rushed upon 
-the people of the United States, and drove 
-them from the strong hold of Queenstown. 
+* Maj. Gen. Dearborn.
 
-* Reinforcements from Fort George and Cnippawa. 
+[60]
 
+27 And the names of the valiant men, who distinguished themselves in the battle, were Wadsworth, Van Rensselaer, Scott, Chrystie, Fenwick, Fink, Gibson, and many other brave men of war.
 
+[61]
 
+CHAP. XI.
 
+Gen. Smyth succeeds Gen. Van Rensselaer--his attempt to cross the Niagara, and failure--causes.
 
+AFTER these things, on the same day in which the letter was written, Stephen resigned the command of his army to a certain chief captain whose name was Alexander.* 
 
-59 
+2 Now Alexander was a man well skilled in the arts of warfare.
 
-20 For, lo ! Stephen, the chief captain, 
-could not prevail on the host of militia, on 
-the other side of the river, to cross over. 
+3 And he made a proclamation to the young men of the state of New-York, wherein he invited them to go forth from their homes, and join the host under him.
 
-21 So the army of Columbia moved down 
-towards the river to cross over again, that 
-they might escape. 
+4 And the words thereof pleased the young men, so that they went in numbers and joined Alexander; on the shores of the river which is called the Niagara.
 
-22 But when they came down to the water 
-side, lo ! they were deceived, for there was 
-not a boat to convey them to a place of safe- 
-ty ; so they became captives to the men of 
-Britain. 
+* Brig. Gen. Smyth.
 
-23 Now the men of Britain treated the 
-prisoners kindly, and showed much tender- 
-ness towards them; for which the people 
-blessed them. 
+[62]
 
-24 And the killed and wounded of the 
-host of Columbia, were an hundred two score 
-and ten. 
+5 But here the hand of the scribe trembleth, his tongue faltereth, his heart sickeneth, and he would fain blot from his memory that which truth compels him to record ; for he is a living witness thereof.
 
-25 And the prisoners that fell into the 
-hands of the king, were about seven hun- 
-dred. 
+6 Alas, there was an evil spirit moving in secret, and in bye-places throughout the land of Columbia; and it was the offspring of tyranny, the cup-bearer of royalty; Toryism.
 
-26 Nevertheless, in a letter which Ste- 
-phen sent to Henry* the chief captain of the 
-army of the north, he gave great honor un- 
+7 And lo ! its viper-like insidiousness crept into the ears of the unwary husbandmen.
 
+8 For the sect of the tories whispered unto them, saying, Lo! the laws of the land cannot compel you to step over the borders of the United States.
 
+9 Moreover, said they, the fierceness of the savages is terrible as the wild tyger, and their numbers as the trees of the forest.
 
-* Maj. Gen. Dearboxn. 
+10 And the veteran soldiers of the king, who have been bred to war, are spread in multitudes over the province of Canada.
 
-
-
-60 
-
-to the captains who fought under him that 
-day. 
-
-27 And the names of the valiant men, who 
-distinguished themselves in the battle, were 
-Wadsworlh, Van Rensselaer, Scott, Chrystie, 
-Fenwick, Fink, Gibson, and many other brave 
-men of war. 
-
-
-
-
-
-
-
-
-
-til 
-
-
-
-CHAP. XL 
-
-
-
-Gen. Smyth succeeds Gen. Van Rensselaer--his attempt to cross the Niagara, and failure--causes. 
-
-
-
-A.FTER these things, on the same day in 
-which the letter was written, Stephen resign- 
-ed the command of his army to a certain 
-chief captain whose name was Alexander.* 
-
-2 Now Alexander was a man well skilled 
-in the arts of warfare. 
-
-3 And he made a proclamation to the 
-young men of the state of New-York, 
-wherein he invited them to go forth from 
-their homes, and join the host under him. 
-
-4 And the words thereof pleased the 
-young men, so that they went in numbers 
-and joined Alexander; on the shores of the 
-river which is called the Niagara. 
-
-5 Rut here the hand of the scribe trem- 
-
-* Brig. Gen. Smvth. 
-
-
-
-62 
-
-bleth, his tongue faltereth, his heart sicken- 
-eth, and he would fain blot from his memory 
-that which truth compels him to record ; for 
-he is a living witness thereof. 
-
-6 Alas, there was an evil spirit moving in 
-gecret, and in bye-places throughout the land 
-of Columbia; and it was the offspring of ty- 
-ranny, the cup-bearer of royalty; Toryism. 
-
-7 And lo ! its viper-like insidiousness 
-crept into the ears of the unwary husband- 
-men. 
-
-8 For the sect of the tories whispered 
-unto them, saying, Lo! the laws of the land 
-cannot compel you to step over the borders 
-of the United States. 
-
-9 Moreover, said they, the fierceness of 
-the savages is terrible as the wild tyger, and 
-their numbers as the trees of the forest. 
-
-10 And the veteran soldiers of the king, 
-who have been' bred to war, are spread in 
-multitudes over the province of Canada. 
-
-11 Therefore, if ye go orer to fight 
-against them, ye will be as sheep going to 
-the slaughter, and ye shall never again re- 
-turn to the house of your fathers, for ye 
-will be destroyed. 
+11 Therefore, if ye go orer to fight against them, ye will be as sheep going to the slaughter, and ye shall never again return to the house of your fathers, for ye will be destroyed.
 
 12 Even as the wickedness of the war, 
 
