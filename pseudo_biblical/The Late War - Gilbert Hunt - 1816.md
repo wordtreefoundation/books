@@ -6,7 +6,7 @@ year: 1816
 place: New York
 source: "https://archive.org/details/latewarbetween_00hunt"
 status: OCR ONLY
-note: 
+note: Manually corrected up to page 78.
 ---
 
 
@@ -1002,603 +1002,253 @@ AFTER these things, on the same day in which the letter was written, Stephen res
 
 11 Therefore, if ye go orer to fight against them, ye will be as sheep going to the slaughter, and ye shall never again return to the house of your fathers, for ye will be destroyed.
 
-12 Even as the wickedness of the war, 
+[63] 
 
-4 
+12 Even as the wickedness of the war, which the great Sanhedrim have made, against the king, cannot prosper, so shall ye fall a prey to the folly thereof. 
 
+13 And it came to pass when the husbandmen heard these smooth words, many of them were bewildered in their minds, and knew not what to do. 
 
+14 So when the young men who had flocked to the banners of Alexander, came down to the water's edge, to go into the boats, they thought of the words which the enemies of Columbia had spoken unto them; and they refused to cross over : 
 
-.«.. 
+15 Neither could the persuasions of the chief captain prevail on them all to go into the boats ; and those whose hearts were willing were not enough. 
 
+16 So he was obliged to suffer them to return to their homes ; for his expectations were blasted. 
 
+17 And the army of Columbia went into winter quarters; for the earth was covered with snow, and the waters of the great lakes were congealed. 
 
-63 
-
-which the great Sanhedrim have made, 
-against the king, cannot prosper, so shall ye 
-fall a prey to the folly thereof. 
-
-13 And it came to pass when the husband- 
-men heard these smooth words, many of them 
-were bewildered in their minds, and knew 
-not what to do. 
-
-14 So when the young men who had 
-flocked to the banners of Alexander, came 
-down to the water's edge, to go into the 
-boats, they thought of the words which the 
-enemies of Columbia had spoken unto them; 
-and they refused to cross over : 
-
-15 Neither could the persuasions of the 
-chief captain prevail on them all to go 
-into the boats ; and those whose hearts were 
-willing were not enough. 
-
-16 So he was obliged to suffer them to re- 
-turn to their homes ; for his expectations 
-were blasted. 
-
-17 And the army of Columbia went into 
-winter quarters; for the earth was covered 
-with snow, and the waters of the great lakes 
-were congealed. 
-
-
-
-
-
-
-64 
-
-
+[64] 
 
 CHAP. XII. 
 
+Capture of the sloop of War Frolic, of 22 guns, by the United States' sloop of war Wasp, of 18 guns. 
 
+NOW the strong ships of war of the kingdom of Britain were spread over the whole face of the waters of the ocean. 
 
-Capture of the sloop of War Frolic, of 22 
-guns, by the United Stales' sloop of war 
-Wasp, of IS guns. 
+2 But few, indeed, were the vessels of Columbia, that were fighting ships and carried the destroying engines. 
 
+3 Howsoever, early in the morning of the eighteenth day of the tenth month, about the sixth hour, being on the sabbath day, 
 
+4 One of the ships of Columbia, called the Wasp, the name of the captain whereof was Jones, who was a valiant man, discovered afar off one of the strong ships of the king. 
 
-JN OW the strong ships of war of the king- 
-dom of Britain were spread over the whole 
-face of the waters of the ocean. 
+[65] 
 
-2 But few, indeed, were the vessels of Co- 
-lumbia, that were fighting ships and carried 
-the destroying engines. 
+5 Now the ship of Britain was mightier than the ship of Columbia, and she was called the Frolic, and the captain's name was Whinycates. 
 
-3 Howsoever, early in the morning of the 
-eighteenth day of the tenth month, about the 
-sixth hour, being on the sabbath day, 
+6 And they began to utter their thunders about the eleventh hour of the day, and the noises continued for more than the space of half an hour. 
 
-4 One of the ships of Columbia, called the 
-Wasp, the name of the captain whereof was 
-Jones, who was a valiant man, discovered 
-afar off one of the strong ships of the 
-king. 
+7 When the Wasp, falling upon the Frolic, and getting entangled therewith, the men struggled together; and the mariners of Columbia overpowered the mariners of Britain. 
 
-5 Now the ship of Britain was mightier 
-than the ship of Columbia, and she was call- 
+8 So it came to pass, that the Frolic became captive to the ship of Columbia. 
 
+9 And the slain and the wounded of the king's ship were about four score. 
 
+10 And the children of Columbia lost, in all, about half a score : howbeit, there was much damage done to both vessels. 
 
-**r*^ 
+11 Nevertheless, about this time, a mighty ship of Britain, called the Poictiers, came upon the vessels, which were in a defenceless situation, and took them both, and commanded them to go to the island of the king which is called Bermuda. 
 
+[66] 
 
+12 However, the people of Columbia were pleased with the noble conduct of Jones, and for his valiant acts they gave him a sword of curious workmanship. 
 
-* % 
+13 Moreover, while he remained at Bermuda, the inhabitants, the servants of the king, treated him kindly ; and showed much respect for him and his officers that were made captive. 
 
-
-
-65 
-
-ed the Frolic, and the captain's name was 
-Whinycates. 
-
-6 And they began to utter their thunders 
-about the eleventh hour of the day, and the 
-noises continued for more than the space of 
-half an hour. 
-
-7 When the Wasp, falling upon the Fro- 
-lic, and getting entangled therewith, the mea 
-struggled together; and the mariners of Co- 
-lumbia overpowered the mariners of Bri- 
-tain. 
-
-8 So it came to pass, that the Frolic be- 
-came captive to the ship of Columbia. 
-
-9 And the slain and the wounded of the 
-king's ship were about four score. 
-
-10 And the children of Columbia lost, in 
-all, about half a score : howbeit, there was 
-much damage done to both vessels. 
-
-1 1 Nevertheless, about this time, a mighty 
-ship of Britain, called the Poictiers, came 
-upon the vessels, which were in a defence- 
-less situation, and took thern both, and com- 
-manded them to go to the island of the king 
-which is called Bermuda. 
-
-12 However, the people #f Columbia 
-were pleased with the noble conduct of 
-
-
-
-
-66 
-
-Jones, and for his valiant acts they gave 
-him a sword of curious workmanship. 
-
-13 Moreover, while he remained at Ber- 
-muda, the inhabitants, the servants of the 
-king, treated him kindly ; and showed much 
-respect for him and his officers that were 
-made captive. 
-
-
-
-67 
-
-
+[67] 
 
 CHAP. XIII. 
 
+Capture of the British frigate Macedonian, by Com. Decatur, in the frigate United States--brig Vixen captured by the British frigate Southampton. 
 
+NOW it happened on the twenty-fifth day of the tenth month, in the first year of the war, that a certain strong ship of Britain, that had prepared herself to fight a ship of Columbia, appeared upon the waters of the deep. 
 
-Capture of the British frigate Macedonian, by 
-Com. Decatur, in the frigate United States--brig Vixen captured by the British fri- 
-gate Southampton. 
+2 And she was commanded by a valiant captain whose name was Carden, and the name of the ship was the Macedonian. 
 
+3 And on the same day she met one of the strong ships of Columbia, the name of the captain whereof was Decatur, and the vessel was called the United States. 
 
+4 Now Decatur was a man who had never known fear; and the good of his country was the pride of his heart. 
 
-JN OW it happened on the twenty-fifth day 
-of the tenth month, in the first year of the 
-war, that a certain strong ship of Britain, 
-that had prepared herself to fight a ship of 
-Columbia, appeared upon the waters of the 
-deep. 
+[68] 
 
-2 And she was commanded by a valiant 
-captain whose name was Carden, and the 
-name of the ship was the Macedonian. 
+5 And when he came towards the vessel of the king, he used no entreaty with his men, for they all loved him, and the point of his finger was as the Word of his mouth.
 
-3 And on the same day she met one of 
-the strong ships of Columbia, the name of 
-the captain whereof was Decatur, and the 
-vessel was called the United States. 
+6 So when the ships came nigh unto one another, their thunders were tremendous, and the smoke thereof was as a black cloud. 
 
-4 Now Decatur was a man who had ne- 
-ver known fear; and the good of his country 
-was the pride of his heart. 
+7 Nevertheless, in the space of about ninety minutes, the strong ship of Britain struck her red flag to the simple stripes of Columbia.
 
-F 2 
+8 Now the Macedonian was a new ship, and she gat much damage. 
 
+9 But the United States, like the companions of Shadrach, moved unhurt upon the waters ; nay, even her wings were not singed. 
 
+10 And the slain and the wounded, of the ship of the king, were five score and four. 
 
-68 
+11 And there fell of the people of Columbia five who were slain outright, and there were seven maimed. 
 
-5 And when he came towards the ves- 
-sel of the king, he used no entreaty with 
-his men, for they all loved him, and the 
-point of his finger was as the Word of his 
-month. 
+12 Moreover the ship of Britain had seven of the stolen men of Columbia therein, who were compelled to fight against their brethren ; and two of them were slain in battle. 
 
-6 So when the ships came nigh unto 
-one another, their thunders were tremen- 
-dous, and the smoke thereof was as a black 
-cloud. 
+[69] 
 
-7 Nevertheless, in the space of about nine- 
-ty minutes, the strong ship of Britain struck 
-her red flag to the simple stripes of Columbia* 
+13 And when Carden came on board the ship of Columbia, he bowed his head, and offered to put his sword, of curious workmanship, into the hands of Decatur. 
 
-8 Now the Macedonian was a new ship, 
-and she gat much damage. 
+14 But Decatur said unto him, Nay; thou hast defended thy ship like a valiant man; therefore, keep thy sword, but receive my hand. 
 
-9 But the United States, like the com- 
-panions of Shadrach, moved unhurt upon the 
-waters ; nay, even her wings were not singed. 
+15 So they sat down and drank wine together, for the spirits of brave men mingle even in the time of warfare. 
 
-10 And the slain and the wounded, of the 
-ship of the king, were five score and four. 
+16 And after they had eaten and drank, Carden opened his mouth, for he was troubled in his mind, and spake unto Decatur, saying : 
 
-11 And there fell of the people of Colum- 
-bia five who were slain outright, and there 
-were seven maimed. 
+17 Lo ! if this thing which hath happened be known unto the king, that one of the vessels of Britain hath struck her flag, and become captive to a vessel of the United States, what shall be done unto the captain thereof? for such a thing hath not been heard of among the nations of the earth. 
 
-12 Moreover the ship of Britain had se- 
-ven of the stolen men of Columbia therein, 
-who were compelled to fight against their 
-brethren ; and two of them were slain in 
-battle. 
+18 And Decatur answered, and spake unto Carden, saying, Verily thou art deceived, neither will harm happen unto thee. 
 
+[70] 
 
+19 For, lo! it came to pass, about threescore days ago, that one of the strong ships of the king, thy master, the name whereof was called Guerriere, fell an easy prey to one of the strong ships of Columbia; and they burnt her with fire upon the waters. 
 
-* 
+20 Now when Carden heard these words, his heart leaped with joy ; for he dreaded the frowns of the king, and he was glad that he stood not alone in the thing. 
 
+21 After this, in the eighteen hundred and thirteenth year of the christian era, on the first day of the first month of the same year, and on the sixth day of the week, 
 
+22 The ship United States and the ship Macedonian came into the haven of New-York, having passed a certain dangerous place called Hell-gate : and there was a heavy fog that day. 
 
-69 
+23 And there were great rejoicings in the city, and throughout the whole land of Columbia. 
 
-13 And when Carden came on board the 
-ship of Columbia, he bowed his bead;, and 
-offered to put his sword, of curious work- 
-manship, into the hands of Decatur. 
+24 Moreover, there was a sumptuous dinner given to Isaac, Decatur, and Jones, in honor of their valiant deeds ; and the number of the guests were about five hundred. 
 
-14 Bui Decatur said unto him, Nay; thou 
-hast defended thy ship like a valiant man; 
-therefore, keep thy sword, but receive my 
-hand. 
+25 And the inhabitants of New-York made a great feast, on the ninth day of the month, for the brave mariners that wrought in the ship of Columbia. 
 
-15 So they sat down and drank wine to- 
-gether, for the spirits of brave men mingle 
-even in the time of warfare. 
+[71] 
 
-16 And after they had eaten and drank, 
-Carden opened his mouth, for he was trou- 
-bled in his mind, and spake unto Decatur, 
-saying : 
+26 And they became merry with the drinking of wine ; after which they departed and went unto a house of mirth and gaiety.* 
 
-17 Lo ! if this thing which hath happened 
-be known unto the king, that one of the ves- 
-sels of Britain hath struck her flag, and be- 
-come captive to a vessel of the United 
-States, what shall be done unto the captain 
-thereof? for such a thing hath not been 
-heard of among the nations of the earth. 
+27 Now, it is written in the words of Solomon, whose wisdom hath not been excelled, that, there is a time to weep, and a time to rejoice. 
 
-18 And Decatur answered, and spake un- 
-to Carden, saying, Verily thou art deceived, 
-neither will harm happen unto thee. 
+28 Not many days after those things, it came to pass, that the hearts of the lords and the counsellors of Britain were rejoiced. 
 
-19 For, lo! it came to pass, about three- 
-score days ago, that one of the btrong ships 
+29 For a certain mighty ship, called the Southampton, fell upon a smaller vessel of the United States,** and made capture thereof unto the king. 
 
-
-
-70 
-
-of the king, thy master, the name whereof 
-was called Guerriere, fell an easy prey to 
-one of the strong ships of Columbia; and 
-they burnt her with fire upon the wa- 
-ters. 
-
-20 Now when Carden heard these words, 
-his heart leaped with joy ; for he dreaded the 
-frowns of the king, and he was glad that he 
-stood not alone in the thing. 
-
-21 After this, in the eighteen hundred and 
-thirteenth year of the christian era, on the 
-first day of the first month of the same year, 
-and on the sixth day of the week, 
-
-22 The ship United States and the ship 
-Macedonian came into the haven of New- 
-York, having passed a certain dangerous 
-place called Hell-gate : and there was a heavy 
-fog that day. 
-
-23 And there were great rejoicings in the 
-city, and throughout the whole land of Co- 
-lumbia. 
-
-24 Moreover, there was a sumptuous din- 
-ner given to Isaac, Decatur, and Jones, in 
-honor of their valiant deeds ; and the number 
-of the guests were about five hundred. 
-
-25 And the inhabitants of New- York 
-made a great feast, on the ninth day of the 
-
-
-
-71 
-
-month, for the brave mariners that wrought 
-in the ship of Columbia. 
-
-26 And they became merry with the 
-drinking of wine ; after which they depart- 
-ed and went unto a house of mirth and 
-gaiety.* 
-
-27 Now, it is written in the words of So- 
-lomon, whose wisdom hath not been excel- 
-led, that, there is a time to weep, and a 
-time to rejoice. 
-
-28 Not many days after those things, it 
-came to pass, that the hearts of the lords and 
-the counsellors of Britain were rejoiced. 
-
-29 For a certain mighty ship, called the 
-Southampton, fell upon a smaller vessel of 
-the United States, f and made capture there- 
-of unto the king. 
-
-30 But the storm arose, and the sea beat 
-upon the vessels, and they were cast away, 
-and they parted asunder, upon an island 
-which lieth far to the south, and both vessels 
-were lost. 
-
-
+30 But the storm arose, and the sea beat upon the vessels, and they were cast away, and they parted asunder, upon an island which lieth far to the south, and both vessels were lost. 
 
 * Theatre. 
 
-t United States' brig Vixen, 12 guns, G. W.Recd com- 
-wander. 
+** United States' brig Vixen, 12 guns, G. W.Reed commander. 
 
-
-
-72 
-
-
+[72] 
 
 CHAP. XIV. 
 
+Affairs in the north--skirmishes--battle of Frenchtown, on the river Raisin--capture of Gen. Winchester's army--massacre of American prisoners.
 
+NOW it came to pass, that the wickedness of Britain had roused up the spirit of Satan in the savages of the forest, in the north and in the west. 
 
-Affairs in the north--skirmishes--battle of 
-Jfrenchtown, on the river Raisin--capture 
-of Gen. Winchester's army--massacre of 
-American prisoners. 
+2 And the tomahawk and the scalping knife were raised against the people of Columbia on the borders of the great lakes. 
 
+3 So the people sought after a valiant man to go against the savages and the men of Britain. 
 
-
-JN OW it came to pass, that the wickedness 
-of Britain had roused up the spirit of Satan 
-in the savages of the forest, in the north and 
-in the west. 
-
-2 And the tomahawk and the scalping 
-knife were raised against the people of Co- 
-lumbia on the borders of the great lakes. 
-
-3 So the people sought after a valiant 
-man to go against the savages and the men of 
-Britain. 
-
-4 And they pitched upon a certain go- 
-vernor of the west, whose name was Harri- 
-son,* and the great Sanhedrim made him a 
-chief captain of the army. 
+4 And they pitched upon a certain governor of the west, whose name was Harrison,* and the great Sanhedrim made him a chief captain of the army. 
 
 * Maj. Geo., W. H. Harrison, Governor of Ohio. 
 
+[73] 
 
+5 Moreover, he was beloved by the people, and a mighty host of husbandmen were ready to follow after him. 
 
-73 
+6 And Harrison rested his army at the strong hold of Meigs, nigh the Miami Rapids, which lieth in the way journeying towards the strong hold of Maiden, which is in the province of the king ; whither he intended to go forth in the pleasant season of the year. 
 
-b Moreover, he was beloved by the peo- 
-ple, and a mighty host of husbandmen were 
-ready to follow after him. 
+7 And Winchester* was another chief captain that went against the savages. 
 
-6 And Harrison rested his army at the 
-strong hold of Meigs, nigh the Miami Rapids, 
-which lieth in the way journeying towards 
-the strong hold of Maiden, which is in the 
-province of the king ; whither he intended to 
-go forth in the pleasant season of the year. 
+8 Now the savages had been a sore thorn in the side of the people of Columbia. 
 
-7 And Winchester* was another chief cap- 
-tain that went against the savages. 
+9 They had assailed the hold which is called after a chief captain whose name was Dearborn, and their numbers overpowered it, and they used deceit, and put to death the men and the women and the infants that were found in the hold, after they had become captives, save about half a score. 
 
-8 Now the savages had been a sore thorn 
-in the side of the people of Columbia. 
-
-9 They had assailed the hold which is call- 
-ed after a chief captain whose name was 
-Dearborn, and their numbers overpowered 
-it, and they used deceit, and put to death 
-the men and the women and the infants that 
-were found in the hold, after they had be- 
-come captives, save about half a score. 
-
-10 And their bowlings along the dark for- 
-est were more terrible than the wild w 7 olf, 
-and their murderous cunning more dreadful 
-than the prowling tiger. 
-
-11 And the servants of the king gave 
+10 And their bowlings along the dark forest were more terrible than the wild wolf, and their murderous cunning more dreadful than the prowling tiger. 
 
 * Brig. Gen. Winchester. 
 
+[74] 
 
+11 And the servants of the king gave them to drink of the strong waters of Jamaica, well knowing that they loved it as they did their own souls, 
 
-74 
+12 Yet these were the allies, the messmates, the companions of the slaves of Britain ! hired assassins ! 
 
-them to drink of the strong wafers of Jamai- 
-ca, well knowing that they loved it as they 
-did their own souls, 
+13 However, about this time there were many brave captains of the people of the United States that went against them. 
 
-12 Yet these were the allies, the mess- 
-mates, the companions of the slaves of Bri- 
-tain ! hired assassins ! 
+14 Even Russel, and Hopkins, and Tupper, and Campbell, and Williams, and others, who drove the red savages before them. 
 
-13 However, about this time there were 
-many brave captains of the people of the 
-United States that went against them. 
+1/5 And burnt their villages,* and laid waste their habitations, and slew many of them; for it is written in the holy scripture, Blood for blood ! 
 
-14 Even Russel, and Hopkins, and Tupper, 
-and Campbell, and fVilliams, and others, who 
-drove the red savages before them. 
+16 Nevertheless, they treated the savage prisoners who fell into their hands kindly ; neither suffered they the people to buffet them. 
 
-1/5 And burnt their villages,* and laid 
-waste their habitations, and slew many of 
-them; for it is written in the holy scripture, 
-Blood for blood ! 
-
-16 Nevertheless, they treated the savage 
-prisoners who fell into their hands kindly ; 
-neither suffered they the people to buffet 
-them. 
-
-17 But it came to pass, on the twenty-se- 
-cond day of the first month, a mighty horde 
-of savages and servants of the king, fell up- 
-on the army of Winchester the chief captain. 
-
-18 And it was about the dawning of the 
-
-
+17 But it came to pass, on the twenty-second day of the first month, a mighty horde of savages and servants of the king, fell upon the army of Winchester the chief captain. 
 
 * Towns on the Wabash. 
 
+[75] 
 
+18 And it was about the dawning of the day, when the destructive engines opened their fires. 
 
-75 
+19 And the place where the battle was fought was called, in the vernacular tongue, Frenchtown, which lieth on the south side of the River Raisin, nigh unto Lake Erie. 
 
-day, when the destructive engines opened 
-their fires. 
+20 Now the name of the chief captain of the army of Britain was Proctor, and he proved himself a wicked man, and his name is despised even unto this day. 
 
-19 And the place where the battle was 
-fought was called, in the vernacular tongue, 
-Frenchtown, which lieth on the south side of 
-the River Raisin, nigh unto Lake Erie. 
+21 Howsoever, the battle waxed hot, and they began to rush one upon another with great violence. 
 
-20 Now the name of the chief captain of 
-the army of Britain was Proctor, and he 
-proved himself a wicked man, and his name 
-is despised even unto this day. 
+22 And the small band of Columbia fought desperately, and the slaughter was dreadful ; and the pure snow of heaven was sprinkled and stained with the blood of men ! 
 
-21 Howsoever, the battle waxed hot, and 
-they began to rush one upon another with 
-great violence. 
+23 Nevertheless, the people of the United States were overcome, and their chief captain made prisoner. 
 
-22 And the small band of Columbia 
-fought desperately, and the slaughter was 
-dreadful ; and the pure snow of heaven was 
-sprinkled and stained with the biood of 
-men ! 
+24 So when Winchester found he was made captive, and that there was no hope for the rest of the men under his command, he made a league with Proctor, the chief captain of the host of the king. 
 
-23 Nevertheless, the people of the United 
-States were overcome, and their chief cap- 
-tain made prisoner. 
+[76] 
 
-94 So when Winchester found he was 
-made captive, and that there was no hope 
-for the rest of the men under his command, 
-he made a league with Proctor, the chief cap- 
-tain of the host of the king. 
+25 In the which Proctor agreed to vouch-safe protection to the captive men of Columbia, from the wrath of the savages, whom he had inflamed. 
 
-25 In the which Proctor agreed to vouch- 
+26 Now the number of the men of Columbia that fell into their hands that day, were about five hundred ; and the slain and wounded about an hundred two score and ten. 
 
+27 And the number of the savages and the men of Britain who fell in battle that day were many. 
 
+28 And Proctor removed the captives unto the strong hold of Maiden, which lieth upon the opposite side of the river, in the province of the king. 
 
-76 
+29 But, in the cruelty of his heart, he left the sick, the wounded, and the dying to the mercy of the savages of the wilderness ! 
 
-safe protection to the captive men of Colum- 
-bia, from the wrath of the savages, whom he 
-had inflamed. 
+30 In this thing he transgressed the word of a man, which is evil in the sight of the Lord. 
 
-26 Now the number of the men of Co- 
-lumbia that fell into their hands that day, 
-were about five hundred ; and the slain and 
-wounded about an hundred two score and ten. 
+31 Oh! for a veil, to hide in utter darkness the horrid deeds of that awful day, that they might not be handed down to the children of men, in the times to come. 
 
-27 And the number of the savages and the 
-men of Britain who fell in battle that day 
-were many. 
+32 Lo ! early in the morning of the next day, ere the sun had risen, the work of death began !
 
-28 And Proctor removed the captives unto 
-the strong hold of Maiden, which lieth upon 
-Ihe opposite side of the river, in the province 
-of the king. 
+[77] 
 
-29 But, in the cruelty of his heart, he left 
-the sick, the wounded, and the dying to the 
-mercy of the savages of the wilderness ! 
+33 Behold the sullen savage, with deadly rage, drag forth the shivering soldier over the blood-stained snow, fainting, bleeding with his wounds, and imploring on his knees for mercy. 
 
-30 Jn this thing he transgressed the word 
-of a man, which is evil in the sight of the 
-Lord. 
+34 Alas ! the savage understandeth not his words ; but giveth him a blow with the hatchet of death. 
 
-31 Oh! for a veil, to hide in utter dark- 
-ness the horrid deeds of that awful day, that 
-they might not be handed down to the chil- 
-dren of men, in the times to come. 
+35 For have not the counsellors of Britain said, For this will we give unto you silver and gold ? 
 
-32 Lo ! early in the morning of the next 
-day, ere the sun had risen, the work of death 
-began I 
+36 Thus were the poor wounded prisoners of Columbia slaughtered in abundance. 
 
+37 And Round-Head, the chief captain of the warriors, and the savages under him, gat great praise from Proctor, the chief captain of the host of Britain.* 
 
+38 Neither did the sick and wounded escape, who had gathered themselves together in the houses, that they might be sheltered from the piercing cold ; even those who were weary and unable to go forth. 
 
-77 
+* See Proctor's account of the battle, dated Quebec, February 8, 1813.
 
-33 Behold the sullen savage, with deadly 
-rage, drag forth the shivering soldier over 
-the blood-stained snow, fainting, bleeding 
-with his wounds, and imploring on his knees 
-for mercy. 
+[78]
 
-34 Alas ! the savage understandeth not his 
-words ; but giveth him a blow with the hatch- 
-et of death. 
+39 For the savages put the burning brand to the houses, from which they could not flee, and burnt them alive therein. 
 
-35 For have not the counsellors of Britain 
-said, For this will we give unto you sil- 
-ver and gold ? 
+40 And the flames and the smoke arose ! and their cries and their groans reached the high chancery of heaven, 
 
-36 Thus were the poor wounded prison- 
-ers of Columbia slaughtered in abundance. 
+41 Where they will stand recorded, until the coming of that Day for which all other days were made. 
 
-37 And Round-Head, the chief captain of 
-the warriors, and the savages under him, gat 
-great praise from Proctor, the chief cap- 
-tain of the host of Britain.* 
+42 Lo ! are those the helpmates of the mighty kingdom of Britain ? that noble and generous nation, the bulwark of religion? 
 
-38 Neither did the sick and wounded es- 
-cape, who had gathered themselves toge- 
-ther in the houses, that they might be 
-sheltered from the piercing cold ; even 
-those who were weary and unable to go 
-forth. 
+43 Tell it not in Gath ; publish it not in the streets of Askalon.* 
 
-39 For the savages put the burning brand 
-to the houses, from which thev could not 
-flee, and burnt them alive therein. 
+* The whole of this massacre was conducted under the eyes of the British officers, and sanctioned by them as well as by their government ; for this fact has never been disavowed.
 
-40 And the flames and the smoke arose ! 
-and their cries and their groans reached the 
-high chancery of heaven, 
-
-41 Where they will stand recorded, until 
-the coming of that Day for which all other 
-days were made. 
-
-42 Lo ! are those the helpmates of the 
-mighty kingdom of Britain ? that noble and 
-generous nation, the bulwark of religion? 
-
-43 Tell it not in Gath ; publish it not in 
-the streets of Askalon.* 
-
-
-79 
-
-
+[79] 
 
 CHAP. XV. 
 
-
-
-Capture of the British frigate Java, by the 
-United States frigate ConstittUion. 
-
-
+Capture of the British frigate Java, by the United States frigate Constitution. 
 
 IN the twelfth month of the first year of the 
 decree of the great Sanhedrim, on the twen- 
