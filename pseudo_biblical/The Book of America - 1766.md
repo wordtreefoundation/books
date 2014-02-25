@@ -4,7 +4,7 @@ author:
 year: 1766
 place: Boston, Massachusetts
 source: 
-status: CLEAN+1
+status: MISSING TEXT
 note: published in Boston Gazette, May 12, 1766
 ---
 
