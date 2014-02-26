@@ -39,7 +39,6 @@ OCR ONLY
 
 - [Chronicles of Nathan Ben Saddi](pseudo_biblical/Chronicles of Nathan Ben Saddi - 1758.md) (1758)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1817 (archive.org).md) (1817)
-- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1819 (archive.org).md) (1819)
 - [True Relation of the Holy War](pseudo_biblical/True Relation of the Holy War - 1806.md) (1670 or so)
 
 CLEAN+0
@@ -58,7 +57,7 @@ CLEAN+1
 - [The First Book of the American Chronicles of the Times](pseudo_biblical/The First Book of the American Chronicles - John Leacock - 1775.md) (1775)
 - [The First Book of the Chronicles of John](pseudo_biblical/The First Book of the Chronicles of John - 1812.md) (1812)
 - [The French Gasconade Defeated](pseudo_biblical/The French Gasconade Defeated - 1743.md) (1743)
-- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - Mary.md) (1817 or 1819)
+- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1819.md) (1819)
 
 CLEAN+2
 -------
