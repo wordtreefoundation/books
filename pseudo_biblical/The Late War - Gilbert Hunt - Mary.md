@@ -9,7 +9,7 @@ status: CLEAN+1
 note: is this the 1817 historical reader, or the 1819 historical reader?
 ---
 
-CHAP. I 
+CHAP. I.
 
 President's Message--Causes of the War--Energetic Measures proposed. 
 

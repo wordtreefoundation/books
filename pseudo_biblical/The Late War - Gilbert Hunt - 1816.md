@@ -9,282 +9,11 @@ status: IN PROCESS
 note: Manually corrected up to page 78.
 ---
 
-
-THE 
-
-LATE WAR
-
-BETWEEN THE 
-
-UNITED STATES AND GREAT BRITAIN, 
-
-FROM JUNE 1812, to FEBRUARY 1815. 
-
-WRITTEN IN THE ANCIENT HISTORICAL STYLE, 
-
-
-
-BY GILBERT J. HUNT, 
-
-Author of a number of anonymous Publications, in prose and verse.
-
-
-
-"The good of his couttfryxuas the pride of his heart."--Decatur's victory. 
-
-CONTAINING, ALSO, A SKETCH OF THE LATE 
-
-ALGERINE WAR ;
-
-And the treaty concluded with the Dey of Algiers :
-The Commercial Treaty with Great Britain, 
-and the Treaty concluded with the 
-Creek Nation of Indians.
-
-NEW-YORK, 
-PUBLISHED AND SOLD FOR THE AUTHOR, 
-BY DAVID LONGWORTH, 
-11 Park. 
-
-J. DESNOUES Printer, no. 7, Murray-st. 
-
-1816.
-
-[page break]
-
-Southern District of New-York, as.
-
-BE it remembered, that on the twelfth day of July, in the forty first year of the independence of the United States of America, GILBERT J. HUNT, of the said district 
-hath deposited in this office the title of a Book, the right whereof he claims as author and proprietor, in the words and figures following, to wit: -- " The Late War between the United States and Great Britain, from June 1812 to February 1815, written in the ancient historical style, by Gilbert J. Hunt, author of a number of anonymous publications in prose and verse. 
-
-The good of his country was the pride of his heart. -- Decatur's Victory.
-
-Containing, also, a sketch of the late Algerine War and the Treaty concluded with the Dey of Algiers ; the Commercial Treaty with Great Britain, and the Treaty concluded with the Creek nation of Indians." 
-
-In conformity to the act of the congress of the United Stales, entitled " An act for the encouragement of learning, by securing the copies of Maps, Charts, and Books to the authors and proprietors of such copies, during the time therein mentioned ;" and also to an act, entitled " an act supplementary to an act, entitled an act for the encouragement of learning, by securing the copies of Maps, Charts, and Books, to the authors and 
-proprietors of such copies, during the times therein mentioned, and extending the benefits thereof to the arts of designing, engraving and etching historical and other prints." 
-
-THERON RUDD. 
-Clerk of the Southern District of New-York.
-
-[page break]
-
-PREFACE. 
-
-THE records of truth have been esteemed by men in all ages ; but when connected with history, especially that of our own country, they become doubly interesting. 
-
-The work here presented to the public, is a faithful statement of the principal facts which took place during the Late War between the United States and Great Britain. It was written not only for the author's amusement, but to condense, in as concise a manner as his talents would allow him, those prominent circumstances which ought to live forever in the American memory. 
-
-He has avoided every expression or sentiment that might wound the most delicate ear, and endeavoured throughout to inculcate the principles of virtue, liberty and patriotism.
-
-Zealous as the author is to record whatever in his opinion redounds to the honor of his beloved country, he believes he has, in no instance
-
-[4]
-
-overstepped the modesty of truth, or suffered his passions to triumph over his prudence. He has had recourse, principally, to official documents ; and, where these failed, to private accounts, well authenticated. He, therefore, commits his work to the public candour, apologising only for any defect in the style, which he hopes nill not he less pleasing for being an humble imitation of the oriental. 
-
-Should this effort succeed, he intends publishing, in the same mode of writing, the History of England, from the time of Julius Cesar to the commencement of the American Revolution, and the History of America, including the Revolutionary war, from that period to the 
-commencement of this work. 
-
-G. J. HUNT, 
-
-[page break]
-
-TABLE OF CONTENTS. 
-
-PAGE
-
-CHAP. I--President's Message--Causes of the War--Energetic Measures proposed 15
-
-CHAP. II--Report of the Committee--Declaration of War. 20 
-
-CHAP. III--Reception of the Declaration of War in 
-Great Britain--her friends in America--Caleb Strong--Hartford Convention. 28 
-
-CHAP. IV--John Henry--Elijah Parish. 29 
-
-CHAP. V--American Army--Militia--Navy--British Navy--Rogers' first Cruise--capture of the U. S. brig Nautilus--removal of aliens beyond tide-water 32 
-
-CHAP VI--Hull's expedition--he enters Canada, and encamps at Sandwich--issues his Proclamation--retreats to Detroit. 36 
-
-CHAP. VII--Hull's expedition--surrender of his army and the whole Michigan Territory his trial and pardon by the President--capture of Michilimackinack 48
-
-A2 
-
-[vi]
-
-TABLE OF CONTENTS. 
-
-PAGE.
-
-CHAP. VIII--Capture of the British frigate Guerriere, by the United States' frigate Constitution, captain Hull--capture of the Alert sloop of war, by captain Porter, in 
-the Essex. 48 
-
-CHAP. IX--Attack on Sackett's Harbor--affair of Ogdensburgh--British drove from St. Regis, by the Troy militia under major Young--the brigs Adams and Caledonia 
-re-captured by capt. Elliot, near fort Erie. 52 
-
-CHAP. X--Battle of Queenslown--the British Gen. Brock killed. 56 
-
-CHAP. XI--Gen. Smythe succeeds Gen. Van Rensselaer--his attempt to cross the Niagara, and failure--causes. 61 
-
-CHAP. XII--Capture of the sloop of war, Frolic of 22 guns, by the United Slates' sloop of war Wasp of 18 guns. 64 
-
-CHAP. XIII--Capture of the British frigate Macedonian, by Com. Decatur, in the frigate United States--brig Vixen captured by the British frigate Southampton. 67 
-
-CHAP. XIV--Affairs in the north--skirmishes--battle of Frenchtown, on the river Raisin--capture of Gen. Winchester's army--massacre of American prisoners. 72 
-
-CHAP. XV--Capture of the British frigate Java, by the United States frigate Constitution. 79 
-
-[vii]
-
-TABLE OF CONTENTS
-
-PAGE.
-
-CHAP. XVI--Com. Rogers' return from a second cruise--capture of the United States brig Viper--the General Armstrong and a British frigate--privateering 84
-
-CHAP. XVII--Capture and burning of Ogdensbugh by the British. 90
-
-CHAP. XVIII--Capture of the Peacock of 18 guns by United States sloop of niar Hornet of 18 guns--return of the Chesapeake from a cruize. 93
-
-CHAP. XIX--Capture of Little York in upper Canada--the destruction of the American army prevented by the precaution of Gen. Pike--his death. 98
-
-CHAP. XX--Sketches of the History of America. 108
-
-CHAP. XXI--Depredations in the Chesapeake--Havrede-Grace burnt by the British under Admiral Cockburn--attack on Crany Island--Hampton taken by the British--outrages. 114
-
-CHAP. XXII--Bayard and Galatin sail for St. Petersburgh--the British compelled to abandon the siege of fort Meigs. 122
-
-CHAP. XXIII--Surrender of fort George and fort Erie to the Americans--General Brown drives the British from before Sackett's Harbor, with great loss--Gens. Hinder and Chandler made prisoners at Forty Mile Creek. 125 
-
-[viii]
-
-TABLE OF CONTENTS.
-
-PAGE.
-
-CHAP. XXIV--Capture of the Chesapeake--Com. Decatur blockaded in New-London. 129
-
-CHAP. XXV--Capture nf Col. Boerstler and Major Chapin, with their command--treatment of prisoners--Major Chapin' s escape. 136
-
-CHAP. XXVI--Capture of Fort Schlosser and Black Rock--Gen. Dearborn resigns his command to Gen. Boyd, on account of sickness--the Six Nations declare war against Canada. 139
-
-CHAP. XXVII--Affairs on Lake Ontario, between the fleets of Com. Chauncey and Sir James Yeo. 144
-
-CHAP. XXVIII--Affairs on Lake Champlain--pillage of Pittsburgh by the British--bombardment of Burlington--depredations committed in the Chesapeake, and along the coast. 147
-
-CHAP. XXIX--Major Croghan defeats the British and Indians, under Gen. Proctor, in their attack on Fort Stephenson, Lower Sandusky. 151
-
-CHAP. XXX--British schooner Dominica, of 14 guns, captured by the privateer Decatur, of 7 guns--U. S. brig Argus captured by the Pelican--capture of the Boxer by the U. S. brig Enterprize. 156
-
-CHAP. XXXI--Capture of the British fleet on Lake Erie, by the American fleet under Com. Perry. 161
-
-[ix]
-
-TABLE OP CONTENTS.
-
-PAGE.
-
-CHAP. XXXII--Capture of Maiden and Detroit--the army of Gen. Proctor retreat towards the Moravian towns--Gen. Harrison pursues them. 167
-
-CHAP. XXXIII--Battle of the Thames--Gen. Harrison captures the British army under Gen. Proctor--illumination on account of it--news of it received in England. 172
-
-CHAP. XXXIV--War with the Creek Nation of Indians--massacre at Fort Mimms Georgia and Tennessee militia, under Gen. Jackson, retaliate. 179 
-
-CHAP. XXXV--Continuation of the Creek War--Gen Jackson's grand victory over them--they sue for peace--a treaty is Concluded with them. 183 
-
-CHAP. XXXVI--Plan of attack on Montreal defeated. 190
-
-CHAP. XXXVII--Newark burnt--Fort George evacuated--Niagara frontier laid waste--Buffalo burnt. 195
-
-CHAP. XXXVIII--Cruise of the U.S. frigate Essex, D. Porter commander--her defence and capture, at Valparaiso. 193
-
-CHAP. XXXIX--Capture of the U. S. sloop of war Frolic, by the British frigate Orpheus--capture of the British sloop of war L'Epervier, by the Peacock, Cap. Warrington--capture of the Reindeer, by the
-
-[x]
-
-TABLE OF CONTENTS. 
-
-PAGE.
-
-  Wasp, Capt. Blakely--the Avon captured and sunk--U. S. vessels Syren and Rattlesnake captured--Admiral Cochrane declares the whole American coast in a state of blockade. 205
-
-CHAP. XL--Breaking up of the cantonment at French Mills--affair at La Cole Mill--Major Appling captures two hundred British seamen--Gen. Brown captures Fort Erie--battle of Chippana plains. 209
-
-CHAP. XLI--Battle of Bridgewaier. 214
-
-CHAP. XLII--Assault on Fort Erie, by the British, under Gen. Drummond--Cen. Brown resumes his command--sallies out of Fort Erie against the British camp--M'Arthur's expedition into Canada. 217
-
-CHAP. XLIII--Attack on Slonington, by the British ships of war, which are defeated and driven off. 222
-
-CHAP. XLIV--Affairs in the Chesapeake--British army move up the Patuxent--land and march towards the city of Washington--prepare themselves for battle at Bladensburgh. 225
-
-CHAP. XLV--Capture of Washington--sacking of Alexandria--death of Sir Peter Parker. 229
-
-CHAP. XLVI--British, under Gov. Prevost, go against Plattsburgh--Com. M'Donough captures the British squadron on Lake Champlain-- 240
-
-[xi] 
-
-TABLE OF CONTENTS. 
-
-PAGE.
-
-CHAP. XLVII--Battle of Pittsburgh--defeat of Sir George Prevost. 246
-
-CHAP. XLVIII--Attack on Baltimore, by the British army, under Gen. Ross, and the fleet under Admirals Cochrane and Cockburn. 250 
-
-CHAP. XLIX--Destruction of the privateer Gen. Armstrong, Samuel C. Reid, captain--Scorpion and Tigress captured--U. S. frigate Adams burnt--Castine--Fort Boyer attacked--destruction of the pirates at Barrataria, by Com. Patterson--Gen. Jackson captures Pensacola, and returns to New-Orleans. 257
-
-CHAP. L--Steam boats--Fulton--torpedoes--attempt to blow up the Plantagemt--kidnapping Joshua Penny. 266
-
-CHAP. LI--Affairs in and about Kern-York, the first commercial city in America--working on the fortifications of Brooklyn and Haerlem--capture of the British lender Eagle, by the Yankee smack. 274
-
-CHAP. LII--Affairs on the ocean--privateer Prince of Neufchatel--Marquis of Tweedale defeated in Upper Canada--capture of the President--loss of the Sylph--capture of the Cyane and the Levant by the Constitution--capture of the St. Lawrence--capture of the Penguin by the Hornet, 
-captain Biddle. 282
-
-[xii]
-
-TABLE OF CONTENTS. 
-
-PAGE.
-
-CHAP. LIII--British fleet arrives near New-Orleans--the American flotilla captured--attacks by the British upon the army of Gen. Jackson. 289
-
-CHAP. LIV--Grand Battle of New-Orleans. 294
-
-CHAP. LV--Peace. 301
-
-Algerine War 307
-
-Conclusion 315
-
-Commercial Treaty. 319
-
-Treaty with Algiers. 323
-
-Treaty with tke Creeks. 329
-
-[page break]
-
-
-THE 
-
-HISTORY 
-
-OF THE 
-
-LATE WAR, 
-
-Between the U. States and G. Britain. 
-
-
-
 CHAP. I. 
 
 Presidents Message--Causes of the War--Energetic Measures proposed.
 
-1 NOW it came to pass, in the one thousand eight hundred and twelfth year of the christian era, and in the thirty and sixth year after the people of the provinces of Columbia had declared themselves independent of all 
-the kingdoms of the earth ; 
+NOW it came to pass, in the one thousand eight hundred and twelfth year of the christian era, and in the thirty and sixth year after the people of the provinces of Columbia had declared themselves independent of all the kingdoms of the earth ; 
 
 2 That in the sixth month of the same year, on the first day of the month, the chief Governor, whom the people had chosen to rule over the land of Columbia ; 
 
@@ -414,8 +143,7 @@ more among nations.
 
 [25]
 
-11 All these things, and more, will we do 
-unto this fro ward people.
+11 All these things, and more, will we do unto this fro-ward people.
 
 12 Neither shall there be found safety for age or sex from the destroying swords of the soldiers of the king.
 
@@ -8552,3 +8280,273 @@ shall record it, in ever-living characters, on
 the pyramid of fame. 
 
 FINIS. 
+
+=====
+
+THE 
+
+LATE WAR
+
+BETWEEN THE 
+
+UNITED STATES AND GREAT BRITAIN, 
+
+FROM JUNE 1812, to FEBRUARY 1815. 
+
+WRITTEN IN THE ANCIENT HISTORICAL STYLE, 
+
+
+
+BY GILBERT J. HUNT, 
+
+Author of a number of anonymous Publications, in prose and verse.
+
+
+
+"The good of his couttfryxuas the pride of his heart."--Decatur's victory. 
+
+CONTAINING, ALSO, A SKETCH OF THE LATE 
+
+ALGERINE WAR ;
+
+And the treaty concluded with the Dey of Algiers :
+The Commercial Treaty with Great Britain, 
+and the Treaty concluded with the 
+Creek Nation of Indians.
+
+NEW-YORK, 
+PUBLISHED AND SOLD FOR THE AUTHOR, 
+BY DAVID LONGWORTH, 
+11 Park. 
+
+J. DESNOUES Printer, no. 7, Murray-st. 
+
+1816.
+
+[page break]
+
+Southern District of New-York, as.
+
+BE it remembered, that on the twelfth day of July, in the forty first year of the independence of the United States of America, GILBERT J. HUNT, of the said district 
+hath deposited in this office the title of a Book, the right whereof he claims as author and proprietor, in the words and figures following, to wit: -- " The Late War between the United States and Great Britain, from June 1812 to February 1815, written in the ancient historical style, by Gilbert J. Hunt, author of a number of anonymous publications in prose and verse. 
+
+The good of his country was the pride of his heart. -- Decatur's Victory.
+
+Containing, also, a sketch of the late Algerine War and the Treaty concluded with the Dey of Algiers ; the Commercial Treaty with Great Britain, and the Treaty concluded with the Creek nation of Indians." 
+
+In conformity to the act of the congress of the United Stales, entitled " An act for the encouragement of learning, by securing the copies of Maps, Charts, and Books to the authors and proprietors of such copies, during the time therein mentioned ;" and also to an act, entitled " an act supplementary to an act, entitled an act for the encouragement of learning, by securing the copies of Maps, Charts, and Books, to the authors and 
+proprietors of such copies, during the times therein mentioned, and extending the benefits thereof to the arts of designing, engraving and etching historical and other prints." 
+
+THERON RUDD. 
+Clerk of the Southern District of New-York.
+
+[page break]
+
+PREFACE. 
+
+THE records of truth have been esteemed by men in all ages ; but when connected with history, especially that of our own country, they become doubly interesting. 
+
+The work here presented to the public, is a faithful statement of the principal facts which took place during the Late War between the United States and Great Britain. It was written not only for the author's amusement, but to condense, in as concise a manner as his talents would allow him, those prominent circumstances which ought to live forever in the American memory. 
+
+He has avoided every expression or sentiment that might wound the most delicate ear, and endeavoured throughout to inculcate the principles of virtue, liberty and patriotism.
+
+Zealous as the author is to record whatever in his opinion redounds to the honor of his beloved country, he believes he has, in no instance
+
+[4]
+
+overstepped the modesty of truth, or suffered his passions to triumph over his prudence. He has had recourse, principally, to official documents ; and, where these failed, to private accounts, well authenticated. He, therefore, commits his work to the public candour, apologising only for any defect in the style, which he hopes nill not he less pleasing for being an humble imitation of the oriental. 
+
+Should this effort succeed, he intends publishing, in the same mode of writing, the History of England, from the time of Julius Cesar to the commencement of the American Revolution, and the History of America, including the Revolutionary war, from that period to the 
+commencement of this work. 
+
+G. J. HUNT, 
+
+[page break]
+
+TABLE OF CONTENTS. 
+
+PAGE
+
+CHAP. I--President's Message--Causes of the War--Energetic Measures proposed 15
+
+CHAP. II--Report of the Committee--Declaration of War. 20 
+
+CHAP. III--Reception of the Declaration of War in 
+Great Britain--her friends in America--Caleb Strong--Hartford Convention. 28 
+
+CHAP. IV--John Henry--Elijah Parish. 29 
+
+CHAP. V--American Army--Militia--Navy--British Navy--Rogers' first Cruise--capture of the U. S. brig Nautilus--removal of aliens beyond tide-water 32 
+
+CHAP VI--Hull's expedition--he enters Canada, and encamps at Sandwich--issues his Proclamation--retreats to Detroit. 36 
+
+CHAP. VII--Hull's expedition--surrender of his army and the whole Michigan Territory his trial and pardon by the President--capture of Michilimackinack 48
+
+A2 
+
+[vi]
+
+TABLE OF CONTENTS. 
+
+PAGE.
+
+CHAP. VIII--Capture of the British frigate Guerriere, by the United States' frigate Constitution, captain Hull--capture of the Alert sloop of war, by captain Porter, in 
+the Essex. 48 
+
+CHAP. IX--Attack on Sackett's Harbor--affair of Ogdensburgh--British drove from St. Regis, by the Troy militia under major Young--the brigs Adams and Caledonia 
+re-captured by capt. Elliot, near fort Erie. 52 
+
+CHAP. X--Battle of Queenslown--the British Gen. Brock killed. 56 
+
+CHAP. XI--Gen. Smythe succeeds Gen. Van Rensselaer--his attempt to cross the Niagara, and failure--causes. 61 
+
+CHAP. XII--Capture of the sloop of war, Frolic of 22 guns, by the United Slates' sloop of war Wasp of 18 guns. 64 
+
+CHAP. XIII--Capture of the British frigate Macedonian, by Com. Decatur, in the frigate United States--brig Vixen captured by the British frigate Southampton. 67 
+
+CHAP. XIV--Affairs in the north--skirmishes--battle of Frenchtown, on the river Raisin--capture of Gen. Winchester's army--massacre of American prisoners. 72 
+
+CHAP. XV--Capture of the British frigate Java, by the United States frigate Constitution. 79 
+
+[vii]
+
+TABLE OF CONTENTS
+
+PAGE.
+
+CHAP. XVI--Com. Rogers' return from a second cruise--capture of the United States brig Viper--the General Armstrong and a British frigate--privateering 84
+
+CHAP. XVII--Capture and burning of Ogdensbugh by the British. 90
+
+CHAP. XVIII--Capture of the Peacock of 18 guns by United States sloop of niar Hornet of 18 guns--return of the Chesapeake from a cruize. 93
+
+CHAP. XIX--Capture of Little York in upper Canada--the destruction of the American army prevented by the precaution of Gen. Pike--his death. 98
+
+CHAP. XX--Sketches of the History of America. 108
+
+CHAP. XXI--Depredations in the Chesapeake--Havrede-Grace burnt by the British under Admiral Cockburn--attack on Crany Island--Hampton taken by the British--outrages. 114
+
+CHAP. XXII--Bayard and Galatin sail for St. Petersburgh--the British compelled to abandon the siege of fort Meigs. 122
+
+CHAP. XXIII--Surrender of fort George and fort Erie to the Americans--General Brown drives the British from before Sackett's Harbor, with great loss--Gens. Hinder and Chandler made prisoners at Forty Mile Creek. 125 
+
+[viii]
+
+TABLE OF CONTENTS.
+
+PAGE.
+
+CHAP. XXIV--Capture of the Chesapeake--Com. Decatur blockaded in New-London. 129
+
+CHAP. XXV--Capture nf Col. Boerstler and Major Chapin, with their command--treatment of prisoners--Major Chapin' s escape. 136
+
+CHAP. XXVI--Capture of Fort Schlosser and Black Rock--Gen. Dearborn resigns his command to Gen. Boyd, on account of sickness--the Six Nations declare war against Canada. 139
+
+CHAP. XXVII--Affairs on Lake Ontario, between the fleets of Com. Chauncey and Sir James Yeo. 144
+
+CHAP. XXVIII--Affairs on Lake Champlain--pillage of Pittsburgh by the British--bombardment of Burlington--depredations committed in the Chesapeake, and along the coast. 147
+
+CHAP. XXIX--Major Croghan defeats the British and Indians, under Gen. Proctor, in their attack on Fort Stephenson, Lower Sandusky. 151
+
+CHAP. XXX--British schooner Dominica, of 14 guns, captured by the privateer Decatur, of 7 guns--U. S. brig Argus captured by the Pelican--capture of the Boxer by the U. S. brig Enterprize. 156
+
+CHAP. XXXI--Capture of the British fleet on Lake Erie, by the American fleet under Com. Perry. 161
+
+[ix]
+
+TABLE OP CONTENTS.
+
+PAGE.
+
+CHAP. XXXII--Capture of Maiden and Detroit--the army of Gen. Proctor retreat towards the Moravian towns--Gen. Harrison pursues them. 167
+
+CHAP. XXXIII--Battle of the Thames--Gen. Harrison captures the British army under Gen. Proctor--illumination on account of it--news of it received in England. 172
+
+CHAP. XXXIV--War with the Creek Nation of Indians--massacre at Fort Mimms Georgia and Tennessee militia, under Gen. Jackson, retaliate. 179 
+
+CHAP. XXXV--Continuation of the Creek War--Gen Jackson's grand victory over them--they sue for peace--a treaty is Concluded with them. 183 
+
+CHAP. XXXVI--Plan of attack on Montreal defeated. 190
+
+CHAP. XXXVII--Newark burnt--Fort George evacuated--Niagara frontier laid waste--Buffalo burnt. 195
+
+CHAP. XXXVIII--Cruise of the U.S. frigate Essex, D. Porter commander--her defence and capture, at Valparaiso. 193
+
+CHAP. XXXIX--Capture of the U. S. sloop of war Frolic, by the British frigate Orpheus--capture of the British sloop of war L'Epervier, by the Peacock, Cap. Warrington--capture of the Reindeer, by the
+
+[x]
+
+TABLE OF CONTENTS. 
+
+PAGE.
+
+  Wasp, Capt. Blakely--the Avon captured and sunk--U. S. vessels Syren and Rattlesnake captured--Admiral Cochrane declares the whole American coast in a state of blockade. 205
+
+CHAP. XL--Breaking up of the cantonment at French Mills--affair at La Cole Mill--Major Appling captures two hundred British seamen--Gen. Brown captures Fort Erie--battle of Chippana plains. 209
+
+CHAP. XLI--Battle of Bridgewaier. 214
+
+CHAP. XLII--Assault on Fort Erie, by the British, under Gen. Drummond--Cen. Brown resumes his command--sallies out of Fort Erie against the British camp--M'Arthur's expedition into Canada. 217
+
+CHAP. XLIII--Attack on Slonington, by the British ships of war, which are defeated and driven off. 222
+
+CHAP. XLIV--Affairs in the Chesapeake--British army move up the Patuxent--land and march towards the city of Washington--prepare themselves for battle at Bladensburgh. 225
+
+CHAP. XLV--Capture of Washington--sacking of Alexandria--death of Sir Peter Parker. 229
+
+CHAP. XLVI--British, under Gov. Prevost, go against Plattsburgh--Com. M'Donough captures the British squadron on Lake Champlain-- 240
+
+[xi] 
+
+TABLE OF CONTENTS. 
+
+PAGE.
+
+CHAP. XLVII--Battle of Pittsburgh--defeat of Sir George Prevost. 246
+
+CHAP. XLVIII--Attack on Baltimore, by the British army, under Gen. Ross, and the fleet under Admirals Cochrane and Cockburn. 250 
+
+CHAP. XLIX--Destruction of the privateer Gen. Armstrong, Samuel C. Reid, captain--Scorpion and Tigress captured--U. S. frigate Adams burnt--Castine--Fort Boyer attacked--destruction of the pirates at Barrataria, by Com. Patterson--Gen. Jackson captures Pensacola, and returns to New-Orleans. 257
+
+CHAP. L--Steam boats--Fulton--torpedoes--attempt to blow up the Plantagemt--kidnapping Joshua Penny. 266
+
+CHAP. LI--Affairs in and about Kern-York, the first commercial city in America--working on the fortifications of Brooklyn and Haerlem--capture of the British lender Eagle, by the Yankee smack. 274
+
+CHAP. LII--Affairs on the ocean--privateer Prince of Neufchatel--Marquis of Tweedale defeated in Upper Canada--capture of the President--loss of the Sylph--capture of the Cyane and the Levant by the Constitution--capture of the St. Lawrence--capture of the Penguin by the Hornet, 
+captain Biddle. 282
+
+[xii]
+
+TABLE OF CONTENTS. 
+
+PAGE.
+
+CHAP. LIII--British fleet arrives near New-Orleans--the American flotilla captured--attacks by the British upon the army of Gen. Jackson. 289
+
+CHAP. LIV--Grand Battle of New-Orleans. 294
+
+CHAP. LV--Peace. 301
+
+Algerine War 307
+
+Conclusion 315
+
+Commercial Treaty. 319
+
+Treaty with Algiers. 323
+
+Treaty with tke Creeks. 329
+
+[page break]
+
+
+THE 
+
+HISTORY 
+
+OF THE 
+
+LATE WAR, 
+
+Between the U. States and G. Britain. 
+
