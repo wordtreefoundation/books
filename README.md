@@ -33,7 +33,6 @@ IMAGE ONLY
 
 - [The Book of America](pseudo_biblical/The Book of America - 1766.md) (1766)
 - [The Book of Preferment](pseudo_biblical/The Book of Preferment - Horace Walpole - 1742.md) (1742)
-- [The French Gasconade Defeated](pseudo_biblical/The French Gasconade Defeated - 1743.md) (1743)
 
 OCR ONLY
 --------
@@ -50,6 +49,7 @@ CLEAN+0
 CLEAN+1
 -------
 
+- [The French Gasconade Defeated](pseudo_biblical/The French Gasconade Defeated - 1743.md) (1743)
 - [Reformer Chronicles](pseudo_biblical/Reformer Chronicles - 1832.md) (1832)
 - [The American Revolution](pseudo_biblical/The American Revolution - Richard Snowden - 1802.md) (1766)
 - [1st Book of the Chronicle of the Kings of England](pseudo_biblical/The Chronicle of the Kings of England, 1st Book - Robert Dodsley - 1744.md) (1744)
