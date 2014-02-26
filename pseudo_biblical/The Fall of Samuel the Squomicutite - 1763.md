@@ -32,7 +32,7 @@ The Sons of Gideon, loving the Mammon of Unrighteousness, hearkened unto the Wor
 
 And they ran unto the Hewers of Wood and Drawers of Water, and to those that use the Spade and Pick-axe, saying,--Samuel the Squomicutite, wages War against Stephen the Choppomiskite ; and if ye assist not Samuel, we will turn ye from your Dwellings, and withold Food and Raiment from your Children, that they shall die in the Streets.
 
-And thus did the Sons of Gideon, ride on Horses and in Chariots, to and fro, up an ddown, in the Streets of Tropwen, exlaiming against Stephen, and oppressing the Inhabitants of Tropwen, for the Space of three whole Months.
+And thus did the Sons of Gideon, ride on Horses and in Chariots, to and fro, up and down, in the Streets of Tropwen, exclaiming against Stephen, and oppressing the Inhabitants of Tropwen, for the Space of three whole Months.
 
 Samuel made also a League with the Buyers and Sellers, and Money-changers, that if they would destroy Stephen, Root and Branch, he would give unto them the Possessions of the Poor throughout all the Land of the Pumkinites.
 
