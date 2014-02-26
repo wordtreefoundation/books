@@ -28,6 +28,8 @@ end.sort_by do |status, books|
     '01'
   when /ocr only/i
     '02'
+  when /image only/i
+    '03'
   else
     status
   end

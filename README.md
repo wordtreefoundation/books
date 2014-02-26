@@ -35,6 +35,14 @@ OCR ONLY
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1819 (archive.org).md) (1819)
 - [True Relation of the Holy War](pseudo_biblical/True Relation of the Holy War - 1806.md) (1670 or so)
 
+IMAGE ONLY
+----------
+
+- [The Book of America](pseudo_biblical/The Book of America - 1766.md) (1766)
+- [The Book of Preferment](pseudo_biblical/The Book of Preferment - Horace Walpole - 1742.md) (1742)
+- [The First Book of the Chronicles of John](pseudo_biblical/The First Book of the Chronicles of John - 1812.md) (1812)
+- [The French Gasconade Defeated](pseudo_biblical/The French Gasconade Defeated - 1743.md) (1743)
+
 CLEAN+0
 -------
 
@@ -55,14 +63,6 @@ CLEAN+2
 -------
 
 - [The Book of Mormon](pseudo_biblical/Book of Mormon - Joseph Smith - 1830.md) (1830)
-
-IMAGE ONLY
-----------
-
-- [The Book of America](pseudo_biblical/The Book of America - 1766.md) (1766)
-- [The Book of Preferment](pseudo_biblical/The Book of Preferment - Horace Walpole - 1742.md) (1742)
-- [The First Book of the Chronicles of John](pseudo_biblical/The First Book of the Chronicles of John - 1812.md) (1812)
-- [The French Gasconade Defeated](pseudo_biblical/The French Gasconade Defeated - 1743.md) (1743)
 
 IN PROCESS
 ----------
