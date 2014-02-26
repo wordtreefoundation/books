@@ -53,7 +53,7 @@ CLEAN+1
 - [The American Revolution](pseudo_biblical/The American Revolution - Richard Snowden - 1802.md) (1766)
 - [1st Book of the Chronicle of the Kings of England](pseudo_biblical/The Chronicle of the Kings of England, 1st Book - Robert Dodsley - 1744.md) (1744)
 - [2nd Book of the Chronicle of the Kings of England](pseudo_biblical/The Chronicle of the Kings of England, 2nd Book - Robert Dodsley - 1744.md) (1744)
-- [The Fall of Samuel the Squomicutiti](pseudo_biblical/The Fall of Samuel the Squomicutite - 1763.md) (1763)
+- [The Fall of Samuel the Squomicutite](pseudo_biblical/The Fall of Samuel the Squomicutite - 1763.md) (1763)
 - [The First Book of the American Chronicles of the Times](pseudo_biblical/The First Book of the American Chronicles - John Leacock - 1775.md) (1775)
 - [The First Book of the Chronicles of John](pseudo_biblical/The First Book of the Chronicles of John - 1812.md) (1812)
 - [The French Gasconade Defeated](pseudo_biblical/The French Gasconade Defeated - 1743.md) (1743)
