@@ -1,5 +1,5 @@
 ---
-short_title: The Fall of Samuel the Squomicutiti
+short_title: The Fall of Samuel the Squomicutite
 author: Samuel Hopkins
 year: 1763
 place: Rhode Island
