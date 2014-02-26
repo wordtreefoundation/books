@@ -28,13 +28,6 @@ MISSING TEXT
 - [Chronicles of the Kings of England](pseudo_biblical/Chronicles of the Kings of England - 1773.md) (1773)
 - [Chronicles](pseudo_biblical/Chronicles, The Maryland Journal - 1766.md) (1766)
 
-OCR ONLY
---------
-
-- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1817 (archive.org).md) (1817)
-- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1819 (archive.org).md) (1819)
-- [True Relation of the Holy War](pseudo_biblical/True Relation of the Holy War - 1806.md) (1670 or so)
-
 IMAGE ONLY
 ----------
 
@@ -42,6 +35,13 @@ IMAGE ONLY
 - [The Book of Preferment](pseudo_biblical/The Book of Preferment - Horace Walpole - 1742.md) (1742)
 - [The First Book of the Chronicles of John](pseudo_biblical/The First Book of the Chronicles of John - 1812.md) (1812)
 - [The French Gasconade Defeated](pseudo_biblical/The French Gasconade Defeated - 1743.md) (1743)
+
+OCR ONLY
+--------
+
+- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1817 (archive.org).md) (1817)
+- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1819 (archive.org).md) (1819)
+- [True Relation of the Holy War](pseudo_biblical/True Relation of the Holy War - 1806.md) (1670 or so)
 
 CLEAN+0
 -------

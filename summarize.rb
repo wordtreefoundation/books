@@ -26,9 +26,9 @@ end.sort_by do |status, books|
   case status
   when /(missing|incomplete)/i
     '01'
-  when /ocr only/i
-    '02'
   when /image only/i
+    '02'
+  when /ocr only/i
     '03'
   else
     status
