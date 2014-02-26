@@ -4,7 +4,7 @@ require 'yaml'
 # update the README.md file and show a list of books there.
 
 books = Dir[File.join(File.dirname(__FILE__), 'pseudo_biblical', '*.md')].map do |file|
-  head = `head -200 '#{file}'`.encode( "UTF-8", "binary", :invalid => :replace, :undef => :replace)
+  head = `head -20 '#{file}'`.encode( "UTF-8", "binary", :invalid => :replace, :undef => :replace)
   begin
     YAML::load(head).tap do |hash|
       hash['file'] = file

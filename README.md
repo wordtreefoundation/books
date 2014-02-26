@@ -31,11 +31,13 @@ MISSING TEXT
 IMAGE ONLY
 ----------
 
+- [Chronicles of Andrew](pseudo_biblical/Chronicles of Andrew - Jesse Denson - 1815.md) (1815)
 - [The Book of Preferment](pseudo_biblical/The Book of Preferment - Horace Walpole - 1742.md) (1742)
 
 OCR ONLY
 --------
 
+- [Chronicles of Nathan Ben Saddi](pseudo_biblical/Chronicles of Nathan Ben Saddi - 1758.md) (1758)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1817 (archive.org).md) (1817)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1819 (archive.org).md) (1819)
 - [True Relation of the Holy War](pseudo_biblical/True Relation of the Holy War - 1806.md) (1670 or so)
