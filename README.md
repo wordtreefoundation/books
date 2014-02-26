@@ -28,7 +28,6 @@ MISSING TEXT
 - [Chronicles of the Kings of England](pseudo_biblical/Chronicles of the Kings of England - 1773.md) (1773)
 - [Chronicles](pseudo_biblical/Chronicles, The Maryland Journal - 1766.md) (1766)
 - [The Book of America](pseudo_biblical/The Book of America - 1766.md) (1766)
-- [The Conquest of Canaan](pseudo_biblical/The Conquest of Canaan - Timothy Dwight - 1785.md) (1785)
 - [The First Book of the Chronicles of John](pseudo_biblical/The First Book of the Chronicles of John - 1812.md) (1812)
 - [The First Chapter of the Book of Preferment](pseudo_biblical/The First Chapter of the Book of Preferment - Horace Walpole - 1742.md) (1742)
 - [The French Gasconade Defeated](pseudo_biblical/The French Gasconade Defeated - 1743.md) (1743)
@@ -36,7 +35,6 @@ MISSING TEXT
 OCR ONLY
 --------
 
-- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1816.md) (1816)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1817 (archive.org).md) (1817)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1819 (archive.org).md) (1819)
 - [True Relation of the Holy War](pseudo_biblical/True Relation of the Holy War - 1806.md) (1670 or so)
@@ -61,6 +59,11 @@ CLEAN+2
 
 - [The Book of Mormon](pseudo_biblical/Book of Mormon - Joseph Smith - 1830.md) (1830)
 
+IN PROCESS
+----------
+
+- [The Conquest of Canaan](pseudo_biblical/The Conquest of Canaan - Timothy Dwight - 1785.md) (1785)
+- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1816.md) (1816)
 
 
 FAQ

@@ -5,7 +5,7 @@ author: Gilbert J. Hunt
 year: 1816
 place: New York
 source: "https://archive.org/details/latewarbetween_00hunt"
-status: OCR ONLY
+status: IN PROCESS
 note: Manually corrected up to page 78.
 ---
 
