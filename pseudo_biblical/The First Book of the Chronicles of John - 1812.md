@@ -3,8 +3,8 @@ short_title: The First Book of the Chronicles of John
 author: 
 year: 1812
 place: 
-source: 
-status: MISSING TEXT
+source: "http://wordtree.org/cite/books/pseudo-biblical/1812-chronicles-of-john.pdf"
+status: IMAGE ONLY
 note: published in the Investigator, Oct. 30, 1812
 ---
 

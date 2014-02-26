@@ -1,10 +1,10 @@
 ---
-short_title: The First Chapter of the Book of Preferment
+short_title: The Book of Preferment
 author: Horace Walpole
 year: 1742
 place: 
 source: 
-status: MISSING TEXT
+status: IMAGE ONLY
 note: Letter from Horace Walpole to Horace Mann, July 14, 1742
 ---
 

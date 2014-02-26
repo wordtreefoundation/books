@@ -4,7 +4,7 @@ title: A True Relation of the Holy War, Made by King Shaddai Upon Diabolus, For 
 author: John Bunyan
 year: 1670 or so
 place: 
-source: https://archive.org/details/truerelationofho00buny
+source: "https://archive.org/details/truerelationofho00buny"
 status: OCR ONLY
 note: 
 ---

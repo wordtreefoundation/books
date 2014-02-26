@@ -3,7 +3,7 @@ short_title: The Fall of Samuel the Squomicutite ALT
 author: Samuel Hopkins
 year: 1763
 place: Rhode Island
-source: http://wordtree.org/cite/books/1763-squomicutite.pdf
+source: "http://wordtree.org/cite/books/pseudo-biblical/1763-squomicutite.pdf"
 status: CLEAN+0
 note: probably composed by Samuel Hopkins
 ---

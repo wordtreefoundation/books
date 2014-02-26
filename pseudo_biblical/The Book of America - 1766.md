@@ -3,8 +3,8 @@ short_title: The Book of America
 author: 
 year: 1766
 place: Boston, Massachusetts
-source: 
-status: MISSING TEXT
+source: "http://wordtree.org/cite/books/pseudo-biblical/1766-book-of-america.pdf"
+status: IMAGE ONLY
 note: published in Boston Gazette, May 12, 1766
 ---
 
