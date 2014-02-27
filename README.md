@@ -37,6 +37,7 @@ OCR ONLY
 --------
 
 - [Chronicles of Nathan Ben Saddi](pseudo_biblical/Chronicles of Nathan Ben Saddi - 1758.md) (1758)
+- [The Conquest of Canaan](pseudo_biblical/The Conquest of Canaan - Timothy Dwight - 1785.md) (1785)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1817 (archive.org).md) (1817)
 - [True Relation of the Holy War](pseudo_biblical/True Relation of the Holy War - 1806.md) (1670 or so)
 
@@ -69,7 +70,6 @@ IN PROCESS
 ----------
 
 - [Chronicles of Andrew](pseudo_biblical/Chronicles of Andrew - Jesse Denson - 1815.md) (1815)
-- [The Conquest of Canaan](pseudo_biblical/The Conquest of Canaan - Timothy Dwight - 1785.md) (1785)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1816.md) (1816)
 
 

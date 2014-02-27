@@ -4,7 +4,7 @@ author: Timothy Dwight
 year: 1785
 place: 
 source: https://archive.org/details/cocana00dwig
-status: IN PROCESS
+status: OCR ONLY
 note: 
 ---
 
