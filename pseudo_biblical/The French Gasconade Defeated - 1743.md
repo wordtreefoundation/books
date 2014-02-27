@@ -1,6 +1,6 @@
 ---
 short_title: The French Gasconade Defeated
-title: The French Gasconade defeated, and then swept out of Germany
+title: The French Gasconade defeated, and they swept out of Germany
 author: 
 year: 1743
 place: 
