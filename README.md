@@ -31,7 +31,6 @@ MISSING TEXT
 IMAGE ONLY
 ----------
 
-- [Chronicles of Andrew](pseudo_biblical/Chronicles of Andrew - Jesse Denson - 1815.md) (1815)
 - [The Book of Preferment](pseudo_biblical/The Book of Preferment - Horace Walpole - 1742.md) (1742)
 
 OCR ONLY
@@ -51,6 +50,7 @@ CLEAN+1
 
 - [Reformer Chronicles](pseudo_biblical/Reformer Chronicles - 1832.md) (1832)
 - [The American Revolution](pseudo_biblical/The American Revolution - Richard Snowden - 1802.md) (1766)
+- [The Book of America](pseudo_biblical/The Book of America - 1766.md) (1766)
 - [1st Book of the Chronicle of the Kings of England](pseudo_biblical/The Chronicle of the Kings of England, 1st Book - Robert Dodsley - 1744.md) (1744)
 - [2nd Book of the Chronicle of the Kings of England](pseudo_biblical/The Chronicle of the Kings of England, 2nd Book - Robert Dodsley - 1744.md) (1744)
 - [The Fall of Samuel the Squomicutite](pseudo_biblical/The Fall of Samuel the Squomicutite - 1763.md) (1763)
@@ -58,6 +58,7 @@ CLEAN+1
 - [The First Book of the Chronicles of John](pseudo_biblical/The First Book of the Chronicles of John - 1812.md) (1812)
 - [The French Gasconade Defeated](pseudo_biblical/The French Gasconade Defeated - 1743.md) (1743)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1819.md) (1819)
+- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - Mary.md) (1817 or 1819)
 
 CLEAN+2
 -------
@@ -67,7 +68,7 @@ CLEAN+2
 IN PROCESS
 ----------
 
-- [The Book of America](pseudo_biblical/The Book of America - 1766.md) (1766)
+- [Chronicles of Andrew](pseudo_biblical/Chronicles of Andrew - Jesse Denson - 1815.md) (1815)
 - [The Conquest of Canaan](pseudo_biblical/The Conquest of Canaan - Timothy Dwight - 1785.md) (1785)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1816.md) (1816)
 

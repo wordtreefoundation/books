@@ -5,6 +5,6 @@ author: Jesse Denson, D. D.
 year: 1815
 place: Lexington, KY
 source: "http://wordtree.org/cite/books/pseudo-biblical/1815-chronicles-of-andrew.pdf"
-status: IMAGE ONLY
+status: IN PROCESS
 note: 
 ---
