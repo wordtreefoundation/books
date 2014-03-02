@@ -44,10 +44,12 @@ CLEAN+0
 -------
 
 - [The Fall of Samuel the Squomicutite ALT](pseudo_biblical/The Fall of Samuel the Squomicutite ALT - 1763.md) (1763)
+- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1816.md) (1816)
 
 CLEAN+1
 -------
 
+- [Chronicles of Nathan Ben Saddi](pseudo_biblical/Chronicles of Nathan Ben Saddi - 1758.md) (1758)
 - [Reformer Chronicles](pseudo_biblical/Reformer Chronicles - 1832.md) (1832)
 - [The American Revolution](pseudo_biblical/The American Revolution - Richard Snowden - 1802.md) (1766)
 - [The Book of America](pseudo_biblical/The Book of America - 1766.md) (1766)
@@ -58,7 +60,6 @@ CLEAN+1
 - [The First Book of the Chronicles of John](pseudo_biblical/The First Book of the Chronicles of John - 1812.md) (1812)
 - [The French Gasconade Defeated](pseudo_biblical/The French Gasconade Defeated - 1743.md) (1743)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1819.md) (1819)
-- [Chronicles of Nathan Ben Saddi](pseudo_biblical/Chronicles of Nathan Ben Saddi - 1758.md) (1758)
 
 CLEAN+2
 -------
@@ -69,8 +70,6 @@ IN PROCESS
 ----------
 
 - [Chronicles of Andrew](pseudo_biblical/Chronicles of Andrew - Jesse Denson - 1815.md) (1815)
-- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1816.md) (1816)
-
 
 FAQ
 ===
