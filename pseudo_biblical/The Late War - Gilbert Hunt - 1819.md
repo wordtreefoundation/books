@@ -5,8 +5,8 @@ author: Gilbert J. Hunt
 year: 1819
 place: New York
 source: "https://archive.org/details/historicalreader00huntgil"
-status: CLEAN+1
-note: 
+status: CLEAN+0
+note: Table of Contents is from 1816 edition, needs to be corrected.
 ---
 
 THE

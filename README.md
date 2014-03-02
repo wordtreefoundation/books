@@ -45,6 +45,7 @@ CLEAN+0
 
 - [The Fall of Samuel the Squomicutite ALT](pseudo_biblical/The Fall of Samuel the Squomicutite ALT - 1763.md) (1763)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1816.md) (1816)
+- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1819.md) (1819)
 
 CLEAN+1
 -------
@@ -59,7 +60,6 @@ CLEAN+1
 - [The First Book of the American Chronicles of the Times](pseudo_biblical/The First Book of the American Chronicles - John Leacock - 1775.md) (1775)
 - [The First Book of the Chronicles of John](pseudo_biblical/The First Book of the Chronicles of John - 1812.md) (1812)
 - [The French Gasconade Defeated](pseudo_biblical/The French Gasconade Defeated - 1743.md) (1743)
-- [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1819.md) (1819)
 
 CLEAN+2
 -------
