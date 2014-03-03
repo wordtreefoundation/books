@@ -598,7 +598,7 @@ NOW it was known throughout the land of Columbia that war was declared ! against
 
 CHAP. VII.
 
-Hulls expedition--surrender of his army and the whole Michigan Territory--his trial and pardon by the President--capture of Michilimackinack.
+Hull's expedition--surrender of his army and the whole Michigan Territory--his trial and pardon by the President--capture of Michilimackinack.
 
 NOW the host of the king were few in numbers, nevertheless, they came in battle array against the strong hold of William.
 
@@ -616,7 +616,9 @@ NOW the host of the king were few in numbers, nevertheless, they came in battle 
 
 8 And they fain would have done violence unto William, that they might have been enabled to pour forth their thunders against the approaching host of Britain which he had forbidden to be done.
 
-9 Moreover, the names of these valiant men, who were compelled to weep before the cowardice of William, are they not recorded in the bosom of every friend of Columbian liberty.
+9 Moreover, the names of these valiant men, who were compelled to weep before the cowardice of William, are they not recorded in the bosom of every friend of Columbian liberty.*
+
+* Miller, Cass, McArthur, Brush, Findley, &c.
 
 10 And it was about the sixteenth of the eighth month when the servants of the king appeared before the strong hold of Detroit.
 

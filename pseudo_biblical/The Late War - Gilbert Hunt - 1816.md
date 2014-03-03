@@ -599,13 +599,13 @@ NOW it was known throughout the land of Columbia that war was declared against t
 
 [38]
 
-10 And he eneamped his men round about the town of Sandwich in the province of the king.
+10 And he encamped his men round about the town of Sandwich in the province of the king.
 
 11 From this place, he sent forth a Proclamation, which the great Sanhedrim had prepared for him ; and the wisdom thereof appeareth even unto this day.
 
 12 But if a man's ass falleth into a ditch, shall the master suffer thereby ? if injury can be prevented, shall we not rather with our might endeavor to help him ?
 
-13 Now in the proclamation which Hull published abroad, he invited the people of the province of Canada to join themselves to the host of Columbia, who were come to drive the servants ol the king from their borders.
+13 Now in the proclamation which Hull published abroad, he invited the people of the province of Canada to join themselves to the host of Columbia, who were come to drive the servants of the king from their borders.
 
 14 And it came to pass, that a great multitude flocked to the banners of the great Sanhedrim.
 
@@ -615,8 +615,7 @@ NOW it was known throughout the land of Columbia that war was declared against t
 
 [39]
 
-17 And when the husbandmen of the pro-
-vince of Canada, who had joined the standard of Columbia, learned those things, they wept bitterly ; for they were left behind.
+17 And when the husbandmen of the province of Canada, who had joined the standard of Columbia, learned those things, they wept bitterly ; for they were left behind.
 
 18 After this William secured himself in the strong hold of Detroit ; and the eyes of the men and the women of Columbia were fixed upon him.
 
@@ -644,14 +643,15 @@ NOW the host of the king were few in numbers ; nevertheless, they came in battle
 
 7 So the officers communed one with another touching the thing: but they wist not what to do.*
 
+* The officers present were not sufficiently numerous to warrant any opposition to the weakness of the general.
+
 8 And they fain would have done violence unto William, that they might have been enabled to pour forth their thunders against the approaching host of Britain ; which he had forbidden to be done.
 
-9 Moreover, the names of these valiant men, who were compelled to weep before the cowardice of William, are they not recorded in the bosom of every friend of Columbian liberty ?**
+9 Moreover, the names of these valiant men, who were compelled to weep before the cowardice of William, are they not recorded in the bosom of every friend of Columbian liberty ?*
+
+* Miller, Cass, McArthur, Brush, Findley, &c.
 
 10 And it was about the sixteenth of the eighth month when the servants of the king appeared before the strong hold of Detroit.
-
-* The officers present were not sufficiently numerous to warrant any opposition to th eweakness of the general.
-** Miller, Cass, McArthur, Bruch, Findley, &c.
 
 [42]
 
