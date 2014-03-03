@@ -336,7 +336,7 @@ NOW it came to pass, in the one thousand eight hundred and twelfth year of the C
 
 11 Inasmuch as they robbed the ships of Columbia of the Strong men that wrought therein, and took them for their own use, even as a man taketh his ox or his ass.
 
-12 Inasmuch as they kept the men stolen from the ships cf Columbia in bondage many years, and caused them to fight the battles of the king, even against their own brethren ! neither gave they unto them silver or gold, but many stripes.
+12 Inasmuch as they kept the men stolen from the ships of Columbia in bondage many years, and caused them to fight the battles of the king, even against their own brethren ! neither gave they unto them silver or gold, but many stripes.
 
 13 Now the men of Columbia were not like unto the men of Britain ; for their backs were not hardened unto the whip, as were the servants of the king ; therefore they murmured, and their murmurings have been heard.
 
@@ -478,7 +478,7 @@ John Henry--Elijah Parish.
 
 LET the children of Columbia beware of false prophets which come in sheep's clothing ; for it is written, Ye shall know them by their fruits.
 
-2 Now it came to pass, that a certain man, whose sirname was Henry, came before James, the chief governor, and opened his mouth, and spake unto him, saying,
+2 Now it came to pass, that a certain man, whose sir-name was Henry, came before James, the chief governor, and opened his mouth, and spake unto him, saying,
 
 3 Lo ! If thou wilt give unto me two score and ten thousand pieces of silver, then will I unfold unto thee the witchcraft of Britain, that thereby thy nation may not be caught in her snares.
 
@@ -510,11 +510,15 @@ LET the children of Columbia beware of false prophets which come in sheep's clot
 
 CHAP. V.
 
-American Army--Militia--Navy--British, Navy--Rodgcrs' first Cruise--Capture of the U. S. brig Nautilus--removal of aliens beyond tide-water,
+American Army--Militia--Navy--British, Navy--Rodgcrs' first Cruise--Capture of the U. S. brig Nautilus--removal of aliens beyond tide-water.
 
-THE whole host of the people of Columbia, who bad been trained to war, being numbered, was about seven thousand fighting men.
+THE whole host of the people of Columbia, who bad been trained to war, being numbered, was about seven thousand fighting men.*
 
-2 Neither were they assembled together ; but they were extended from the north to the south, about three thousand miles.
+* Standing army.
+
+2 Neither were they assembled together ; but they were extended from the north to the south, about three thousand miles.*
+
+* From District of Maine to Mobile Bay and New-Orleans.
 
 3 But the husbandmen, who lived under their own fig-trees, and lifted the arm in defence of their own homes, were more than seven hundred thousand, all mighty men of valor.
 
@@ -530,13 +534,13 @@ THE whole host of the people of Columbia, who bad been trained to war, being num
 
 9 Sailed towards the island of Britain, and went nigh unto it, and captured numbers of the vessels of the people of Britain, in their own waters ; after which she returned in safety to the land of Columbia.
 
-10 And the people gave much praise to Rodgers, for it was a cunning thing ; inasmuch as he saved many ships that were richly laden, so that they fell not into the hands of the people, of Britain.
+10 And the people gave much praise to Rodgers, for it was a cunning thing ; inasmuch as he saved many ships that were richly laden, so that they fell not into the hands of the people of Britain.
 
-11 Moreover, it happened about the fifteenth day of the seventh month, in the same year in which the decree of the great Sanhedrim was issued, that a certain vessel of the states of Columbia was environed round about by a multitude of the ships of the king. ;
+11 Moreover, it happened about the fifteenth day of the seventh month, in the same year in which the decree of the great Sanhedrim was issued, that a certain vessel of the states of Columbia was environed round about by a multitude of the ships of the king.
 
 12 And the captain thereof was straitened, and he looked around him and strove to escape :
 
-13 But he was entrapped and fell a prey to the vessels" of the king ; howbeit, the captain, whose name was Crane, tarnished not his honor thereby.
+13 But he was entrapped and fell a prey to the vessels of the king ; howbeit, the captain, whose name was Crane, tarnished not his honor thereby.
 
 14 And the name of the vessel of the United States was called Nautilus.
 
@@ -546,21 +550,27 @@ THE whole host of the people of Columbia, who bad been trained to war, being num
 
 CHAP VI
 
-Hulls expedition--he enters Canada, and encamps at Sandwich--issues his Proclamation--retreats to Detroit,
+Hulls expedition--he enters Canada, and encamps at Sandwich--issues his Proclamation--retreats to Detroit.
 
-NOW it was known throughout the land of Columbia that war was declared ! against the kingdom cf Britain.
+NOW it was known throughout the land of Columbia that war was declared ! against the kingdom of Britain.
 
 2 And to a certain chief captain called William, whose sir-name was Hull, was given in trust a band of more than two thousand chosen men, to go forth to battle in the north.
 
 3 Now Hull was a man well stricken in years, and he had been a captain in the host of Columbia, in the days that tried men's souls ; even in the days of Washington.
 
-4 Therefore, when he appeared in the presence of the great Sanhedrim, they were pleased with his countenance, and put much faith in him.
+4 Therefore, when he appeared in the presence of the great Sanhedrim, they were pleased with his countenance, and put much faith in him.*
 
-5 Moreover, he was a governor in the north, and a man of great wealth.
+* Gen. Hull had been to Washington and obtained an appointment previous to the war.
+
+5 Moreover, he was a governor in the north,* and a man of great wealth.
+
+* Michigan territory.
 
 6 And when he arrived with his army hard by the Miami of the Lakes, he gat him a vessel and placed therein those things which were appertaining unto the preservation of the lives of the sick and the maimed.
 
-7 But, in an evil hour, the vessel was ensnared, near unto a strong hold, beside a river called in the language of the Gauls, Detroit.
+7 But, in an evil hour, the vessel was ensnared, near unto a strong hold,* beside a river called in the language of the Gauls, Detroit.
+
+* Malden,
 
 8 And the army of Columbia suffered much thereby.
 
@@ -886,7 +896,7 @@ AFTER these things, on the same day in which the letter was written, Stephen res
 
 CHAP. XII.
 
-Capture of the British sloop cf war Frolic, of 22 guns, by the United States' sloop of war Wasp, of 18 guns.
+Capture of the British sloop of war Frolic, of 22 guns, by the United States' sloop of war Wasp, of 18 guns.
 
 NOW the strong ships of war of the kingdom of Great Britain were spread over the whole face of the waters of the ocean.
 
@@ -2342,7 +2352,7 @@ NOW it came to pass, while these things were going on in the north, and the repe
 
 7 And they captured the place ; and with the fury of demons they murdered, with the tomahawk, the men, the women, and the infants that were in and about the fort, sparing neither age nor sex ; and slaying the prisoners that begged for mercy.
 
-8 And the number of the people cf Columbia that were massacred and burnt alive in their houses, that day, was about four hundred ; however, there were an hundred savages slain.
+8 And the number of the people of Columbia that were massacred and burnt alive in their houses, that day, was about four hundred ; however, there were an hundred savages slain.
 
 9 For it was a sore fight ; and Beasly, who commanded the fort, fought hard against them ; howbeit, he was slain.
 
@@ -2444,7 +2454,7 @@ NOTWITHSTANDING their discomfiture, the nation of the Creeks were still bent on 
 
 30 Moreover, about the first day of the sixth month, a brave man, whose name was Pearson, with the husbandmen of the states of North and South Carolina,, went against them along the borders of the Alabama, and captured about six hundred of them.
 
-31 Thus did the men cf Columbia triumph over them, and conquer them, even to. the seventh time.
+31 Thus did the men of Columbia triumph over them, and conquer them, even to. the seventh time.
 
 32 And so the judgment of the Lord fell upon them- for their unrighteousness, and for their wicked and murderous deed's.
 
@@ -2582,7 +2592,7 @@ NOW whilst the great lakes and rivers were bound in fetters of ice, and the arms
 
 3 Lo ! new scenes of warfare appeared upon the waters of the great deep.
 
-4 In the first year of the war David, whose sir-name was Porter, sailed from the shores of Columbia towards the south, that he might capture the vessels cf  the men of Britain.
+4 In the first year of the war David, whose sir-name was Porter, sailed from the shores of Columbia towards the south, that he might capture the vessels of the men of Britain.
 
 5 And the ship which he commanded was one of the strong vessels of Columbia, called the Essex.
 
@@ -2860,7 +2870,7 @@ Assault on Fort Erie, by the British, under Gen. Drummond--Gen. Brown resumes hi
 
 24 Daring these circumstances, it happened that the brave M' Arthur, who had remained at the strong hold of Detroit, to defend it,
 
-25 Moved his army towards Burlington Heights, and went more than an hundred miles into the province cf Canada.
+25 Moved his army towards Burlington Heights, and went more than an hundred miles into the province of Canada.
 
 26 And the men of Columbia that went with him were valiant men. from the states of Kentucky and Ohio in number about eight hundred.
 
@@ -3518,7 +3528,7 @@ STILL there was no peace, and the evils of war continued on the face of the deep
 
 6 Ten days after which the steam frigate, Fulton the First, was launched forth into the waters at New- York,
 
-7 And it came to pass, on the fifteenth day of the first month of the next year, that one of the tall ships of Columbia fell into the hands cf the servants of the king ;
+7 And it came to pass, on the fifteenth day of the first month of the next year, that one of the tall ships of Columbia fell into the hands of the servants of the king ;
 
 8 And she was called the President, after the title of the chief magistrate of the land of Columbia ; moreover, she was commanded by the gallant Decatur,
 

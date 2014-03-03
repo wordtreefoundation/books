@@ -515,15 +515,15 @@ American Army--Militia--Navy--British Navy-- Rogers' first Cruise--capture of th
 
 THE whole host of the people of Columbia, who had been trained to war, being numbered, was about seven thousand fighting men.*
 
-2 Neither were they assembled together ; but they were extended from the north to the south, about three thousand miles.**
+* Standing army.
+
+2 Neither were they assembled together ; but they were extended from the north to the south, about three thousand miles.*
+
+* From District of Maine to Mobile bay and New-Orleans.
 
 3 But the husbandmen, who lived under their own fig-tree, and lifted the arm in defence of their own homes, were more than seven hundred thousand, all mighty men of valor.
 
 4 Now the armies of the king of Britain, are they not numbered and written in the book of Hume, the scribe ? is not their name a terror to all nations ?
-
-* Standing army.
-
-** From District of Maine to Mobile bay and New-Orleans.
 
 [33]
 
@@ -535,13 +535,13 @@ THE whole host of the people of Columbia, who had been trained to war, being num
 
 8 Nevertheless, it came to pass, that about this time a strong ship of the United Slates, called the President, commanded by a skillful man whose name was Rogers,*
 
-9 Sailed towards the island of Britain, and went nigh unto it, and made captive numbers of the vessels of the people of Britain, in their own waters ; after which she returned in safety to the land of Columbia.
-
 * Com. Rogers.
+
+9 Sailed towards the island of Britain, and went nigh unto it, and made captive numbers of the vessels of the people of Britain, in their own waters ; after which she returned in safety to the land of Columbia.
 
 [34]
 
-10 And the people gave much praise to Kogers, for it was a cunYiing thing ; inasmuch as he saved many ships that were richly laden, so that they fell not into the hands of the people of Britain.
+10 And the people gave much praise to Rogers, for it was a cunning thing ; inasmuch as he saved many ships that were richly laden, so that they fell not into the hands of the people of Britain.
 
 11 Moreover, it happened about the fifteenth day of the seventh month, in the same year in which the decree of the great Sanhedrim was issued, that a certain vessel of the states of Columbia was environed round about by a multitude of the ships of the king ;
 
@@ -573,27 +573,29 @@ NOW it was known throughout the land of Columbia that war was declared against t
 
 2 And to a certain chief captain called William, whose sur-name was Hull, was given in trust a band of more than two thousand chosen men, to go forth to battle in the north.*
 
-3 Now Hull was a man well stricken in years, and he had been a captain in the host of Columbia, in the days that tried men's souls ; even in the days of Washington.
-
 * Canada.
+
+3 Now Hull was a man well stricken in years, and he had been a captain in the host of Columbia, in the days that tried men's souls ; even in the days of Washington.
 
 [37]
 
 4 Therefore, when he appeared in the presence of the great Sanhedrim,* they were pleased with his countenance, and put much faith in him.
 
-5 Moreover, he was a governor in the north, ** and a man of great wealth.
+* Gen. Hull had been to Washington and obtained an appointment previous to the war.
+
+5 Moreover, he was a governor in the north,* and a man of great wealth.
+
+* Michigan territory.
 
 6 And, now when he arrived with his army hard by the Miami of the Lakes, he gat him a vessel and placed therein those things which were appertaining unto the preservation of the lives of the sick and the maimed.
 
-7 But, in an evil hour, the vessel was ensnared, near unto a strong hold,*** beside a river, called in the language of the Gauls, Detroit.
+7 But, in an evil hour, the vessel was ensnared, near unto a strong hold,* beside a river, called in the language of the Gauls, Detroit.
+
+* Malden.
 
 8 And the army of the provinces of Columbia suffered much thereby.
 
 9 Nevertheless, on the twelfth of the seventh month, about the fourth watch of the night, William with his whole host crossed the river which is called Detroit.
-
-* Gen. Hull had been to Washington and obtained an appointment previous to the war.
-** Michigan territory.
-*** Maldera.
 
 [38]
 
