@@ -302,16 +302,20 @@ UNITED STATES AND GREAT BRITAIN,
 
 From 1812 to 1815
 
-
+[BEGIN]
 CHAP. I.
 
 President's Message--Causes of the War--Energetic Measures proposed. 
 
-NOW it came to pass, in the one thousand eight handled and twelfth year of the Christian era, and in the thirty and sixth year after the people of the provinces of Columbia bad declared themselves a free and independent nation ; 
+NOW it came to pass, in the one thousand eight hundred and twelfth year of the Christian era, and in the thirty and sixth year after the people of the provinces of Columbia had declared themselves a free and independent nation ; 
 
 2 That in the sixth month of the same year, on the first day of the month, the chief Governor, whom the people had chosen to rule over the land of Columbia; 
 
-3 Even James, whose sir-name was Madison, delivered a written paper to the Great Sanhedrim of the people, who were assembled together. 
+3 Even James, whose sir-name was Madison, delivered a written paper* to the Great Sanhedrim** of the people, who were assembled together. 
+
+* President's Manifesto.
+
+** Congress.
 
 4 And the name of the city where the people were gathered together was called after the name of the chief captain of the land of Columbia, whose fame extendeth to the uttermost parts of the earth ; albeit, he had slept with his fathers. 
 
@@ -3928,13 +3932,10 @@ IN the mean time, it had come to pass, that lest the fleet of Decatur should not
 
 10 For the number of Christian slaves which Exmouth bought of the barbarians, was about five hundred. 
 
-11I Therefore the fleet of Britain succeeded not, as did the fleet of Decatur. 
+11 Therefore the fleet of Britain succeeded not, as did the fleet of Decatur. 
 
 12 Thus, in this thing, did the lords of Britain strive to snatch the laurel from the brow of Columbia ; 
 
 13 But her valiant sons had entwined the wreath of glory ; and the scribes of this day shall record it, in ever-living characters, on the pyramid of fame. 
 
-
-
-
-
+[END]
