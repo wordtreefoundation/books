@@ -632,17 +632,19 @@ NOW the host of the king were few in numbers, nevertheless, they came in battle 
 
 16 Moreover, the cowardice of his heart caused him to make a league with the servants of the king, in the which he gave unto them the whole territory over which the people had entrusted him to preside ; notwithstanding it appertained not unto him.
 
-17 And the balls of solid iron, and the black dust,and the destroying engines became a prey unto the men of Britain.
+17 And the balls of solid iron, and the black dust, and the destroying engines became a prey unto the men of Britain.
 
-18 Now there had followed after William a band of brave men from the west, and the name of their captain is Brush ; and he had in trust "the bread and the wine which were to refresh the army of Columbia.
+18 Now there had followed after William a band of brave men from the west, and the name of their captain is Brush ; and he had in trust the bread and the wine which were to refresh the army of Columbia.
 
 19 And, lest they should fall into the hands of the savages, a captain, whose name was Vanhorn, was ordered to go forth and meet him.
 
 20 And the band that went forth, were entrapped at Brownstown, by the cunning savages, that laid wait for them ; and the killed and the wounded of Columbia, were about two score.
 
-21 And again there were sent from the camp of William more than five hunched men to go to the aid of Brush.
+21 And again there were sent from the camp of William more than five hundred men to go to the aid of Brush.
 
-22 And the name of the chief captain thereof, was Miller ; and the captain whom he ordered to go before him was called Snelling.
+22 And the name of the chief captain thereof, was Miller ; and the captain whom he ordered to go before him was called Snelling.*
+
+* Col. Miller and Col. Snelling.
 
 23 Now Snelling was a valiant man, and strove hard against the men of Britain, and the savages 3 even until Miller the chief captain arrived.
 
@@ -656,7 +658,9 @@ NOW the host of the king were few in numbers, nevertheless, they came in battle 
 
 28 Nevertheless, in the league which William had made, he had included Miller, and all the brave captains and he men of war of Columbia that were nigh the place.
 
-29 Now, therefore, whether it was cowardice outright, in William, or whether he became treacherous for filthy lucre's sake, appeareth not unto the scribe2.
+29 Now, therefore, whether it was cowardice outright, in William, or whether he became treacherous for filthy lucre's sake, appeareth not unto the scribe.*
+
+* To palliate Hull's conduct, it has been urged that he surrendered his army to prevent the effusion of blood : but let us ask those charitable palliators what they would have said of Gen. Jackson, if, when a mighty and a blood-thirsty enemy appeared before his battlements, in quest of beauty and booty, he had given up N. Orleans and ceded the Louisiana territory to him ? or of the gallant Croghan, when left to defent fort Stephenson with a handful of men and a single six pounder ?--These palliators might even have wished that the heroes of Erie and Champlain had felt the same qualms of conscience :--but they ought to know that it was such noble deeds that stopt the "effusion of blood."
 
 30 But the effect thereof to the nation, was as a man having a millstone cast about his neck.
 
