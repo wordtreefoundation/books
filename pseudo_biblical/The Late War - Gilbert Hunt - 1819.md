@@ -670,7 +670,9 @@ NOW the host of the king were few in numbers, nevertheless, they came in battle 
 
 33 And he was examined before the lawful tribunal of his country ; and they were all valiant warriors and chief captains in the land of Columbia.
 
-34 Howbeit, when the council had weighed well the matter, they declared him guilty of treason, and that he should suffer death.
+34 Howbeit, when the council* had weighed well the matter, they declared him guilty of treason, and that he should suffer death.
+
+* Court-Martial.
 
 35 Nevertheless, they recommended him to the mercy of James, the chief governor of the land of Columbia,
 
@@ -684,9 +686,13 @@ NOW the host of the king were few in numbers, nevertheless, they came in battle 
 
 40 And although, as my soul hopeth for mercy, for this thing William shall not surely die ; yet his name shall be blotted out from the list of the brave.
 
-41 Notwithstanding this, William thanked him not, but added insult to cowardice.
+41 Notwithstanding this, William thanked him not, but added insult to cowardice.*
 
-42 So William was ordered to depart to the land which lieth in the east, where he remaineth unto this day : and his name shall be no more spoken of with reverence amongst men.
+* Hull's address to the public.
+
+42 So William was ordered to depart to the land which lieth in the east,* where he remaineth unto this day : and his name shall be no more spoken of with reverence amongst men.
+
+* Massachusetts.
 
 43 Moreover, there was another evil which fell upon the people of the United States, about the time the host of Columbia crossed the river Detroit.
 
@@ -698,13 +704,15 @@ NOW the host of the king were few in numbers, nevertheless, they came in battle 
 
 CHAP. VIII.
 
-Capture of the British frigate Guerriere., by the United State's frigate Constitution, captain Hull--capture of the Alert sloop of war, by the Essex, captain Porter.
+Capture of the British frigate Guerriere, by the United State's frigate Constitution, captain Hull--capture of the Alert sloop of war, by the Essex, captain Porter.
 
-NOW it came to pass, on the nineteenth day of the eighth month, that one of the tall ships of Columbia, called the Constitution, commanded by Isaac, whose surname was Hull,
+NOW it came to pass, on the nineteenth day of the eighth month, that one of the tall ships of Columbia, called the Constitution, commanded by Isaac, whose sir-name was Hull,
 
 2 Having spread her white wings on the bosom of the mighty deep, beheld from afar one of the fighting ships of Britain bearing the royal cross.
 
-3 And the name of the ship was called, in the language of the French, Guerriere, which signifieth a warrior, and Dacres was the captain thereof.
+3 And the name of the ship was called, in the language of the French, Guerriere,* which signifieth a warrior, and Dacres was the captain thereof.
+
+* The Guerriere was taken from the French by the British.
 
 4 Now when Dacres beheld the ship of Columbia his eyes sparkled with joy, for he had defied the vessels of Columbia.
 
@@ -714,13 +722,13 @@ NOW it came to pass, on the nineteenth day of the eighth month, that one of the 
 
 7 And the yawning deep shall open its mouth to receive the enemies of the king.
 
-8 And the men of. Dacres shouted aloud, and drank of the strong waters of Jamaica, which make men mad moreover, they mixed the black dust therewith.
+8 And the men of Dacres shouted aloud, and drank of the strong waters of Jamaica, which make men mad moreover, they mixed the black dust therewith.
 
 9 Now when Isaac drew nigh unto the king's ship, the warriors of Columbia shouted.
 
 10 And Isaac bore down upon the strong ship of the king.
 
-11 About this time they put the lighted match to the-, black dust of the destroying engines, and it was like unto a clap of thunder.
+11 About this time they put the lighted match to the black dust of the destroying engines, and it was like unto a clap of thunder.
 
 12 Moreover, the fire and smoke issued out of the mouths of the engines in abundance, so as to darken the air, and they were overshadowed by the means thereof.
 
@@ -744,7 +752,7 @@ NOW it came to pass, on the nineteenth day of the eighth month, that one of the 
 
 22 But when the lords and counsellors of Britain heard those things, they believed them not ; it was as the bitterness of gall to their souls : for the pride of Britain was, fixed upon her navy ; it was the apple of her eye.
 
-23 Now, as one evil followeth after another to the sons of men, so it happened that, in the same month, a certain strong ship of the United States, even the Es- \n search of the vessels of the king, on the waters of the ocean.
+23 Now, as one evil followeth after another to the sons of men, so it happened that, in the same month, a certain strong ship of the United States, even the Essex, the name of the captain whereof was Porter, sailed in search of the vessels of the king, on the waters of the ocean.
 
 24 And in process of time, she fell upon one of the ships of Britain, called the Alert, and made spoil thereof to the people of Columbia.
 
@@ -766,7 +774,7 @@ NOW the movements of the enemy were as the motion of a whirlwind, which passeth 
 
 7 And when the vessels of the king were hard by, a certain captain, whose name was Woolsey, set one of the engines to work.
 
-8 And the vessels of the king also opened the mouths pf their engines, and shot into the camp of Columbia.
+8 And the vessels of the king also opened the mouths of their engines, and shot into the camp of Columbia.
 
 9 And the number of the husbandmen of the United States that flocked to the defence of the Harbour was about three thousand.
 
@@ -794,13 +802,15 @@ NOW the movements of the enemy were as the motion of a whirlwind, which passeth 
 
 21 And he departed with them from Niagara towards the strong hold of Erie, even in the dead of the night.
 
-22 And he cams unaware upon the two vessels which were covenanted to the king, with the army At Detroit.
+22 And he came unaware upon the two vessels which were covenanted to the king, with the army At Detroit.
 
 23 And the names of the vessels were the Adams and the Caledonia, and Elliot captured them the same night.
 
 24 However, the next day, as Elliot and his men were returning with their prizes, the men of Britain, who were upon the other shore, let the destroying engines loose upon them from their strong hold ;
 
 25 And a few of the people of Columbia were slain. It was here the valiant Cuyler* fell ; a ball of heavy metal struck him as he was coming on a fleet horse to- wards the water's edge.
+
+* Major Cuyler of N. Jersey.
 
 26 Now, Cuyler was a man well beloved ; and the officers and men of Columbia grieved for him many days.
 
@@ -816,7 +826,9 @@ AND it came to pass, on the morning of the thirteenth day of the tenth month,
 
 4 And the noise of the waters of the river is louder than the roaring of the forest ; yea, it is like unto the rushing of mighty armies to battle.
 
-5 And the movement of the stupendous falls there- of bringeth the people from all parts of the earth to be- hold it.
+5 And the movement of the stupendous falls there- of bringeth the people from all parts of the earth to be- hold it.*
+
+* Niagara Falls.
 
 6 So Stephen gat his soldiers into the boats that were prepared for them, and they moved upon the rough waters of the river, towards the strong hold of Queens- town.
 
@@ -824,7 +836,9 @@ AND it came to pass, on the morning of the thirteenth day of the tenth month,
 
 8 Nevertheless, they persevered ; although the strength of the waters, which were ungovernable, separated the army.
 
-9 However, Solomon,t a captain and a kinsman of Stephen, reached the shore with the men under his command, in all about two hundred.
+9 However, Solomon,* a captain and a kinsman of Stephen, reached the shore with the men under his command, in all about two hundred.
+
+* Col. Solomon Van Rensselaer.
 
 10 And he put the army in battle array, in a valley, and moved up towards the strong hold ; and Brock was the chief captain of the host of Britain.
 
@@ -844,7 +858,9 @@ AND it came to pass, on the morning of the thirteenth day of the tenth month,
 
 18 And that day there fell of the servants of the king many valiant men, even those who were called Invincibles, and had gained great honour in Egypt.
 
-19 Nevertheless, the same day a mighty host of savages and soldiers of the king, came forth again to battle, and rushed upon the people of the United States, and drove them from the strong hold of Queenstown.
+19 Nevertheless, the same day a mighty host of savages and soldiers of the king,* came forth again to battle, and rushed upon the people of the United States, and drove them from the strong hold of Queenstown.
+
+* Reinforcements from Fort George and Chippawa.
 
 20 For, lo ! Stephen, the chief captain, could not prevail on the hosts of militia on the other side of the river to cross over.
 
@@ -858,11 +874,13 @@ AND it came to pass, on the morning of the thirteenth day of the tenth month,
 
 25 And the prisoners that fell into the hands of the king, were about seven hundred.
 
-26 Nevertheless, in a letter which Stephen sent to Henry, the chief captain of the army of the north, he gave great honor unto the captains who fought under him that day.
+26 Nevertheless, in a letter which Stephen sent to Henry,* the chief captain of the army of the north, he gave great honor unto the captains who fought under him that day.
+
+* Maj. Gen. Dearborn.
 
 27 And the names of the valiant men, who distinguished themselves in the battle, were Wadsworth, Van Rensselaer, Scott, Chrystie, Fenwick, Fink, Gibson, and many other brave men of war.
 
-CHAP- XI.
+CHAP. XI.
 
 Gen. Smyth, succeeds Gen. Van Rensselaer--his attempt to cross the Niagara, and failure--causes.
 
@@ -1892,7 +1910,7 @@ AND it came to pass, on the fourth day of the seventh month, which is the birth 
 
 23 And their eyes were opened, and they saw the evil and wickedness of Britain.
 
-24 So their chiefs and their counsellors rose up and made war against the province of Canada, and fought against the hired savages of the king pf Britain.
+24 So their chiefs and their counsellors rose up and made war against the province of Canada, and fought against the hired savages of the king of Britain.
 
 25 But in all their acts they suffered not the spirit of barbarians to rule over them.
 

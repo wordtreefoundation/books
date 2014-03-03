@@ -715,11 +715,11 @@ NOW the host of the king were few in numbers ; nevertheless, they came in battle
 
 34 Howbeit, when the council* had weighed well the matter, they declared him guilty, and ordered that he should suffer death.
 
+* Court-martial.
+
 35 Nevertheless, they recommended him to the mercy of James, the chief governor of the land of Columbia.
 
 36 Saying, Lo ! the wickedness of the man appeareth unto us as the noon day ;
-
-* Court-martial.
 
 [46]
 
@@ -729,17 +729,17 @@ NOW the host of the king were few in numbers ; nevertheless, they came in battle
 
 39 And he said, Lo ! ye have done that which seemeth right unto me.
 
-40 Nevertheless, as my soul hopeth for mercy, for this thing William shall not surely die ; but his name shall be blotted out from ihe list of the brave.
+40 Nevertheless, as my soul hopeth for mercy, for this thing William shall not surely die ; but his name shall be blotted out from the list of the brave.
 
 41 For it appeareth unto me that he was possessed of an evil spirit, and wist not what he did.
 
-42 Not withstanding this, William thanked him not, but added insult to cowardice.*
-
-43 So William was ordered to depart to the land which lieth in the east,** where he remaineth unto this day ; and his name shall be no more spoken of with reverence
-amongst men.
+42 Notwithstanding this, William thanked him not, but added insult to cowardice.*
 
 * Hull's address to the public.
-** Massachusetts.
+
+43 So William was ordered to depart to the land which lieth in the east,* where he remaineth unto this day ; and his name shall be no more spoken of with reverence amongst men.
+
+* Massachusetts.
 
 [47]
 
@@ -763,9 +763,9 @@ NOW it came to pass, on the nineteenth day of the eighth month, that one of the 
 
 3 And the name of the ship was called, in the language of the French, Guerriere,* which signifieth a warrior, and Dacres was the captain thereof.
 
-4 Now when Dacres beheld the ship of Columbia his eyes sparkled with joy, for he had defied the vessels of Columbia.
-
 * The Guerriere was taken from the French by the British.
+
+4 Now when Dacres beheld the ship of Columbia his eyes sparkled with joy, for he had defied the vessels of Columbia.
 
 [43]
 
@@ -785,7 +785,7 @@ NOW it came to pass, on the nineteenth day of the eighth month, that one of the 
 
 12 Moreover, the fire and smoke issued out of the mouths of the engines in abundance, so as to darken the air, and they were overshadowed by the means thereof.
 
-13 (Now the black dust was not known among the ancients ; even Solomon, in alibis wisdom, knew it not)
+13 (Now the black dust was not known among the ancients ; even Solomon, in all his wisdom, knew it not)
 
 [50]
 
@@ -807,7 +807,7 @@ NOW it came to pass, on the nineteenth day of the eighth month, that one of the 
 
 [51]
 
-22 But when the lords and counsel ! Britain heard those things they believed them not ; it was as the bitterness of gall to their souls ; for the pride of Britain was fixed upon her navy ; it was the apple of her eye.
+22 But when the lords and counsellors of Britain heard those things they believed them not ; it was as the bitterness of gall to their souls ; for the pride of Britain was fixed upon her navy ; it was the apple of her eye.
 
 23 Now, as one evil followeth after another to the sons of men, so it happened that, in the same month, a certain strong ship of the United States, even the Essex, the name of the captain whereof, was Porter, sailed in search of the vessels of the king, on the waters of the ocean.
 
@@ -821,9 +821,9 @@ Attack on Sackett's Harbor--affair of Ogdensburgh--British drove from St. Regis,
 
 NOW the movements of the enemy were as the motion of a whirlwind, which passeth from the north to the south, and from the east to the west.
 
-2 And they sought to encorppass the whole land of Columbia round about.
+2 And they sought to encompass the whole land of Columbia round about.
 
-3 So it came to pass that a number of the armed vessels of the king, that sailed on the great lake which is called Ontario, moved toward Sacketl's Harbor.
+3 So it came to pass that a number of the armed vessels of the king, that sailed on the great lake which is called Ontario, moved toward Sackett's Harbor.
 
 4 And they demanded certain vessels of the people of the United States, which they had taken from the king, to be given up unto them, saying :
 
@@ -880,7 +880,7 @@ we lay a contribution upon you, and ye shall pay tribute.
 
 [56]
 
-CHAP X.
+CHAP. X.
 
 Battle of Queenstown--the British General Brock killed.
 
@@ -907,6 +907,8 @@ thirteenth day of the tenth month,
 
 9 However, Solomon,* a captain and a kinsman of Stephen, reached the shore with the men under his command, in all about two hundred.
 
+* Col. Solomon Van Rensselaer.
+
 10 And he put the army in battle array, in a valley, and moved up towards the strong hold ; and Brock was the chief captain of the host of Britain.
 
 11 And from their strong hold they shot, with their mischievous engines, balls of lead in abundance ; and it was as a shower of hail upon the people of Columbia ;
@@ -914,8 +916,6 @@ thirteenth day of the tenth month,
 12 For there was no turning to the right hand nor to the left for safety.
 
 13 And Solomon and his men fought hard ; and they rushed into the hottest of the battle.
-
-* Col. Solomon Van Rensselaer.
 
 [58]
 
@@ -925,7 +925,7 @@ thirteenth day of the tenth month,
 
 16 And Chrystie, and the valiant Wool, and Ogilvie, and the host of Columbia gat into the hold, and the army of the king fled : and Chrystie was wounded in the palm of his hand.
 
-17 But Solomon was sorely wounded, so that his strength tailed him, and he went not into the hold.
+17 But Solomon was sorely wounded, so that his strength failed him, and he went not into the hold.
 
 18 And that day there fell of the servants of the king many valiant men, even those who were called invincibles, and had gained great honor in Egypt.
 
@@ -947,8 +947,7 @@ thirteenth day of the tenth month,
 
 25 And the prisoners that fell into the hands of the king, were about seven hundred.
 
-26 Nevertheless, in a letter which Stephen sent to Henry* the chief captain of the army of the north, he gave great honor unto the captains who fought under him that
-day.
+26 Nevertheless, in a letter which Stephen sent to Henry* the chief captain of the army of the north, he gave great honor unto the captains who fought under him that day.
 
 * Maj. Gen. Dearborn.
 
