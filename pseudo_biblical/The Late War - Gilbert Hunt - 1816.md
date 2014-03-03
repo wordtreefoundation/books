@@ -179,7 +179,7 @@ CHAP. XXXI--Capture of the British fleet on Lake Erie, by the American fleet und
 
 [ix]
 
-TABLE OP CONTENTS.
+TABLE OF CONTENTS.
 
 PAGE.
 
@@ -278,7 +278,7 @@ Between the U. States and G. Britain.
 
 CHAP. I. 
 
-Presidents Message--Causes of the War--Energetic Measures proposed.
+President's Message--Causes of the War--Energetic Measures proposed.
 
 NOW it came to pass, in the one thousand eight hundred and twelfth year of the christian era, and in the thirty and sixth year after the people of the provinces of Columbia had declared themselves independent of all the kingdoms of the earth ; 
 
@@ -4743,3 +4743,17 @@ NOTE.--The result of the late war has had the effect of commanding respect from 
 
 * Lord Exmouth narrowly escaped being assassinated while on shore at Algiers.
 
+[page break]
+
+COMMERCIAL TREATY.
+
+Whereas a convention between the United States of America and his Britannic Majesty, to regulate the commerce between the territories of the United States and of his Britannic Majesty, was signed at London on the third day of July, in the year one thousand eight hundred and fifteen, by plenipotentiaries respectively appointed for that purpose, which convention is in the words following, to wit:
+
+A CONVENTION,
+To regulate the Commerce between the territories of the United States and of his Britannic Majesty.
+
+The United States of America and his Britannic Majesty, being desirous, by a convention to regulate the commerce and navigation between their respective countries, territories, and people, in such a manner as to render the same reciprocally beneficial and satisfactory, have respectively named plenipotentiaries and given them full powers to treat of an dconclude such convention--that is to say : the President of the United States, by and with the advice and consent of the Senate thereof, hath appointed for their plenipotentiaries John Quincy Adams, Henry Clay and Albert Gallatin, citizens of the United States ; and his Royal highness the Prince Regent, acting in the name and on behalf of his majesty, his named for his plenipotentiaries the right hon. Frederick John Robinson, vice-president of the committee of privy council for trade and plantations, joint paymaster of his majesty's forces, and a member of the Imperial Parliament, Henry Goulburn, esq. a member of the Imperial Parliament, and under secretary of state, and William Adams, esq. doctor of civil laws ; and the said plenipotentiaries having mutually produced and shown their said full powers, and exchanged copies of the same, have agreed on and concluded the following articles, videlicet :
+
+ART. I. There shall be between the Territories of the United States of America and all the Territories of His Britannic Majesty in Europe a reciprocal liberty of Commerce. The inhabitants of the two countries respectively shall have liberty freely and securely to come with their ships and cargoes to all such places, ports and rivers in the Territories aforesaid to which other foreigners are permitted to come, to enter into the same, and to remain and reside in any parts of the said Territories respectively, also to hire an doccupy houses and warehouses for the purposes of their commerce ; and generally the merchants and traders of each nation respectively shall enjoy the most complete protection and security for their commerce, but subject always to the Laws and Statues of the two countries respectively.
+
+ART II.
