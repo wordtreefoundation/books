@@ -882,9 +882,11 @@ AND it came to pass, on the morning of the thirteenth day of the tenth month,
 
 CHAP. XI.
 
-Gen. Smyth, succeeds Gen. Van Rensselaer--his attempt to cross the Niagara, and failure--causes.
+Gen. Smyth succeeds Gen. Van Rensselaer--his attempt to cross the Niagara, and failure--causes.
 
-AFTER these things, on the same day in which the letter was written, Stephen resigned the command of his army to a certain chief captain whose name was Alexander,
+AFTER these things, on the same day in which the letter was written, Stephen resigned the command of his army to a certain chief captain whose name was Alexander,*
+
+* Brig. Gen. Smyth.
 
 2 Now Alexander was a man well skilled in the arts of warfare.
 

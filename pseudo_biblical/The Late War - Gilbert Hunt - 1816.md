@@ -963,13 +963,13 @@ Gen. Smyth succeeds Gen. Van Rensselaer--his attempt to cross the Niagara, and f
 
 AFTER these things, on the same day in which the letter was written, Stephen resigned the command of his army to a certain chief captain whose name was Alexander.*
 
+* Brig. Gen. Smyth.
+
 2 Now Alexander was a man well skilled in the arts of warfare.
 
 3 And he made a proclamation to the young men of the state of New-York, wherein he invited them to go forth from their homes, and join the host under him.
 
 4 And the words thereof pleased the young men, so that they went in numbers and joined Alexander ; on the shores of the river which is called the Niagara.
-
-* Brig. Gen. Smyth.
 
 [62]
 
@@ -985,7 +985,7 @@ AFTER these things, on the same day in which the letter was written, Stephen res
 
 10 And the veteran soldiers of the king, who have been bred to war, are spread in multitudes over the province of Canada.
 
-11 Therefore, if ye go orer to fight against them, ye will be as sheep going to the slaughter, and ye shall never again return to the house of your fathers, for ye will be destroyed.
+11 Therefore, if ye go over to fight against them, ye will be as sheep going to the slaughter, and ye shall never again return to the house of your fathers, for ye will be destroyed.
 
 [63]
 
