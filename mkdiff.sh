@@ -20,12 +20,12 @@ dwdiff \
     sed -n '/\[BEGIN\]/,/\[END\]/p' |
     sed -E 's/^[0-9]+ *//' |
     sed -E 's/\[[^]]+\]//' |
-    ruby -e 'puts $stdin.read.gsub(/\n\s*\n\s*\n/m, "\n\n").gsub("\n", "<br>")') \
+    ruby -e 'puts $stdin.read.gsub(/\n\s*\n\s*\n/m, "\n\n").gsub("\n", "\n<br>")') \
   <(cat 'pseudo_biblical/The Late War - Gilbert Hunt - 1819.md' | 
     sed -n '/\[BEGIN\]/,/\[END\]/p' |
     sed -E 's/^[0-9]+ *//' |
     sed -E 's/\[[^]]+\]//' |
-    ruby -e 'puts $stdin.read.gsub(/\n\s*\n\s*\n/m, "\n\n").gsub("\n", "<br>")')
+    ruby -e 'puts $stdin.read.gsub(/\n\s*\n\s*\n/m, "\n\n").gsub("\n", "\n<br>")')
 
 cat <<-HTML
 </body>
