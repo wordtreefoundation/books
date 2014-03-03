@@ -10,9 +10,9 @@ cat <<-HTML
 <body>
 HTML
 
-# --aggregate-changes
+# 
 dwdiff \
-  -i \
+  -i --aggregate-changes \
   -A best \
   -w '<span class="delete">' -x '</span>' \
   -y '<span class="insert">' -z '</span>' \
