@@ -1017,7 +1017,7 @@ NOW the strong ships of war of the kingdom of Britain were spread over the whole
 
 [65]
 
-5 Now the ship of Britain was mightier than the ship of Columbia, and she was called the Frolic, and the captain's name was Whinycates.
+5 Now the ship of Britain was mightier than the ship of Columbia, and she was called the Frolic, and the captain's name was Whinyeates.
 
 6 And they began to utter their thunders about the eleventh hour of the day, and the noises continued for more than the space of half an hour.
 

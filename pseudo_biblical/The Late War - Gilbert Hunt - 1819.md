@@ -944,15 +944,15 @@ NOW the strong ships of war of the kingdom of Great Britain were spread over the
 
 10 And the children of Columbia lost, in all, about half a score : howbeit, there was much damage done to both vessels.
 
-11 Nevertheless, about this time, a mighty ship of Britain, called the Poictiers, came upon the vessels which were in a defenceless situation, and took then: both, and commanded them to go to the island of the king which is called Bermuda.
+11 Nevertheless, about this time, a mighty ship of Britain, called the Poictiers, came upon the vessels which were in a defenceless situation, and took them both, and commanded them to go to the island of the king which is called Bermuda.
 
-12 However, the people of Columbia were pleasec with the noble conduct of Jones, and for his valiant act ! they gave him a sword of curious workmanship.
+12 However, the people of Columbia were pleased with the noble conduct of Jones, and for his valiant acts they gave him a sword of curious workmanship.
 
 13 Moreover, while he remained at Bermuda, the inhabitants, the servants of the king, treated him kindly and showed much respect for him and his officers that were made captive.
 
 CHAP. XIII.
 
-Capture of the British frigate Macedonian, by Com, Decatur, in the frigate United States.--Brig Vixen captured by the British frigate Southampton.
+Capture of the British frigate Macedonian, by Com. Decatur, in the frigate United States.--Brig Vixen captured by the British frigate Southampton.
 
 NOW it happened on the twenty-fifth day of the tenth month, in the first year of the war ; that a certain strong ship of Britain, that had prepared herself to fight a ship of Columbia, appeared upon the waters of the mighty deep.
 
@@ -974,7 +974,7 @@ NOW it happened on the twenty-fifth day of the tenth month, in the first year of
 
 10 And the slain and the wounded, of the ship of the king, were five score and four.
 
-1 1 And there fell of the people of Columbia five who were slain outright, and there were seven maimed.
+11 And there fell of the people of Columbia five who were slain outright, and there were seven maimed.
 
 12 Moreover the ship of Britain had seven of the stolen men of Columbia therein, who were compelled to fight against their brethren ; and two of them were slain in battle.
 
