@@ -1004,33 +1004,41 @@ NOW it happened on the twenty-fifth day of the tenth month, in the first year of
 
 25 And the inhabitants of New- York made a great feast, on the ninth day of the month, for the brave mariners that wrought in the ship of Columbia.
 
-26 And they became merry with the drinking of wine ; after which they departed and went into a house of mirth and gaiety.
+26 And they became merry with the drinking of wine ; after which they departed and went into a house of mirth and gaiety.*
+
+* Theatre.
 
 27 Now, it is written in the words of Solomon, whose wisdom hath not been excelled, that, there is a time to weep, and a time to rejoice.
 
 28 Not many days after those things, it came to pass, that the hearts of the lords and the counsellors of Britain were rejoiced.
 
-29 For a certain mighty ship, called the Southampton, fell upon a smaller vessel of the United States, ! and made capture thereof unto the king.
+29 For a certain mighty ship, called the Southampton, fell upon a smaller vessel of the United States,* and made capture thereof unto the king.
+
+* United States' brig Vixen, 12 guns, G. W. Reed commander.
 
 30 But the storm arose, and the sea beat upon the vessels, and they were cast away, and they parted asunder, upon an island which lieth far to the south, and both vessels were lost.
 
 Chap. XIV.
 
-Affairs in the north--skirmishes--battle of Frenchtown on the river Raisin--capture of Gen. Winchesters army--massacre of American prisoners.
+Affairs in the north--skirmishes--battle of Frenchtown, on the river Raisin--capture of Gen. Winchester's army--massacre of American prisoners.
 
-OW it came to pass, that the wickedness of Britain had roused up the spirit of Satan in the savages of the forest, in the north and in the west.
+NOW it came to pass, that the wickedness of Britain had roused up the spirit of Satan in the savages of the forest, in the north and in the west.
 
 2 And the tomahawk and the scalping knife were raised against the people of Columbia on the borders of the great lakes.
 
 3 So the people sought after a valiant man to go against the savages and the men of Britain.
 
-4 And they pitched upon a certain governor of one of the states in the west, whose name was Harrison, and the great Sanhedrim made him a chief captain of the army.
+4 And they pitched upon a certain governor of one of the states in the west, whose name was Harrison,* and the great Sanhedrim made him a chief captain of the army.
+
+* Maj. Geo., W. H. Harrison, Governor of Ohio.
 
 5 Moreover, he was beloved by the people, and a mighty host of husbandmen were ready to follow after him.
 
 6 And Harrison rested his army at the strong hold of Meigs, nigh the Miami Rapids, which lieth in the way journeying towards the strong hold of Maiden, which is in the province of the king ; whither he intended to go forth in the pleasant season of the year.
 
-7 And Winchester was another chief captain that went against the savages.
+7 And Winchester* was another chief captain that went against the savages.
+
+* Brig. Gen. Winchester.
 
 8 Now the savages had been a sore thorn in the side of the people of Columbia.
 
@@ -1046,15 +1054,17 @@ OW it came to pass, that the wickedness of Britain had roused up the spirit of S
 
 14 Even Russel, and Hopkins, and Tupper, and Campbell, and Williams, and others, who drove the red savages before them,
 
-15 And burnt their villages, and laid waste their habitations, and slew many of them ; for it is written in the holy scripture, Blood for blood !
+15 And burnt their villages,* and laid waste their habitations, and slew many of them ; for it is written in the holy scripture, Blood for blood !
+
+* Towns on the Wabash.
 
 16 Nevertheless, they treated the savage prisoners who fell into their hands kindly ; neither suffered they the people to buffet them !
 
-17 But it came to pass, on the twenty-second (jay of the first month, that a mighty horde of savages, and servants of the king, fell upon the army of Winchester the chief captain.
+17 But it came to pass, on the twenty-second day of the first month, that a mighty horde of savages, and servants of the king, fell upon the army of Winchester the chief captain.
 
 18  And it was about the dawning of the day, when the destructive engines opened their fires.
 
-19 And the place where the battle was fought was called, in the vernacular tongue, Frenchtown, which lieth on the south side of the River Raisin, nigh unto Lake Eric.
+19 And the place where the battle was fought was called, in the vernacular tongue, Frenchtown, which lieth on the south side of the River Raisin, nigh unto Lake Erie.
 
 20 Now the name of the chief captain of the army of Britain was Proctor, and he proved himself a wicked man, and his name is despised even unto this day.
 
@@ -1084,13 +1094,16 @@ OW it came to pass, that the wickedness of Britain had roused up the spirit of S
 
 33 Behold the sullen savage, with deadly rage, drag forth the shivering soldier over the blood-stained snow fainting, bleeding with his wounds, and imploring on his knees for mercy.
 
-34 Alas ! the savage understanding not his words ; but giveth him a blow with the hatchet of death.
+34 Alas ! the savage understandeth not his words ; but giveth him a blow with the hatchet of death.
 
-35 For have not the counselors of Britain said, For this will we give unto you silver and gold ?
+35 For have not the counsellors of Britain said, For this will we give unto you silver and gold ?
 
 36 Thus were the poor wounded prisoners of Columbia slaughtered in abundance.
 
-37 And Round-Head, the chief captain of the warriors, and the savages under him, gat great praise from Proctor, the chief captain of the host of Britain.
+37 And Round-Head, the chief captain of the warriors, and the savages under him, gat great praise from Proctor, the chief captain of the host of Britain.*
+
+* See Proctor's account of the battle, dated Quebec, Feb. 8, 1813.
+
 
 38 Neither did the sick and wounded escape, who had gathered themselves together in the houses, that they might be sheltered from the piercing cold ; even those who were weary and unable to go forth.
 
@@ -1102,7 +1115,9 @@ OW it came to pass, that the wickedness of Britain had roused up the spirit of S
 
 42 Lo ! these were the helpmates of the mighty kingdom of Britain, that noble and generous nation, the bulwark of religion !
 
-43 Tell it not in Gath ; publish it. not in the streets of  Askelon.3
+43 Tell it not in Gath ; publish it not in the streets of Askelon.*
+
+* The whole of this massacre was conducted under the eyes of the British officers, and sanctioned by them as well as by their government ; this fact has never been disavowed.
 
 CHAP. XV.
 
@@ -1114,7 +1129,9 @@ IN the twelfth month of the first year of the decree of the great Sanhedrim, on 
 
 3 And the ship was called Java, after one of the sweet scented islands of the east ; where the poppy flourishes, where the heat of the sun is abundant, and where the Bohon Upas emits its deadly poison.
 
-4 Moreover, she carried about four hundred and fifty men, and a governor, and many officers and soldiers of the king ; and she was well prepared for battle.
+4 Moreover, she carried about four hundred and fifty men, and a governor,* and many officers and soldiers of the king ; and she was well prepared for battle.
+
+* Gov. Hyslop and suite, bound to Bombay.
 
 5 And Lambert commanded the ship of Britain, and he was a brave and valiant man.
 
@@ -1124,7 +1141,9 @@ IN the twelfth month of the first year of the decree of the great Sanhedrim, on 
 
 8 Lo ! one of the tall ships of Columbia, even the Constitution, beheld her when she was yet a great way off, and made signs unto her which she answered not ;
 
-9 Which caused the gallant captain, whose sir-name was Cambridge, to cast a shot towards her, after which she received the thunder of his destroying engines.
+9 Which caused the gallant captain, whose sir-name was Bainbridge,* to cast a shot towards her, after which she received the thunder of his destroying engines.
+
+* Com. Bainbridge.
 
 10 And it was about the second hour after the mid- day, when the sound of the battle-drum was heard.
 
@@ -1186,43 +1205,57 @@ IN the twelfth month of the first year of the decree of the great Sanhedrim, on 
 
 CHAP. XVI.
 
-Com. Rodgers'' return from a second cruise--capture of the U. States brig Viper--the General Armstrong and a British frigate--privateering,
+Com. Rodgers' return from a second cruise--capture of the U. States brig Viper--the General Armstrong and a British frigate--privateering.
 
 NOW it came to pass, in the beginning of the one thousand eight hundred and thirteenth year of the Great Founder of the Christian sect,
 
 2 That a strong ship of the United States, called the President, commanded by Rodgers, returned a second time to the land of Columbia.
 
-3 And while she was upon the waters of the great deep, she fell in with one of the packets of the king called after the swift flying bird of the air, and made capture thereof.
+3 And while she was upon the waters of the great deep, she fell in with one of the packets of the king called after the swift flying bird* of the air, and made capture thereof.
+
+* Swallow.
 
 4 And in the ship Rodgers found abundance of wealthy even an hundred, sixty and eight thousand pieces of silver.
 
-5 And it was carried, with many horses, to a place of safe-keeping,t in the town of Boston, which lieth to the east.
+5 And it was carried, with many horses, to a place of safe-keeping,* in the town of Boston, which lieth to the east.
 
-6 Moreover, he made capture of another ship of the king, ! laden with oil and bones of the great fish of the deep.
+* Bank of Boston.
+
+6 Moreover, he made capture of another ship of the king,* laden with oil and bones of the great fish of the deep.
+
+* Ship Argo.
 
 7 Now it happened, on the seventeenth day of the first month of the same year,
 
-8 That one of the weak vessels of the United States became a prey to one of the strong ships of the king called the Narcissus : albeit, she fought not.
+8 That one of the weak vessels of the United States* became a prey to one of the strong ships of the king called the Narcissus : albeit, she fought not.
 
-9 About this time the great waters of the Chesapeake, which empty into the sea, were guarded by the strong chips of the king, so that the vessels might not arrive or depart therefrom.
+* Viper.
+
+9 About this time the great waters of the Chesapeake, which empty into the sea, were guarded by the strong ships of the king, so that the vessels might not arrive or depart therefrom.
 
 10 But the vessels of the United States, and the private vessels of the men of Columbia, were doing great damage unto the commerce of Britain, even in her own waters.
 
-11 And the number of the private vessels, that moved' swiftly over the face of the waters, and went out to despoil the commerce of Britain, and to capture the merchant vessels thereof, was about two hundred two score and ten.
+11 And the number of the private vessels, that moved swiftly over the face of the waters, and went out to despoil the commerce of Britain, and to capture the merchant vessels thereof, was about two hundred two score and ten.
 
-12 And they made capture of more than fifteen hundred of the vessels of the people of Britain.
+12 And they made capture of more than fifteen hundred of the vessels of the people of Britain.*
 
-13 Moreover ; there was a sore battle between one of the private armed vessels of the people of the United ; States, and a strong ship of the king:
+* During the war.
 
-14 The privateer was called the General Armstrong and the name of the captain was Guy. ;
+13 Moreover ; there was a sore battle between one of the private armed vessels of the people of the United ; States, and a strong ship of the king.*
+
+* A British frigate.
+
+14 The privateer was called the General Armstrong and the name of the captain was Guy.*
+
+* Capt. Champlain.
 
 15 Now Guy was a valiant man, and fear was a stranger to him. .
 
 16 And on the eleventh day of the third month he espied from afar a vessel which appeared as a speck upon the waters.
 
-17 But when he bore down upon her, behold ! She was  a fighting ship of Britain, carrying the destroying' engines.
+17 But when he bore down upon her, behold ! She was  a fighting ship of Britain, carrying the destroying engines.
 
-18 And Guy was near being entrapped, for he was ' deceived, thinking it was a merchant's vessel.
+18 And Guy was near being entrapped, for he was deceived, thinking it was a merchant's vessel.
 
 19 Therefore he was compelled to fight ; so he opened upon the vessel of the king, one of his mischievous engines called, in the vernacular tongue, Long-Tom.
 
@@ -1230,7 +1263,7 @@ NOW it came to pass, in the beginning of the one thousand eight hundred and thir
 
 21 And the balls of lead and iron showered around like hail-stones ; for the strong ship of Britain had them in abundance.
 
-22 Now the slaughter was dreadful on both sides, and Guy was on the point of making capture of the ship : but he received a wound, and his vessel was disabled, so lie made good his escape.
+22 Now the slaughter was dreadful on both sides, and Guy was on the point of making capture of the ship : but he received a wound, and his vessel was disabled, so he made good his escape.
 
 23 And the slain and the wounded of Guy were twenty and three, and the vessel of the king lost about twice that number.
 
@@ -1244,9 +1277,9 @@ NOW it came to pass, in the beginning of the one thousand eight hundred and thir
 
 28 Yea, even in their own waters, and in the sight of their own havens, did they do these things.
 
-29 For it happened that the cunning Yankees knew how to construct the swift-sailing vessels, that they out- ran the strong vessels of Britain.
+29 For it happened that the cunning Yankees knew how to construct the swift-sailing vessels, that they out-ran the strong vessels of Britain.
 
-SO And as the ships of Britain moved but slowly oh the waters, so they caught them not.
+30 And as the ships of Britain moved but slowly on the waters, so they caught them not.
 
 31 Wherefore the artificers, the mechanics, and those who dealt in merchandise, raised their voices to the great council of Britain, saying,
 
@@ -1266,15 +1299,15 @@ SO And as the ships of Britain moved but slowly oh the waters, so they caught th
 
 CHAP. XVII.
 
-Capture and hunting of Ogdensburgh by the British.
+Capture and burning of Ogdensburgh by the British.
 
-ON these days the war against Columbia was waged -with great violence,
+IN these days the war against Columbia was waged with great violence,
 
 2 And the fur-clad savages prowled in secret places and fell upon the helpless.
 
-3 They hid themselves in the wilderness ; they couched down as a lion ; and, as a young lion, they watched for their prey.
+3 ' They hid themselves in the wilderness ; they couched down as a lion ; and, as a young lion, they watched for their prey. '
 
-4 The tall and leafless trees of the forest bent to the -Strong winds of the north ; and the sound thereof was as the roaring of mighty waters.
+4 The tall and leafless trees of the forest bent to the strong winds of the north ; and the sound thereof was as the roaring of mighty waters.
 
 5 Moreover, the face of the earth was covered with snow and the water of the rivers was frozen.
 
@@ -1284,7 +1317,7 @@ ON these days the war against Columbia was waged -with great violence,
 
 8 Accordingly, it came to pass, on the twenty-second day of the second month, being the birth-day of Washington, the deliverer,
 
-9 That a mighty host came out of the province of the king, and went against the town of Ogdensburgh,
+9 That a mighty host came out of the province of the king, and went against the town of Ogdensburgh, and made capture thereof.
 
 10 And there were five slain and ten wounded of the people of Columbia, and about three score were taken by the servants of the king.
 
@@ -1292,9 +1325,9 @@ ON these days the war against Columbia was waged -with great violence,
 
 12 And twelve of the destroying engines, which the people of Columbia had taken from the king about forty years before.
 
-13 Also, three hundred tents, and more than a thousand, weapons of war ; but the vessels and the boats they consumed with fire.
+13 Also, three hundred tents, and more than a thousand weapons of war ; but the vessels and the boats they consumed with fire.
 
-14 Now Ogdensburgh was a beautiful village to be- hold ; nevertheless they burned it with fire, and it be-came a heap of ruins.
+14 Now Ogdensburgh was a beautiful village to behold ; nevertheless they burned it with fire, and it became a heap of ruins.
 
 15 And the women and the children looked for their homes, but found them not ; and they sat down in sorrow, for the haughty conquerors laughed at their sufferings.
 
@@ -1304,7 +1337,7 @@ ON these days the war against Columbia was waged -with great violence,
 
 CHAP. XVIII.
 
-Capture of the Peacock, of 18 guns, by the V. S. sloop of war Hornet, of 16 guns--return of the Chesapeake from a cruise.
+Capture of the Peacock, of 18 guns, by the U. S. sloop of war Hornet, of 16 guns--return of the Chesapeake from a cruise.
 
 THE deeds of the renowned warriors, the patriots, and the valiant men of Columbia, have prepared a path for the scribe, which he is compelled to follow :
 
@@ -1318,21 +1351,21 @@ THE deeds of the renowned warriors, the patriots, and the valiant men of Columbi
 
 6 Now it came to pass, in the eighteen hundred and thirteenth year of the Christian era, on the twenty-fourth day of the second month,
 
-7 That one of the righting vessels of Columbia, called the Hornet, which signifieth, in the vernacular tongue a fly whose sting is poison,
+7 That one of the fighting vessels of Columbia, called the Hornet, which signifieth, in the vernacular tongue a fly whose sting is poison,
 
 8 Moved upon the waters of the great deep, far to the south, near unto a place which is called Demarara.
 
-9 Moreover, the captain of the Hornet " T as a valiant man. and his same was Lawrence.
+9 Moreover, the captain of the Hornet was a valiant man, and his name was Lawrence.
 
 10 And it was towards the setting of the sun, when he came nigh unto one of the strong ships of the king called the Peacock, after, the bird whose feathers are beautiful to behold ;
 
 11 And the captain thereof was sir-named Peake.
 
-12 Now began the roaring noises of the engines of destruction, that opened their mouths against one an- other ; and dreadful was the slaughter of that day.
+12 Now began the roaring noises of the engines of destruction, that opened their mouths against one another ; and dreadful was the slaughter of that day.
 
-13 Nevertheless, in the space of about the fourth part of an hour, the vessel ©f the king was captured by  the people of Columbia.
+13 Nevertheless, in the space of about the fourth part of an hour, the vessel of the king was captured by the people of Columbia.
 
-14 And. they found therein some of the mariners of the United States, who had begged that they might go down into the hold of the ship, and not raise their hands against the blood of their own brethren :
+14 And they found therein some of the mariners of the United States, who had begged that they might go down into the hold of the ship, and not raise their hands against the blood of their own brethren :
 
 15 But Peake, the commander, suffered them not, but compelled them to fight against their own kinsmen : and one of them was slain in battle.
 
@@ -1340,87 +1373,97 @@ THE deeds of the renowned warriors, the patriots, and the valiant men of Columbi
 
 17 Moreover, the Peacock sunk down into the yawning deep, before they could get all the men of Britain out of her ; and three of the people of Columbia were buried with her, whilst in the humane act of endeavouring to preserve the lives of the enemy,
 
-18 Now this was the fifth fighting vessel of the king . which had been humbled, since the decree of the great Sanhedrin, before the destroying engines of the people of Columbia.
+18 Now this was the fifth fighting vessel of the king . which had been humbled, since the decree of the great Sanhedrim, before the destroying engines of the people of Columbia.
 
 19 And Lawrence, and the brave men that fought with him, had honor and praise poured out upon them abundantly.
 
-20 Moreover, the people of New- York gave unto Lawrence vessels of silver, with curious devices ; and they made a feast for the men who fought in the Hornet.
+20 Moreover, the people of New-York gave unto Lawrence vessels of silver, with curious devices ; and they made a feast for the men who fought in the Hornet.
 
-21 And air the people were exceedingly rejoiced at the, valiant acts of Lawrence, and his fame extended throughout the land of Columbia ; the sound of his name was the joy of every heart.
+21 And all the people were exceedingly rejoiced at the valiant acts of Lawrence, and his fame extended throughout the land of Columbia ; the sound of his name was the joy of every heart.
 
-22 But when the news thereof reached the ears of the wise men of Britain, they said, Lo ! these men are giants ; neither are they like unto the warriors of the
+22 But when the news thereof reached the ears of the wise men of Britain, they said, Lo ! these men are giants ; neither are they like unto the warriors of the king.
 
 23 And their witchcraft and their cunning are darkness unto us ; even as when a man putteth a candle under a bushel.
 
-24 Behold ! five times hath the striped bunting' of Columbia, triumphed, over the royal cross of Britain,
+24 Behold ! five times hath the ' striped bunting ' of Columbia, triumphed over the royal cross of Britain.
 
 25 Now the great Sanhedrim, who were assembled together, forgat not the valiant deeds of the mariners of Columbia.
 
-26 For they divided amongst them more than seventy thousand pieces o{ silver.
+26 For they divided amongst them more than seventy thousand pieces of silver.
 
 27 And it came to pass, on the tenth day of the fourth month, in the same year, that the Chesapeake, a strong vessel of the United States, arrived in the haven of Boston.
 
-28 She had. sailed upon the face of the rough waters more than an hundred days, after she departed from the land of Columbia, and passed a great way to the south :
+28 She had sailed upon the face of the rough waters more than an hundred days, after she departed from the land of Columbia, and passed a great way to the south :
 
-29 And went hard by the island of Barbadoes, and those places, in the great sea which encompasseth the world, from whence they bring poisoned waters, which open the womb of the earth to receive the unwary song of men.
+29 And went hard by the island of Barbadoes, and those places, in the great sea which encompasseth the world, from whence they bring poisoned waters, which open the womb of the earth to receive the unwary sons of men.
 
-30 Moreover, in returning, she came nigh unto the Capes of Virginia, where the sweet-scented plant groweth in abundance.
+30 Moreover, in returning, she came nigh unto the Capes of Virginia, where the sweet-scented plant* groweth in abundance.
+
+* Tobacco.
 
 31 And while she was on the ocean she captured a  number of the vessels of the people of Britain, which were laden with rich merchandise.
 
 CHAP. XIX.
 
-Capture, of little York, in Upper Canada--the destruction of the whole American army prevented by the precaution of Gen. Pike--his death.
+Capture of little York, in Upper Canada--the destruction of the whole American army prevented by the precaution of Gen. Pike--his death.
 
 NOW, whilst these things happened in the south, and the evils of war destroyed the life of man, and the smiles of heaven strengthened the arms, and lifted up the glory of Columbia. ;
 
 2 Behold, preparations of warfare were making on the borders of the great lakes of the north.
 
-3 And the vessels of war of Columbia that were tip- on the waters of the lake called Ontario, were commanded by a brave man, whose name was Chauncey.
+3 And the vessels of war of Columbia that were upon the waters of the lake called Ontario, were commanded by a brave man, whose name was Chauncey.
 
 4 Now on the twenty fifth day of the fourth month, the army of Columbia, who were gathered on the shore of the lake, went down into the strong vessels of Chauncey.
 
 5 And the number that went into the vessels was about two thousand.
 
-6 And Henry and Zebulon, whose sir-name was Pike, were the chief captains of the host of Columbia.
+6 And Henry* and Zebulon, whose sir-name was Pike,** were the chief captains of the host of Columbia.
 
-7 On the same day the sails of the vessels were spread to the winds of heaven, and they moved towards
+* Major General Dearborn.
+
+** Brig. Gen. Pike.
+
+7 On the same day the sails of the vessels were spread to the winds of heaven, and they moved towards a place called Little York,* in the province of Canada.
+
+* Capital of U. Canada.
 
 8 Howbeit, the winds were adverse and blew with great violence from the east.
 
-9 Nevertheless, on the morning of the twenty-seventh day of the same mouth, the army of Columbia, commanded by Pike, the chief captain, moved out of the strong ships of the United States.
+9 Nevertheless, on the morning of the twenty-seventh day of the same month, the army of Columbia, commanded by Pike, the chief captain, moved out of the strong ships of the United States.
 
-10 But Henry remained on board the vessel of' Chauncey, neither came he to the water's edge.
+10 But Henry remained on board the vessel of Chauncey, neither came he to the water's edge.
 
 11 And the place where the host of Columbia landed was to the west of the town, about twenty and four furlongs, and from the strong hold of the king about ten furlongs.
 
 12 The gallant Forsyth, who led a band of brave men, who fought not for filthy lucre's sake, went before the host.
 
-13 And their weapons of war were of curious workmanship, and they sent forth balls it lead ; such as were unknown to Pharaoh when he followed the Children of Israel down into the red sea
+13 And their weapons of war were of curious workmanship,* and they sent forth balls of lead ; such as were unknown to Pharaoh when he followed the Children of Israel down into the red sea.
+
+* Rifles.
 
 14 Now Zebulon, with a thousand chosen men, followed close after Forsyth, the warrior.
 
 15 About this time the savages and the servants of the king, even a great multitude, opened their engines of destruction without mercy.
 
-16 And from the forest, and the secret places, their balls were showered like unto hail-stones, and the sound' thereof was as sharp thunder.
+16 And from the forest, and the secret places, their balls were showered like unto hail-stones, and the sound thereof was as sharp thunder.
 
 17 And a man, whose name was Sheaffe, was the chief captain of the host of Britain.
 
-18 Now the destroying engines of the stronghold of the king issued fire and smoke with a mighty noise and shot at the vessels of the United States.
+18 Now the destroying engines of the strong hold of the king issued fire and smoke with a mighty noise and shot at the vessels of the United States.
 
 19 But Chauncey returned unto them four-fold ; and and the battle waxed hot, both on the land and on the water.
 
-20 And the men of Columbia rushed forward with terseness, and drove the men of Britain from their strong hold.
+20 And the men of Columbia rushed forward with fierceness, and drove the men of Britain from their strong hold.
 
 21 So they fled towards the town for safety, for they were overcome ; and the savages were smitten with fear, their loud yellings ceased, and their feet were light, as the wild roe ;
 
 22 Nevertheless, the men of Columbia shouted aloud, and sounded their trumpets, their cymbals, and their noisy drums, which were contrived since the days of Jeroboam, king of Israel.
 
-23 And Zebulon, the valiant warrior, followed hard after them ; and they found no rest ; for they were sore pushed, and the phantom of their imaginations pictured at new evils.
+23 And Zebulon, the valiant warrior, followed hard after them ; and they found no rest ; for they were sore pushed, and the phantom of their imaginations pictured out new evils.
 
-24 So when they found they were nigh being made captive, they departed in haste from the town and from the strong hold thereof, save about two score !
+24 So when they found they were nigh being made captive, they departed in haste from the town and from the strong hold thereof, save about two score.
 
-25 Now when the army of Britain was overthrown ; when they were compelled to flee from the stronghold, the wickedness of Satan entered into their hearts.
+25 Now when the army of Britain was overthrown ; when they were compelled to flee from the strong hold, the wickedness of Satan entered into their hearts.
 
 26 And they gathered together abundance of the black dust and fixed it in the lowermost part of the fort, below the walls of stone.
 
@@ -1432,11 +1475,11 @@ NOW, whilst these things happened in the south, and the evils of war destroyed t
 
 30 Lo ! they saw not the host of Britain ; but the eye of Zebulon was as the eye of an eagle, his strength as the lion, and his judgment as the wise :
 
-31 So he stayed his men of war from rushing for- ward towards the place, lest they might be entrapped : and he caused them to move along the wood to the right hand and to the left.
+31 So he stayed his men of war from rushing forward towards the place, lest they might be entrapped : and he caused them to move along the wood to the right hand and to the left.
 
 32 About this time, a stripling from the south, with his weapon of war in his hand, ran up to Zebulon, and spake unto him, saying,
 
-S3 Behold ! a man of Britain appeared in the fort ; suffer me, I pray thee, to slay him, for he is busied with the destroying engines :
+33 Behold ! a man of Britain appeared in the fort ; suffer me, I pray thee, to slay him, for he is busied with the destroying engines :
 
 34 But Zebulon said, nay ; we are yet a great way off.
 
@@ -1444,31 +1487,33 @@ S3 Behold ! a man of Britain appeared in the fort ; suffer me, I pray thee, to s
 
 36 So he ran out before the army and shot the man, and he fell to the earth ; and it was about a furlong off, and the weight of the ball was about the weight of a shekel.
 
-37 But as the young man returned to where the array stayed, behold ! the black dust in the hold caught fire, and it rent the air with the noise of a thousand' thunders :
+37 But as the young man returned to where the army stayed, behold ! the black dust in the hold caught fire, and it rent the air with the noise of a thousand thunders :
 
-38 And the whole army fell down upon their faces* to the earth ; and the stones, and the fragments of rocks, were lifted high ; and the falling thereof was terrible even unto deaths
+38 And the whole army fell down upon their faces* to the earth ; and the stones, and the fragments of rocks, were lifted high ; and the falling thereof was terrible even unto death.
 
-39 Yea, it was dreadful as the mighty earthquake,which overturneth cities.
+* However strange this may appear, it is a fact that the concussion of the air produced that effect on nearly all who fronted the explosion.
+
+39 Yea, it was dreadful as the mighty earthquake, which overturneth cities.
 
 40 And the whole face of the earth round about, and the army of Zebulon, were overshadowed with black smoke ; so that, for a time, one man saw not another :
 
 41 But when the heavy clouds of smoke passed away towards the west, behold the earth was covered with the killed and the wounded.
 
-42 Alas: the sight was shocking to behold ; as the deed was ignoble,,
+42 Alas ! the sight was shocking to behold ; as the deed was ignoble.
 
-43 About two hundred' men rose not : the stones had ; bruised them ; the sharp rocks had fallen upon them.
+43 About two hundred men rose not : the stones had ; bruised them ; the sharp rocks had fallen upon them :
 
-44 They were wedged into the earth : their weapons4 of war were bent down into the ground with them ; their feet were turned towards heaven ; their limbs were lopped off.
+44 They were wedged into the earth : their weapons of war were bent down into the ground with them ; their feet were turned towards heaven ; their limbs were lopped off.
 
 45 but when those who escaped unhurt arose and looked around, they beheld not their chieftain ; he had fallen to the earth.
 
 40 A huge stone smote him upon the back, and two of his officers, (one of whom was the gallant Fraser,) raised him up and led him forth from the field  of murder ; the one on the one side, and the other on the other side.
 
-47 And as they led him away he turned his head  around to his brave warriors, and said unto them, Go  on ; 1 will be with you soon ! I am not slain.
+47 And as they led him away he turned his head  around to his brave warriors, and said unto them, Go  on ; I will be with you soon ! I am not slain.
 
 48 The magic of his words gave joy to their hearts ;  for they loved him as they loved their own father.
 
-49 And with resistless force his noble band rushed on,  at the trumpet's sound, over the heaps of slain and  wounded, to glory, and to -triumph !
+49 And with resistless force his noble band rushed on, at the trumpet's sound, over the heaps of slain and wounded, to glory, and to triumph !
 
 50 And a swift messenger ran down unto Henry,  with these words in his mouth, Lo ! the right hand of our army is slain ! its pride is gone ! Zebulon has fallen ?
 
@@ -1478,7 +1523,7 @@ S3 Behold ! a man of Britain appeared in the fort ; suffer me, I pray thee, to s
 
 53 And the loss of the men of Columbia was about  three hundred slain and wounded.
 
-54 And Henry, the chief captain, gave great honor to  the captains under him, ever, Ripley, Forsyth and Eustis, and all the brave men that fought that day.
+54 And Henry, the chief captain, gave great honor to  the captains under him, even Ripley, Forsyth and Eustis, and all the brave men that fought that day.
 
 55 Nevertheless, Sheaffe, the captain of the king,  escaped with a handful of men, and the swift-footed  savages : leaving behind him the insignia of British  mercy !--a human scalp !
 
@@ -1488,17 +1533,17 @@ S3 Behold ! a man of Britain appeared in the fort ; suffer me, I pray thee, to s
 
 58 Behold yon lonely widows ; they weep for their  husbands and their children ; but they shall see their  faces no more !
 
-59 The, fair daughters of Columbia sigh for the return of their beloved.
+59 The fair daughters of Columbia sigh for the return of their beloved.
 
-60 Seest thou those little ones ? they fly to their disconsolate mother, they leap with joy at the name of  father ! but he shall never return !
+60 Seest thou those little ones ? they fly to their disconsolate mother, they leap with joy at the name of father ! but he shall never return !
 
-61 Oh ! that they had cast the black dust into the  sea ! t' en might not the children of men weep and  wail.
+61 Oh ! that they had cast the black dust into the  sea ! then might not the children of men weep and  wail.
 
-62 Now on the next day, when the army of Zebulon  gat the tidings that their captain was slain, the tears  started in their eyes ; the}' were mute, their hearts failed  them ; and they became as weak women.
+62 Now on the next day, when the army of Zebulon  gat the tidings that their captain was slain, the tears  started in their eyes ; they were mute, their hearts failed them ; and they became as weak women.
 
-63 Moreover, the United States made great lamentations over him ; and the remembrance of his name  shall live in the hearts of the people.
+63 Moreover, the United States made great lamentations over him ; and the remembrance of his name shall live in the hearts of the people.
 
-64 The eagle of Columbia dropt a feather from her  wing, which the angel of lightness caught ere it fell to  the earth, ascended to heaven, and recorded the name  of Pike.
+64 The eagle of Columbia dropt a feather from her  wing, which the angel of brightness caught ere it fell to the earth, ascended to heaven, and recorded the name of Pike.
 
 CHAP. XX.
 
@@ -2786,7 +2831,7 @@ NOW it came to pass, in the second month of the same year in which David gat hom
 
 19 Moreover, they vomited fire and smoke and brimstone incessantly, and with the movements of the armies the dust of the earth arose and overshadowed the field of slaughter.
 
-20 And the heavy balls of iron whistled about-them in abundance.
+20 And the heavy balls of iron whistled about them in abundance.
 
 21 However, the skill of Jacob, and his brave captains, became manifest, and they drove the host of Britain before them,
 
