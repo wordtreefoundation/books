@@ -8,7 +8,6 @@ status: CLEAN+1
 note: Boston Evening Post on April 20, 1782
 ---
 
-
 Verse 1st. AND it came to pass in the reign of George the king, who ruled over Albion, and whose empire extended to the uttermost parts of the earth, that the spirit of Belial went forth among the sons of men, and people warred against people, and nation against nation, so that there was no peace in the land.
 
 2d. For the tribe of Columbia had fallen off, saying one unto another, wherefore should the king of Albion rule over us as if we were his handmen, and the saying pleased the people.
@@ -23,7 +22,7 @@ Verse 1st. AND it came to pass in the reign of George the king, who ruled over A
 
 7th. And the rulers appointed captains of tens, and captains of hundreds and captains of thousands, and cried to your tents, O ! Columbia.
 
-8th. Now when there came to Albion and the king thereof, he waxed exceeding wrath, and sent forth a mighty host of horsement and footmen, fifty and two thousand fighting men sent he forth, all men of valour.
+8th. Now when there came to Albion and the king thereof, he waxed exceeding wrath, and sent forth a mighty host of horsemen and footmen, fifty and two thousand fighting men sent he forth, all men of valour.
 
 9th. But in their captains there was no faith, for they delivered the young men into the hands of the enemy to be led captives.
 
