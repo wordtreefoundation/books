@@ -1830,7 +1830,7 @@ NOW it came to pass, that the mighty fleet of Britain, which was moving round ab
 
 9 Cockburn, sur-named the wicked, led forth a host of the savage men of Britain, against a pleasant village, called Havre-de-Grace, which lieth on the borders of the Susquehanna, a noble river ; being in the state of Maryland.
 
-10 Now there was none to defend the place, save one man, whose surname was O'Neil, who came from the land of Hibernia, and him they made captive.
+10 Now there was none to defend the place, save one man, whose sur-name was O'Neil, who came from the land of Hibernia, and him they made captive.
 
 11 And they came as the barbarians of the wilderness ; fierceness was in their looks, cruelty was in their hearts.
 
@@ -1856,13 +1856,13 @@ NOW it came to pass, that the mighty fleet of Britain, which was moving round ab
 
 20 Near unto this place a few vessels of Columbia, commanded by the gallant Cassin, were hemmed in by about a score of the mighty ships of the king.
 
-21 Now the fighting vessels under Cassin were mostly small, and were called gunboats, and they were little more than half a score in number.
+21 Now the fighting vessels under Cassin were mostly small, and were called gun-boats, and they were little more than half a score in number.
 
 22 Howbeit, but a few days before they went against the Junon,* a strong ship of Britain, and compelled her to depart from before the mouths of the destroying engines.
 
-23 But the island was defenceless ; and there came to protect it an hundred brave seamen from the gun-boats, and an hundred and fifty valiant men from the Constellation a fighting ship of the United States.
-
 * British frigate Junon.
+
+23 But the island was defenceless ; and there came to protect it an hundred brave seamen from the gun-boats, and an hundred and fifty valiant men from the Constellation a fighting ship of the United States.
 
 [118]
 
@@ -1970,18 +1970,17 @@ THE lofty eagle cutteth the air with his wings, and moveth rapidly along ; the f
 
 [125]
 
-CHAP XXIII.
+CHAP. XXIII.
 
-Surrender of Fort George and Fori Erie to the Americans--Gen. Brown drives the British from before Sackett's Harbor, with great loss--Gens. Winder and Chandler made prisoners at Forty-mile Creek.
+Surrender of Fort George and Fort Erie to the Americans--Gen. Brown drives the British from before Sackett's Harbor, with great loss--Gens. Winder and Chandler made prisoners at Forty-mile Creek.
 
 NOW, on the twenty-seventh day of the same month, being thirty days after Zebulon had gone to sleep with his fathers,
 
-2 Henry, whose sur-name was Dearborn, and Lewis* the chief captains of the army of Columbia, and Chauncey the commander of the fleet of the United States, that moved on the waters of the great lake Ontario, essayed to go against Fort George and Fort Erie, in
-the province of the king
-
-3 For they had previously concerted their plan and matured it ; and taken on board the ships, the army of Columbia, and a number of the destroying engines.
+2 Henry, whose sur-name was Dearborn, and Lewis* the chief captains of the army of Columbia, and Chauncey the commander of the fleet of the United States, that moved on the waters of the great lake Ontario, essayed to go against Fort George and Fort Erie, in the province of the king
 
 * Gen. Morgan Lewis.
+
+3 For they had previously concerted their plan and matured it ; and taken on board the ships, the army of Columbia, and a number of the destroying engines.
 
 [126]
 
@@ -2019,6 +2018,8 @@ the province of the king
 
 18 And Jacob, albeit a man of peace,* drove the men of Britain, and compelled them to flee rapidly from the shore, and get them into their vessels.
 
+* General Brown is a Quaker.
+
 19 So Prevost and Yeo returned to the strong hold of Kingston.
 
 20 And the skill of Jacob, in driving away the soldiers of the king, pleased the people, and they honored him greatly.
@@ -2032,8 +2033,6 @@ the province of the king
 24 The officers and soldiers of Columbia fought bravely, and there were many slain and wounded on both sides ;
 
 25 Nevertheless, the army of the United States rested nigh unto the place.
-
-* General Brown is a Quaker.
 
 [129]
 
@@ -2103,17 +2102,17 @@ IN these days the pride of Britain was sorely wounded ; for she had been discomf
 
 27 And they bid their roaring engines utter their voices, in London, their chief city, that had been silent many years, even those in the great tower,* which was built by William the conqueror, more than seven hundred years ago.
 
+* On this occasion they fired their tower guns, which had not been done since Nelson's victory.
+
 28 Their joy was unbounded, for they had overcome one of the strong ships of Columbia.
 
 29 Now the slain and the wounded on board the Chesapeake, were an hundred two score and four ; and there fell of the servants of the king about two hundred.
 
-30 Amongst the slain of Columbia were also Augustus, whose sur-name was Ludlow, and another brave officer whose name was While.
+30 Amongst the slain of Columbia were also Augustus, whose sur-name was Ludlow, and another brave officer whose name was White.
 
 31 And when the people of Columbia heard of a truth that Lawrence was slain, they mourned for him many days.
 
 32 His body was conveyed to a place called Halifax, in the province of the king, where they honored his name, and buried him for a while.
-
-* On this occasion they fired their tower guns, which had not been done since Nelson's victory.
 
 [134]
 
@@ -2121,11 +2120,11 @@ IN these days the pride of Britain was sorely wounded ; for she had been discomf
 
 34 And the captain's name who brought the bodies away from Halifax, was Crowninshield.
 
-35 So Lawrence was as buried in the burial-place of his fathers, in his own land : and a great multitude of people went out to behold the funeral as it passed through the city.
+35 So Lawrence was buried in the burial-place of his fathers, in his own land : and a great multitude of people went out to behold the funeral as it passed through the city.
 
 36 And his valiant deeds shall live in the remembrance of the people.
 
-37 About this time, on the fourth day of the month, the brave Decatur essayed to go forthwith his vessels upon the waters of the mighty deep.
+37 About this time, on the fourth day of the month, the brave Decatur essayed to go forth with his vessels upon the waters of the mighty deep.
 
 38 And the vessels that were with him were called the United States , the Hornet, and the Macedonian ; a strong ship which he had captured from the king.
 
@@ -2139,7 +2138,7 @@ IN these days the pride of Britain was sorely wounded ; for she had been discomf
 
 CHAP. XXV.
 
-Capture of Col. Boerstler and Major Chapin, with their command--treatment of prisoners--Major Chopin's escape.
+Capture of Col. Boerstler and Major Chapin, with their command--treatment of prisoners--Major Chapin's escape.
 
 NOW there was much hard fighting on the borders, for the nations were wroth against one another, and many men were slain by the sword.
 
@@ -2215,6 +2214,8 @@ AND it came to pass, on the fourth day of the seventh month, which is the birth 
 
 13 The soldiers of the king were commanded by two men, the one called Bishop and the other Warren, and the men of Columbia were commanded by a chief captain, named Porter.*
 
+* Gen. P. B. Porter.
+
 14 About this time the savages and the men of war of Britain assailed the guards and the out-posts near unto Fort George.
 
 15 Day after day and night after night did they annoy them ; and many were slain on both sides.
@@ -2224,8 +2225,6 @@ AND it came to pass, on the fourth day of the seventh month, which is the birth 
 17 So Boyd, a brave and tried warrior, was made chief captain in his stead, until Wilkinson, the chief captain, arrived : and the gallant Fraser was appointed one of his aids.
 
 18 Now there were some amongst the tribes of the savages, who had been instructed in the ways of God, and taught to walk in the path of righteousness ;
-
-* Gen. P. B. Porter.
 
 [142]
 
@@ -2255,10 +2254,9 @@ AND it came to pass, on the fourth day of the seventh month, which is the birth 
 
 [144]
 
-CHAP. XXVIL
+CHAP. XXVII.
 
-Affairs on Lake Ontario, between the fleets of
-Com. Chauncey and Sir James Yeo.
+Affairs on Lake Ontario, between the fleets of Com. Chauncey and Sir James Yeo.
 
 IN those days, the great waters of the lake Ontario were troubled with the movements of the fighting ships of Columbia, as well as those of the king.
 
@@ -2294,9 +2292,9 @@ IN those days, the great waters of the lake Ontario were troubled with the movem
 
 15 And the weight of a ball which they vomited forth was about a thousand shekels.
 
-16 Now the rest of the acts of Chauncey and Yeo. which they did, are they not written in the book of Palmer, the scribe ?*
+16 Now the rest of the acts of Chauncey and Yeo, which they did, are they not written in the book of Palmer, the scribe ?*
 
-* Historical Register, an excellent publication, in 4 vols. octavo, printed in Philadelphia, 1815 ; which contains th efacts and the official documents of the late war.
+* Historical Register, an excellent publication, in 4 vols. octavo, printed in Philadelphia, 1816 ; which contains the facts and the official documents of the late war.
 
 [147]
 
