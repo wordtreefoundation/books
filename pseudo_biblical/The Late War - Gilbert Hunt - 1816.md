@@ -1732,7 +1732,7 @@ THE voice of many years shall drop upon the children of men ; and our children's
 
 3 Moreover, the name of the country was called after the name of a great man, who was born in a place called Genoa ; being in Italia, on the sea-coast.
 
-4 His name was Christopher, surnamed Columbus.
+4 His name was Christopher, sur-named Columbus.
 
 5 As the righteous man struggleth against wickedness, so did he against ignorance and stupidity.
 
@@ -1760,17 +1760,19 @@ THE voice of many years shall drop upon the children of men ; and our children's
 
 15 Now the height of a mammoth is about seven cubits and an half, and the length thereof fourteen cubits ; and the bones thereof being weighed were more than thirty thousand shekels ; and the length of the tusks is more than six cubits.
 
-16 It is more wonderful than the elephant ; and the history thereof, is it not recorded in the book of Jefferson, the scribe ?
+16 It is more wonderful than the elephant ; and the history thereof, is it not recorded in the book of Jefferson, the scribe ?*
+
+* Jefferson's notes on Virginia.
 
 17 The fierce tiger and the spotted leopard dwell in the dark forests ; and the swift-footed deer upon the mountains and high places.
 
 18 Now the number of inhabitants that are spread over the whole continent, is more than an hundred million.
 
-* Jefferson's notes on Virginia.
-
 [111]
 
 19 And the people of Columbia, who are independent of the tyrants of the earth, and who dwell between the great river which is called Mississippi, in the south, and the province of Canada, in the north, being numbered, are about a thousand times ten thousand souls.*
+
+* The last census, in 1810, stated the amount at about 8,000,000, the number may now probably be increased to 10,000,000.
 
 20 The men are comely and noble, and cowardice hath forgot to light upon them : neither are they a superstitious people ; they are peace-makers, they love the God of Israel, and worship him ; and there are no idolaters amongst them.
 
@@ -1779,8 +1781,6 @@ THE voice of many years shall drop upon the children of men ; and our children's
 22 Now it had happened in times past that the king of Britain had made war upon the people of Columbia, even forty years ago.
 
 23 For the riches and prosperity of Columbia had become great, and the king coveted them.
-
-* The last census, in 1810, stated the amount at about 8,000,000, the number may now probably be increased to 10,000,000.
 
 [112]
 
