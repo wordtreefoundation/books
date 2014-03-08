@@ -2143,7 +2143,7 @@ NEVERTHELESS, it came to pass, that Harison, the chief captain of the north west
 
 CHAP. XXX.
 
-British schooner' Dominica, of 14 Guns, captured by the privateer Decatur, of 7 guns--U. S. brig Argus captured by the Pelican--capture of the Boxer by the U. S. brig Enterprize.
+British schooner Dominica, of 14 Guns, captured by the privateer Decatur, of 7 guns--U. S. brig Argus captured by the Pelican--capture of the Boxer by the U. S. brig Enterprize.
 
 NOW the war continued to rage without abatement upon the waters of the great deep ;
 
@@ -2151,9 +2151,9 @@ NOW the war continued to rage without abatement upon the waters of the great dee
 
 3 Moreover, the great Sanhedrim of the people were forced to bestir themselves ; and they had continued their councils day after day without ceasing.
 
-4 And it came to pass, that there was a dreadful battle fought between a vessel of the king, and a private vessel of Columbia ;,
+4 And it came to pass, that there was a dreadful battle fought between a vessel of the king, and a private vessel of Columbia.
 
-5 And the name of the vessel that fought was Decatur., and the captain's name was Diron, a Gaul.
+5 And the name of the vessel that fought was Decatur, and the captain's name was Diron, a Gaul.
 
 6 And it was so, that about the fourth day of the eighth month, the Decatur having sailed out of the haven of Charleston, being in the state of South Carolina, fell in with one of the fighting vessels of the king, called the Dominica.
 
@@ -2173,13 +2173,13 @@ NOW the war continued to rage without abatement upon the waters of the great dee
 
 14 Now the Pelican was somewhat stronger than the Argus, and they were stubborn and kept the destroying engines to work, with great noise about forty and five minutes.
 
-15 And the brave captain of the Argus, whose name was Allen, was wounded unto death, and the vessel of Columbia was captured by the ship of' Britain, the name of the commander whereof was Maples.
+15 And the brave captain of the Argus, whose name was Allen, was wounded unto death, and the vessel of Columbia was captured by the ship of Britain, the name of the commander whereof was Maples.
 
 16 Of the men of Columbia six were slain and seventeen wounded ; of the men of Britain the slain and wounded were five.
 
 17 Now the death of Allen was spoken of with sorrow throughout the land of Columbia, for he had defended the vessel of the United States nobly ; and captured some merchant ships of Britain,
 
-18 Even the enemy regarded him for his bravery, for they buried him with honour in their own country, not far from the place where he became captive, which was in the waters of the king, even in St. George's, Channel.
+18 Even the enemy regarded him for his bravery, for they buried him with honour in their own country, not far from the place where he became captive, which was in the waters of the king, even in St. George's Channel.
 
 19 But it came to pass, on the fifth day of the next month, in the same year,
 
@@ -2197,17 +2197,21 @@ NOW the war continued to rage without abatement upon the waters of the great dee
 
 26 Whereupon, after they were overcome, they cried aloud for mercy, saying,
 
-27 Behold ! our colors are fast ; and we cannot. quickly unloose them ; nevertheless, we will be prisoners unto you , therefore spare us.
+27 Behold ! our colors are fast ; and we cannot quickly unloose them ; nevertheless, we will be prisoners unto you , therefore spare us.
 
 28 So the brave mariners of Columbia spared them, and stopped the destroying engines ; for their hearts were inclined to mercy.
 
-29 However, this was another bloody fight ; fur there fell of the men of Britain forty that were slain out- right, and seventeen were wounded.
+29 However, this was another bloody fight ; for there fell of the men of Britain forty that were slain outright, and seventeen were wounded.
 
 30 And the loss of Columbia in slain and maimed was about fourteen.
 
-31 And the commanders of both vessels were slain ; and they buried them w th honor hi the town of Portland, which leaveth Boston to the west ; for the battle was fought hard by.
+31 And the commanders of both vessels were slain ; and they buried them with honor in the town of Portland, which leaveth Boston to the west ; for the battle was fought hard by.
 
-32 Moreover, the great Sanhedrim was pleased with the thing, and gave unto the least kinsman of Borrows a medal of gold, in token of remembrance thereof.
+32 Moreover, the great Sanhedrim was pleased with the thing, and gave unto the least kinsman of Burrows a medal of gold, in token of remembrance thereof.*
+
+* Mathew L. Davis, of New-York, a printer, a patriot, and a philanthropist, on a tour in the eastern States, passing through Portland and the burial place of Burrows (which was without a memorial,) being pointed out to him, generously delayed his journey until, at his own expense, he had caused a monument to be erected over the grave of the valiant ; which bears the following inscription, equally creditable to the modest merit of Mr. Davis,--to his head, and to his heart :
+
+BEANEATH THIS STONE Moulders THE BODY OF WILLIAM BURROWS, Late Commander of the UNITED STATES' BRIG ENTERPRIZE, Who was mortally wounded on the 5th of September, 1813, in an action, which contributed to increase the fame of American valour, by capturing his BRIT. MAJESTY'S BRIG BOXER, after a severe context of 45 minutes. A passing stranger has erected this monument of respect to the manes of a patriot, who in the hour of peril, obeyed the loud summons of an injured country, and who gallantly met, fought and conquered the foeman.
 
 CHAP. XXXI.
 

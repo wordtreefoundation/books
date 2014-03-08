@@ -2436,7 +2436,7 @@ Nevertheless, it came to pass, that Harrison, the chief captain of the north wes
 
 CHAP. XXX.
 
-British schooner Dominica, of 14 guns, captured by the privateer Decatur, of 7 guns--U. S. brig Argus captured by the Pelican--capture of the Boxer by the U. S. brig Enterprise.
+British schooner Dominica, of 14 guns, captured by the privateer Decatur, of 7 guns--U. S. brig Argus captured by the Pelican--capture of the Boxer by the U. S. brig Enterprize.
 
 NOW the war continued to rage without abatement upon the waters of the great deep ;
 
@@ -2452,7 +2452,7 @@ NOW the war continued to rage without abatement upon the waters of the great dee
 
 6 And it was so, that about the fourth day of the eighth month, the Decatur having sailed out of the haven of Charleston, being in the state of South Carolina, fell in with one of the fighting vessels of the king, called the Dominica.
 
-7 But the destroying engines of the king's vessel were two-fold greater in numbers than those of the Decatur.
+7 But the destroying engines of the king's vessel were two fold greater in numbers than those of the Decatur.
 
 8 Nevertheless, they set them to work, so that they groaned beneath the fire and smoke ;
 
@@ -2476,8 +2476,7 @@ NOW the war continued to rage without abatement upon the waters of the great dee
 
 17 Now the death of Allen was spoken of with sorrow throughout the land of Columbia, for he had defended the vessel of the United States nobly : and captured some merchant ships of Britain.
 
-18 Even the enemy regarded him for his bravery, for they buried him with honor in their own country, not far from the place where he became captive, which was in the waters of the king, even in St. George's
-Channel.
+18 Even the enemy regarded him for his bravery, for they buried him with honor in their own country, not far from the place where he became captive, which was in the waters of the king, even in St. George's Channel.
 
 [159]
 
@@ -2491,7 +2490,7 @@ Channel.
 
 23 And immediately they let the mischievous engines loose upon one another, with a noise like unto thunder.
 
-24 But it happened, that in about the space of forty minutes, the Boxer was overcome ; but she was taken somewhat unawares:
+24 But it happened, that in about the space of forty minutes, the Boxer was overcome ; but she was taken somewhat unawares :
 
 25 For, lo ! the pride of the men of Britain had made them foolish ; and, thinking of conquest, they nailed Britannia's red-cross to the mast of the vessel.
 
@@ -2511,7 +2510,7 @@ Channel.
 
 32 Moreover, the great Sanhedrim was pleased with the thing, and gave unto the kinsman of Burrows a medal of gold, in token of remembrance thereof.*
 
-* MATHEW L. DAVIS, of New-York, passing by an dobserving the burial place of Burrows, stopt and ordered a monumen tto b eerected in his memory at his own private expense.
+* MATHEW L. DAVIS, of New-York, passing by an dobserving the burial place of Burrows, stopt and ordered a monumen to be erected in his memory at his own private expense.
 
 CHAP. XXXI.
 
