@@ -2300,7 +2300,7 @@ IN those days, the great waters of the lake Ontario were troubled with the movem
 
 CHAP. XXVIII.
 
-Affairs on Lake Champlain--pillage of Platlsburgh by the British--bombardment of Burlington--depredations committed in the Chesapeake, and along the coast.
+Affairs on Lake Champlain--pillage of Plattsburgh by the British--bombardment of Burlington--depredations committed in the Chesapeake, and along the coast.
 
 NOW the fighting vessels of Britain began to appear upon the lake, called, by the ancient Gauls, Champlain.
 
@@ -2314,7 +2314,7 @@ NOW the fighting vessels of Britain began to appear upon the lake, called, by th
 
 5 And the number of the soldiers of the king that landed at Plattsburgh was more than a thousand men, and the name of their chief captain was Murray.
 
-6 And a captain of the United States, whose name was Mooers, a man of valor, strode to gather together the husbandmen of the place, but they were not enough.
+6 And a captain of the United States, whose name was Mooers, a man of valor, strove to gather together the husbandmen of the place, but they were not enough.
 
 7 So the army of the king captured the place ; and the men of Columbia fled before the men of war of Britain.
 
@@ -2402,7 +2402,7 @@ Nevertheless, it came to pass, that Harrison, the chief captain of the north wes
 
 15 And if it be so, that he come against me with his whole host, even then will I not turn aside from the fierce battle ; though his numbers were as the sand on the sea shore.
 
-16 Lo ! David, of old, with a sling and a stone slew the mighty Goliah: and shall the people of Columbia be afraid, and bow before the tyrants of Europe ?
+16 Lo ! David, of old, with a sling and a stone slew the mighty Goliah : and shall the people of Columbia be afraid, and bow before the tyrants of Europe ?
 
 17 Then Elliot returned to the army of the king ; and immediately the mouths of their engines were opened against the fort.
 
@@ -2412,8 +2412,7 @@ Nevertheless, it came to pass, that Harrison, the chief captain of the north wes
 
 [154]
 
-20 But the men of Croghan were prepared for them ; and they let loose their weapons of war upon them, and set their destroying engine to work, and smote the men of Britain, hip and thigh, with great
-slaughter.
+20 But the men of Croghan were prepared for them ; and they let loose their weapons of war upon them, and set their destroying engine to work, and smote the men of Britain, hip and thigh, with great slaughter.
 
 21 And the deep ditch that surrounded the fort was strewn with their slain and their wounded.
 
@@ -2431,7 +2430,7 @@ slaughter.
 
 27 So the physician of the king's army was permitted to return to his own camp.
 
-28 Moreover, great honor and praise were bestowed upon the brave Croghan, the captain of the fort, for his valiant deeds ; and hisname was spoken of with joy throughout the land of Columbia.
+28 Moreover, great honor and praise were bestowed upon the brave Croghan, the captain of the fort, for his valiant deeds ; and his name was spoken of with joy throughout the land of Columbia.
 
 [156]
 

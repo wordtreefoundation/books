@@ -2029,9 +2029,9 @@ Affairs on Lake Champlain--pillage of Plattsburgh by the British--bombardment of
 
 NOW the fighting vessels of Britain began to appear upon the lake, called by the ancient Gauls, Champlain.
 
-2 And the vessels of war of Columbia that were upon the waters of the lake were not yet prepared for the battle ; the name of their commander was M'Donough a stripling.
+2 And the vessels of war of Columbia that were upon the waters of the lake were not yet prepared for the battle ; the name of their commander was McDonough, a stripling.
 
-3 So, it came to pass, on the thirty and first day of the seventh month, that the vessels of the king came for- ward against Plattsburgh, which lieth on the borders of the lake.
+3 So, it came to pass, on the thirty and first day of the seventh month, that the vessels of the king came forward against Plattsburgh, which lieth on the borders of the lake.
 
 4 And there were none to defend the place ; for the army of Hampton, a chief captain of the United States, was encamped upon the opposite side of the lake, at a place called Burlington, in the state of Vermont.
 
@@ -2041,17 +2041,17 @@ NOW the fighting vessels of Britain began to appear upon the lake, called by the
 
 7 So the army of the king captured the place ; and the men of Columbia fled before the men of Britain.
 
-8 Moreover, the wickedness which had been committed at Hampton,was noised abroad, even from the shores of Virginia to lake Champlain.
+8 Moreover, the wickedness which had been committed at Hampton, was noised abroad, even from the shores of Virginia to lake Champlain.
 
 9 Accordingly, all the women and children, who were able, suddenly departed from the place, lest the same thing might, peradventure, happen unto them.
 
 10 Neither were they deceived in judgment ; for, lo ! when the place was given up, and a covenant made, the servants of the king proved faithless.
 
-11 They aboded not by the contract : saying, Pisa ! ye are but yankees, therefore will we do to you as seemeth meet unto us !
+11 They abided not by the contract : saying, Pish ! ye are but yankees, therefore will we do to you as seemeth meet unto us !
 
-12 So they burnt the houses, and ail other things belonging to the United States, with fire.
+12 So they burnt the houses, and all other things belonging to the United States, with fire.
 
-13 After which they fell upon the merchandise, the goods, and the chattles of all manner of persons : Ray the persons of some of the women were abused :
+13 After which they fell upon the merchandise, the goods, and the chattles of all manner of persons : nay the persons of some of the women were abused :
 
 14 Meanwhile they forced others to put the burning brand to their own dwellings ; or pay them tribute.
 
@@ -2079,11 +2079,11 @@ NOW the fighting vessels of Britain began to appear upon the lake, called by the
 
 26 They troubled the men of Columbia all along the sea coast, which is more than eight thousand furlongs, from north to south.
 
-27 Moreover, they gat much plunder : even much of. the good things with which the land of Colombia aboundeth.
+27 Moreover, they gat much plunder : even much of the good things with which the land of Colombia aboundeth.
 
-CHAP XXIX.
+CHAP. XXIX.
 
-Major Croghan defeats the British and Indians, under Gen. Proctor, in their attack en Fort Stephenson, Lower Sandusky.
+Major Croghan defeats the British and Indians, under Gen. Proctor, in their attack on Fort Stephenson, Lower Sandusky.
 
 NEVERTHELESS, it came to pass, that Harison, the chief captain of the north west army, had placed a captain, a young man, in the hold called Fort Stephenson, to defend it.
 
@@ -2093,29 +2093,29 @@ NEVERTHELESS, it came to pass, that Harison, the chief captain of the north west
 
 4 Now the name of the young man was George, and his sir-name was Croghan.
 
-5 So, on the first day of the eighth month, about the going down of the sun, a mighty host from Maiden appeared before the hold ;
+5 So, on the first day of the eighth month, about the going down of the sun, a mighty host from Malden appeared before the hold ;
 
 6 Even a thousand savages, and about five hundred men of war of Britain ; and Proctor was the commander thereof.
 
 7 Moreover, they brought the instruments of destruction in great plenty even howitzers, which were not known in the days of the children of Israel.
 
-8 Had they had prepared themselves for the fight ? and encompassed the place round about, both by land and by water.
+8 And they had prepared themselves for the fight, and encompassed the place round about, both by land and by water.
 
 9 After which Proctor sent a message to the brave Croghan, by a captain whose name was Elliot, and the words thereof were in this sort :
 
 10 Lo ! now ye can neither move to the right nor to the left, to escape, for we have hemmed you in ;
 
-11 Therefore, that your blood may not be spilt in vain, we command that ye give up the strong bold into the hands of the servants of the king, and become captives.
+11 Therefore, that your blood may not be spilt in vain, we command that ye give up the strong hold into the hands of the servants of the king, and become captives.
 
-12 We have the destroying engines in abundance, and- we are a numerous host.
+12 We have the destroying engines in abundance, and we are a numerous host.
 
-13 Furthermore, if ye refuse then shall the wild savages be let loose upon you ; and there shall b-e none left among you to go and tell the tidings thereof,
+13 Furthermore, if ye refuse then shall the wild savages be let loose upon you ; and there shall be none left among you to go and tell the tidings thereof,
 
 14 But when Croghan heard the message, he answered and said unto Elliot, Get thee now to thy chief captain, and say unto him, I refuse ; neither will I hearken unto him :
 
-15 And if it be so, that he come against me with his whole host, even then will I not turn aside from the fierce battle ; though his numbers were as the sand on the sen shore.
+15 And if it be so, that he come against me with his whole host, even then will I not turn aside from the fierce battle ; though his numbers were as the sand on the sea shore.
 
-16 Lo ! David, of old, with a sling and a stone, slew the mighty Goliath : and shall the people of Columbia be afraid, and bow before the tyrants of Europe ?
+16 Lo ! David, of old, with a sling and a stone, slew the mighty Goliah : and shall the people of Columbia be afraid, and bow before the tyrants of Europe ?
 
 17 Then Elliot returned to the army of the king : and immediately the mouths of their engines were opened against the fort.
 
@@ -2129,11 +2129,11 @@ NEVERTHELESS, it came to pass, that Harison, the chief captain of the north west
 
 22 So the host of Britain were dismayed and overthrown, and fled in confusion from the fort into the forest ; from whence, in the dead of the night, they went into their vessels, and departed from the place.
 
-23 Now the loss of the men of Britain was. about an hundred two score and ten ; and of the men of Columbia there was one slain and seven wounded.
+23 Now the loss of the men of Britain was about an hundred two score and ten ; and of the men of Columbia there was one slain and seven wounded.
 
 24 But when Proctor had rested his army he sent a skilful physician to heal the maimed which he had fled from and left behind.
 
-25 But Hanson, the chief captain, said unto him, Already have my physicians bound up their wounds, and given them bread and wine, and comforted them ; after the manner of our country.
+25 But Harison, the chief captain, said unto him, Already have my physicians bound up their wounds, and given them bread and wine, and comforted them ; after the manner of our country.
 
 26 For we suffer not the captives that fall into our hands to be buffeted or maltreated ; neither want they for any thing.
 
