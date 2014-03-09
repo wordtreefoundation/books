@@ -21,16 +21,10 @@ Interested in helping? Want to join WordTree? Send an email to info@wordtree.org
 Status of Books
 ===============
 
-MISSING TEXT
-------------
-
-- [Chapter 37th](pseudo_biblical/Chapter 37th - 1782.md) (1782)
-- [Chronicles of the Kings of England](pseudo_biblical/Chronicles of the Kings of England - 1773.md) (1773)
-- [Chronicles](pseudo_biblical/Chronicles, The Maryland Journal - 1766.md) (1766)
-
 IMAGE ONLY
 ----------
 
+- [Chronicles](pseudo_biblical/Chronicles - Massachusetts Centinal - 1786.md) (1786)
 - [The Book of Preferment](pseudo_biblical/The Book of Preferment - Horace Walpole - 1742.md) (1742)
 
 OCR ONLY
@@ -50,6 +44,7 @@ CLEAN+0
 CLEAN+1
 -------
 
+- [Chapter 37th](pseudo_biblical/Chapter 37th - 1782.md) (1782)
 - [Chronicles of Nathan Ben Saddi](pseudo_biblical/Chronicles of Nathan Ben Saddi - 1758.md) (1758)
 - [Reformer Chronicles](pseudo_biblical/Reformer Chronicles - 1832.md) (1832)
 - [The American Revolution](pseudo_biblical/The American Revolution - Richard Snowden - 1802.md) (1766)
