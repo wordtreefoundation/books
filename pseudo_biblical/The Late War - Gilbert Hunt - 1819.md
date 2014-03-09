@@ -2295,7 +2295,7 @@ THE Lord, in the plenitude of his wisdom and power, ordaineth all things which c
 
 CHAP. XXXII.
 
-Capture of Maiden and Detroit--the army of Gap. Proctor -retreat towards the Moravian towns--Gen. Harrison pursues them.
+Capture of Maiden and Detroit--the army of Gen. Proctor retreat towards the Moravian towns--Gen. Harrison pursues them.
 
 NOW when Perry had taken care of the captives, and the wounded, and set them upon the shore,
 
@@ -2305,7 +2305,7 @@ NOW when Perry had taken care of the captives, and the wounded, and set them upo
 
 4 And it came to pass, on the twenty-third day of the same month, in which Perry conquered the fleet of Britain,
 
-5 That Harrison, the chief captain, began to march the host of Columbia against the strong hold of Maiden, and captured a town called Amherstburg, nigh there unto.
+5 That Harrison, the chief captain, began to march the host of Columbia against the strong hold of Maiden, and captured a town called Amherstburg, nigh thereunto.
 
 6 Now Proctor was the chief captain of the savages and servants of the king.
 
@@ -2313,25 +2313,29 @@ NOW when Perry had taken care of the captives, and the wounded, and set them upo
 
 8 And Harrison, and the host of Columbia, followed hard after him.
 
-9 Now when the savages of the wilderness beheld the men of Britain flee before the warriors of Columbia, their spirits sunk, and they were sore amazed.
+9 Now when the savages of the wilderness beheld the men of Britain flee before the warriors of Columbia, their spirits sunk, and they were sore amazed.*
+
+* See Tecumseh's letter to Proctor.
 
 10 Moreover, they upbraided the servants of the king, saying, Lo ! ye have deceived us, and led us from our hunting grounds, and we are an hungered.
 
-11 For, verily, ye promised us bread and wine, and silver and gold ; yea, even that we should drink of the strong waters of Jamaica, if we would go out with you and fight the battles of the king, against the men of Columbia.
+11 For, verily, ye promised us bread and wine,* and silver and gold ; yea, even that we should drink of the strong waters of Jamaica, if we would go out with you and fight the battles of the king, against the men of Columbia.
+
+* At this time the British army were short of supplies.
 
 12 But, behold ! now ye would run away and leave us to fight alone.
 
 13 Whereupon many of their tribes cast away their tomahawks, and refused to fight under the banners of the king.
 
-14 And when Harrison came to Sandwich, Procter and his army had departed from the place, and fled to-wards the river Thames, near Moravian Town.
+14 And when Harrison came to Sandwich, Proctor and his army had departed from the place, and fled towards the river Thames, near Moravian Town.
 
-15 (Now the Thames emptieth its waters into the lake St. Clair, and the .Moravian Towns lie upon the river, about an hundred miles from Maiden, towards the north, in the province of Upper Canada.)
+15 (Now the Thames emptieth its waters into the lake St. Clair, and the Moravian Towns lie upon the river, about an hundred miles from Maiden, towards the north, in the province of Upper Canada.)
 
 16 Moreover, as they journied on, the brave M'Arthur crossed over with his band to the strong hold of Detroit, and took it.
 
 17 But the savages and the men of Britain had destroyed those things which they could not carry away, and fled in haste.
 
-18 So M'Arthur, in whom the chief captain put much faith, remained at Detroit in the charge thereof.
+18 So McArthur, in whom the chief captain put much faith, remained at Detroit in the charge thereof.
 
 19 And it came to pass, when Harrison saw that the host of Britain fled before him, he departed from Sandwich and went after them ; it being on the second day of the next month.
 
@@ -2341,7 +2345,7 @@ NOW when Perry had taken care of the captives, and the wounded, and set them upo
 
 22 And, when some of his captains said unto him, Lo ! There is a feast today : go thou and partake thereof, and refresh thyself, and we will watch ;
 
-23 He answered and said unto them, Nay, shall I go and riot, whilst the warriors of Columbia die on the frozen ground ?
+23 He answered and said unto them, Nay, shall I go and riot, whilst the warriors of Columbia lie on the frozen ground ?
 
 24 No, their fate shall be my fate ; and their glory shall be my glory.
 
@@ -2355,17 +2359,19 @@ NOW when Perry had taken care of the captives, and the wounded, and set them upo
 
 29 But the men of Columbia let two of the destroying engines loose upon them, and they fled into the wilderness like wild deer.
 
-CHAP. XXXIIL
+CHAP. XXXIII.
 
-Battle of the Thames--Gen. Harrison captures the British army under Gen Proctor--illuminations or account of it--news of it received in England.
+Battle of the Thames--Gen. Harrison captures the British army under Gen. Proctor--illuminations on account of it--news of it received in England.
 
-AND it came to pass, oh the fifth day of the same month, that Proctor, with the savages and the army of the king, rested upon advantageous ground, on the banks of the river Thames,
+AND it came to pass, on the fifth day of the same month, that Proctor, with the savages and the army of the king, rested upon advantageous ground, on the banks of the river Thames,
 
 2 Where he drew his army up in the order of battle after the fashion of these days, and prepared himself to meet the host of Columbia,
 
 3 Now the army of Proctor was mighty ; for he had a thousand horsemen : but the number of the savages that followed after him are not known to this time ; howbeit, they were many.
 
-4 And they were under the charge of a chief warrior, whom they called Tecumseh, a savage whom the king Mad made a chief captain.
+4 And they were under the charge of a chief warrior, whom they called Tecumseh, a savage whom the king had made a chief captain.*
+
+* Brig. General.
 
 5 And it came to pass, on the same day, in the latter part of the day, that the army of Harrison drew nigh unto the place.
 
@@ -2377,13 +2383,17 @@ AND it came to pass, oh the fifth day of the same month, that Proctor, with the 
 
 9 And the red savages appeared in the field before the men of Britain, for they had put them as a shield, at the front of the battle.
 
-10 And they yelled with dreadful yellings, and sound- ed aloud the war-whoop, which was the signal of death.
+10 And they yelled with dreadful yellings, and sounded aloud the war-whoop, which was the signal of death.
 
 11 But the army of Colombia rushed upon them with the fierceness of lions.
 
-12 And the weapons of war were used without mercy ; the foxes and the beavers -crept into their holes, for the destroying engines frightened the wild beasts, so that they looked for their hiding places.
+12 And the weapons of war were used without mercy ; the foxes and the beavers crept into their holes, for the destroying engines frightened the wild beasts, so that they looked for their hiding places.
 
-13 The gallant Johnson fell upon them with a band of chosen horsemen, and he drove them before him like chaff before the wind, and smote their chief warrior, and slew him with his own hand, so that he fell to the earth.
+13 The gallant Johnson* fell upon them with a band of chosen horsemen, and he drove them before him like chaff before the wind, and smote their chief warrior,** and slew him with his own hand, so that he fell to the earth.
+
+* Col. Johnson, of the Kentucky light-horse.
+
+** Tecumseh ; who was at that moment in the act of shooting the colonel.
 
 14 And the host of Columbia assailed the men of Britain on all sides, and overcame them, and made them prisoners of war ; whereupon the engines ceased to utter their thunders.
 
@@ -2407,7 +2417,7 @@ AND it came to pass, oh the fifth day of the same month, that Proctor, with the 
 
 24 So Harrison made a covenant with them, and they were thankful, and gave him hostages.
 
-25 Now there were great rejoicings in the land of "Columbia, and the hearts of the people were exceeding glad,
+25 Now there were great rejoicings in the land of Columbia, and the hearts of the people were exceeding glad,
 
 26 So that when the news thereof reached them they drank wine ; and when the evening came they lighted their candles, and put them in candlesticks of silver and candlesticks of gold, and placed them in the windows of their houses.
 
@@ -2419,11 +2429,13 @@ AND it came to pass, oh the fifth day of the same month, that Proctor, with the 
 
 30 They looked at one another like men who had lost their wits : they were silent, and their tongues clave to the roof of their mouths.
 
-31 Their knees smote one against another., for the strength of Britain was shaken ; her valiant warriors had lost their honor ; and her glory was outshone.
+31 Their knees smote one against another, for the strength of Britain was shaken ; her valiant warriors had lost their honor ;* and her glory was outshone.
+
+* Doubly lost it : by water and by land ; by being conquered, and by being cruel.
 
 32 Now there was great honour and praise bestowed upon Harrison for his courage, and his valiant acts ; and the people remembered his name with pleasure.
 
-33 Moreover, he gave great praise to Shelby, the governor, and ferry, and Johnson, and all the brave men that were with him.
+33 Moreover, he gave great praise to Shelby, the governor, and Perry, and Johnson, and all the brave men that were with him.
 
 34 And in the same month, when the object of the army was fulfilled, the husbandmen of Columbia returned every man to his own house.
 
@@ -2433,7 +2445,7 @@ AND it came to pass, oh the fifth day of the same month, that Proctor, with the 
 
 CHAP. XXXIV.
 
-Wax with, the Creek Nation of Indians--massacre at Fort Mimms--Georgia and Tennessee militia, under General Jackson retaliate.
+War with the Creek Nation of Indians--massacre at Fort Mimms--Georgia and Tennessee militia, under General Jackson retaliate.
 
 NOW it came to pass, while these things were going on in the north, and the repentant savages laid their murderous weapons at the feet of Harrison,
 
@@ -2445,7 +2457,7 @@ NOW it came to pass, while these things were going on in the north, and the repe
 
 5 Moreover, they were a nation of savages that dwelt in the back-woods and the wilderness round about the states of Georgia, Tennessee, and the Mississippi Territory.
 
-6 So about this .time, they took their weapons of death in their hands, and went against the strong hold of Fort Mimms, which lieth on a branch of the river Mobile, that emptieth its waters into the great Gulf of Mexico.
+6 So about this time, they took their weapons of death in their hands, and went against the strong hold of Fort Mimms, which lieth on a branch of the river Mobile, that emptieth its waters into the great Gulf of Mexico.
 
 7 And they captured the place ; and with the fury of demons they murdered, with the tomahawk, the men, the women, and the infants that were in and about the fort, sparing neither age nor sex ; and slaying the prisoners that begged for mercy.
 
@@ -2463,9 +2475,9 @@ NOW it came to pass, while these things were going on in the north, and the repe
 
 14 So they went forth against a town of the savages called Tallushatches, on the second day of the eleventh month.
 
-15 And on the next day they encompassed the town roundabout ; and the savages prepared themselves for battle.
+15 And on the next day they encompassed the town round about ; and the savages prepared themselves for battle.
 
-16 About the rising of the sun they sounded their drums. and began their horrible yellings.
+16 About the rising of the sun they sounded their drums, and began their horrible yellings.
 
 17 But they frightened not the hearts of the brave men of Tennessee.
 
@@ -2477,7 +2489,7 @@ NOW it came to pass, while these things were going on in the north, and the repe
 
 21 And slew about two hundred of their warriors , leaving not a man to tell the tidings.
 
-22 For, lo ! when the savages of the wilderness commit great evils and transgressions against .the people of Columbia,
+22 For, lo ! when the savages of the wilderness commit great evils and transgressions against the people of Columbia,
 
 23 The great Sanhedrim of the people send out mighty armies against them, that are able to overthrow them, and make their towns a desolation, and lay waste their habitations.
 
@@ -2485,39 +2497,39 @@ NOW it came to pass, while these things were going on in the north, and the repe
 
 25 And Jackson, the chief captain, gave great praise to Coffee, and all the valiant men that fought that day,
 
-26 On the next day after the battle, the army of Columbia returned to their camp, at a place called the Ten~ Islands.
+26 On the next day after the battle, the army of Columbia returned to their camp, at a place called the Ten-Islands.
 
 CHAP. XXXV.
 
-Continuation of the War with the Creeks--Gen. Jackson's great victory over them--they sue for peace--a. treaty is concluded with them.
+Continuation of the War with the Creeks--Gen. Jackson's great victory over them--they sue for peace--a treaty is concluded with them.
 
 NOTWITHSTANDING their discomfiture, the nation of the Creeks were still bent on warring against the people of Columbia.
 
-2 And they committed many outrages upon the in- habitants of the states round about.
+2 And they committed many outrages upon the inhabitants of the states round about.
 
 3 But it came to pass, on the seventh day of the same month, that a messenger came to Jackson, the chief captain, and spake unto him, saying :
 
-4 Lo ! even now, more than a thousand savages have pitched their tents at Talladega, near the strong hold of Lashley, with intent to assail it.
+4 Lo ! even now, more than a thousand savages have pitched their tents at Talledoga, near the strong hold of Lashley, with intent to assail it.
 
 5 Immediately Jackson took two thousand hardy men, who were called volunteers, because they had, unsolicited, offered their services to their country, and led them against the savages.
 
-6 Now. the men of war that followed after him were mostly from the state of Tennessee, and men of daunt- less courage.
+6 Now the men of war that followed after him were mostly from the state of Tennessee, and men of dauntless courage.
 
-7 So, early in the morning .of the next day, the army ,of Jackson drew nigh the place, in battle array.
+7 So, early in the morning of the next day, the army of Jackson drew nigh the place, in battle array.
 
 8 And the savages came out towards the army of Columbia, with shouting and yellings : and again the engines of destruction were used plentifully.
 
-9 And the leaden balls whizzed about their cars- like unto a nest of hornets.
+9 And the leaden balls whizzed about their ears like unto a nest of hornets.
 
-10 But the horsemen, and the whole army of Jack- son, rushed upon the savages, and slew them with great slaughter, and overcame them.
+10 But the horsemen, and the whole army of Jackson, rushed upon the savages, and slew them with great slaughter, and overcame them.
 
-11 And the number of savages slain that day was a- bout three hundred ; and a red cross banner of the Spanish nation was found amongst them, and taken.
+11 And the number of savages slain that day was about three hundred ; and a red-cross banner of the Spanish nation was found amongst them, and taken.
 
-12 Seventeen of the men of Columbia, were slain and about four score wounded.
+12 Seventeen of the men of Columbia were slain and about four score wounded.
 
 13 So, when the battle was over, Jackson returned to his own camp.
 
-14 After these things had come to pass, on the twelfth day of the month, a certain captain, whose sir-Dame was White, was sent against another place called the Hillabee-Towns.
+14 After these things had come to pass, on the twelfth day of the month, a certain captain, whose sir-name was White, was sent against another place called the Hillabee-Towns.
 
 15 And, on the eighteenth day of the same month, he took the towns, and destroyed them, and slew three score of the savages, and made about two hundred two score and ten prisoners.
 
@@ -2549,17 +2561,17 @@ NOTWITHSTANDING their discomfiture, the nation of the Creeks were still bent on 
 
 29 Manahoee their chief prophet, was smitten in the mouth and slain, and two other false prophets were slain with him.
 
-30 Moreover, about the first day of the sixth month, a brave man, whose name was Pearson, with the husbandmen of the states of North and South Carolina,, went against them along the borders of the Alabama, and captured about six hundred of them.
+30 Moreover, about the first day of the sixth month, a brave man, whose name was Pearson, with the husbandmen of the states of North and South Carolina, went against them along the borders of the Alabama, and captured about six hundred of them.
 
-31 Thus did the men of Columbia triumph over them, and conquer them, even to. the seventh time.
+31 Thus did the men of Columbia triumph over them, and conquer them, even to the seventh time.
 
-32 And so the judgment of the Lord fell upon them- for their unrighteousness, and for their wicked and murderous deed's.
+32 And so the judgment of the Lord fell upon them for their unrighteousness, and for their wicked and murderous deeds.
 
 33 After which they repented of their evil, having, through their own folly, lost many thousand warriors.
 
 34 And their chief warriors gave up their instruments of destruction, and laid them at the feet of Jackson, the chief captain.
 
-35 Even Wetberford, the chief warrior, gave him* self up to Jackson, saying, I fought with my might ; but I have brought evil upon my nation ; and thou hast slain my warriors ; and I myself am overcome
+35 Even Wetberford, the chief warrior, gave himself up to Jackson, saying, I fought with my might ; but I have brought evil upon my nation ; and thou hast slain my warriors ; and I myself am overcome
 
 36 Now the savages are easily inflamed and roused to works of sin and death ; and of their weakness the servants of the king are not ashamed to take advantage ; even to the ruin of the poor and ignorant barbarians.
 
@@ -2579,7 +2591,7 @@ NOTWITHSTANDING their discomfiture, the nation of the Creeks were still bent on 
 
 44 And after it had been examined by the wise men and the great Sanhedrim of the people, it was ratified and signed with the hand-writing of James, the chief governor of the land of Columbia.
 
-CHAP. XXXVI
+CHAP. XXXVI.
 
 Plan of attack on Montreal defeated.
 
