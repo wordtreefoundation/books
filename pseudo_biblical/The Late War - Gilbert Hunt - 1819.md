@@ -2727,13 +2727,15 @@ NOW whilst the great lakes and rivers were bound in fetters of ice , and the arm
 
 15 Moreover , David went to an island where dwelt wild savages , and established himself , so that he could go out and return , whensoever he chose.
 
-16 And when he departed from the island , which he called after the chief governor of the land of Columbia in those days , he left some of his men , with the weapons of war to defend the place.
+16 And when he departed from the island , which he called after the chief governor of the land of Columbia in those days ,* he left some of his men , with the weapons of war to defend the place.
+
+* Madison Island.
 
 17 Now David was a grievous thorn in the side of Britain , and he almost destroyed her whole commerce in the South Seas :
 
 18 Inasmuch as he put the wise men of the king to their wits end ; for they were unable to out-sail him and take him captive.
 
-19 So they sent their strong ships- in search of him , by two's , over the whole face of the waters of the Southern Ocean ; and the expense thereof would have made more than two feasts for the Prince Regent , who governed England in the name of his father.
+19 So they sent their strong ships in search of him , by two's , over the whole face of the waters of the Southern Ocean ; and the expense thereof would have made more than two feasts for the Prince Regent , who governed England in the name of his father.
 
 20 However , it came to pass , that David returned again in his ship to the haven of Valparaiso ; and the vessel , called the Essex Junior , accompanied him.
 
@@ -2741,7 +2743,7 @@ NOW whilst the great lakes and rivers were bound in fetters of ice , and the arm
 
 22 So , whilst David was there , on the twenty-eighth day of the third month , in the eighteen hundred and fourteenth year of the Christian era ,
 
-23 He looked around , and behold ! he saw two of the strong ships of Britain approaching , for the purpose of hemming him in ; the one called the Phoebe , and the other the Cherub ,
+23 He looked around , and behold ! he saw two of the strong ships of Britain approaching , for the purpose of hemming him in ; the one called the Phoebe , and the other the Cherub.
 
 24 But his heart sank not within him , for he knew no cowardice ; but , with the wisdom of a brave man , he strove to escape , as the vessels were too powerful for him.
 
@@ -2751,7 +2753,7 @@ NOW whilst the great lakes and rivers were bound in fetters of ice , and the arm
 
 27 And her fame shall not suffer , although in the contest ye may destroy my vessel upon the face of the waters.
 
-28 But Hillyar. the captain of the king's ship called the Phoebe , was afraid lest he should be overcome.
+28 But Hillyar, the captain of the king's ship called the Phoebe , was afraid lest he should be overcome.
 
 29 Now , when David found he was unable to make good his escape , he drew nigh the land , that he might be protected by the great law of nations ; for it was a place friendly to both parties.
 
@@ -2763,7 +2765,7 @@ NOW whilst the great lakes and rivers were bound in fetters of ice , and the arm
 
 33 Nevertheless , David fought against them with desperation , for there was no hope left for him to escape ; neither did he expect mercy.
 
-34 And he held out for more than the space of two hours , when he became overpowered ; having his ship a sinking wreck , covered with blood , and on fire ; with about an hundred and fifty of his men slain and maimed:
+34 And he held out for more than the space of two hours , when he became overpowered ; having his ship a sinking wreck , covered with blood , and on fire ; with about an hundred and fifty of his men slain and maimed :
 
 35 So , after David had fought hard , he became captive to the ships of the king ; who had also some of their men slain , and some wounded.
 
@@ -2771,7 +2773,7 @@ NOW whilst the great lakes and rivers were bound in fetters of ice , and the arm
 
 37 And David made a covenant with Hillyar , in which the Essex Junior was given unto him and his men , that they might return in her again to their own country.
 
-38 And it came to pass , in the seventh month of the same year of the battle , David arrived in the city of New- York ; having been absent about two years.
+38 And it came to pass , in the seventh month of the same year of the battle , David arrived in the city of New-York ; having been absent about two years.
 
 39 Now when the people of Columbia beheld the valiant Porter , they were rejoiced with exceeding great joy ; inasmuch as they unharnessed the horses from before his chariot , and drew him through the city.
 
@@ -2779,13 +2781,13 @@ NOW whilst the great lakes and rivers were bound in fetters of ice , and the arm
 
 CHAP. XXXIX.
 
-Capture of the U. S. sloop of war Frolic , by the British frigate Orpheus--capture of the British sloop of war L" Epervier , by the Peacock. Cant. Warrington--capture of the Reindeer , by the Wasp , Capt Blukely--the Avon captured and sunk--U. S. vessels Syren and Rattlesnake captured--Admiral Cochrane declares the whole American coast in a state of blockade.
+Capture of the U. S. sloop of war Frolic , by the British frigate Orpheus--capture of the British sloop of war L'Epervier , by the Peacock. Capt. Warrington--capture of the Reindeer , by the Wasp , Capt. Blakely--the Avon captured and sunk--U. S. vessels Syren and Rattlesnake captured--Admiral Cochrane declares the whole American coast in a state of blockade.
 
 NOW it happened on the twenty-first day of the fourth month of the eighteen hundred and fourteenth year , that one of the strong ships of the king , called the Orpheus ;
 
 2 Being upon the waters of the great deep , fell in with a small vessel of the United States , called the Frolic , and made capture thereof.
 
-3 However , in the same month , not many days after- wards , a fighting vessel of Columbia , called tire Peacock ," commanded by the brave Warrington , met one of the vessels of the king.
+3 However , in the same month , not many days afterwards , a fighting vessel of Columbia , called the Peacock , commanded by the brave Warrington , met one of the vessels of the king.
 
 4 Now they were about equal in force ; and the name of the vessel of Britain was called L'Epervier and the captain's name was Wales.
 
@@ -2803,9 +2805,9 @@ NOW it happened on the twenty-first day of the fourth month of the eighteen hund
 
 11 Likewise , the people of Savannah , a chief town in the state of Georgia , being a thousand miles to the south of New-York , honored him greatly.
 
-12 For he had brought both vessels into their port ; and 1 ere were much rejoicings ; and a rich feast was prepared for him by the people.
+12 For he had brought both vessels into their port ; and there were much rejoicings ; and a rich feast was prepared for him by the people.
 
-13 Moreover , it came to pass , on the twenty-eighth day of the sixth month , that one of the fighting s hips of Columbia , called the Wasp , met a Vessel of the king , upon the ocean , called the Reindeer ; after one of the swift running animals of Columbia ,
+13 Moreover , it came to pass , on the twenty-eighth day of the sixth month , that one of the fighting ships of Columbia , called the Wasp , met a Vessel of the king , upon the ocean , called the Reindeer ; after one of the swift running animals of Columbia ,
 
 14 Now the wasp was commanded by a man of courage , whose name was Blakely.
 
@@ -2823,7 +2825,9 @@ NOW it happened on the twenty-first day of the fourth month of the eighteen hund
 
 21 And the slain and wounded of the Avon , was two score and two.
 
-22 Howbeit about the same time , the Syren and the Rattlesnake fell into the hands of the king.
+22 Howbeit about the same time , the Syren and the Rattlesnake* fell into the hands of the king.
+
+* U. S. schooner and brig , about 14 guns each.
 
 23 About this time , the whole land of Columbia was ordered to be hemmed in by Cochrane , a servant of the king , and a chief captain of the navy of Britain.
 
@@ -2847,19 +2851,23 @@ NOW it came to pass , in the second month of the same year in which David gat ho
 
 7 In the meanwhile many of the evils of warfare were committed on and about the waters of Ontario and the great lake Erie.
 
-8 And a gallant captain , whose name was Appling. took about two hundred of the mariners of the royal navy of Britain , at a place called Sandy-Creek , by the waters of lake Ontario : being in the same month that the strong hold of Oswego was taken by the men of Britain.
+8 And a gallant captain , whose name was Appling ,* took about two hundred of the mariners of the royal navy of Britain , at a place called Sandy-Creek , by the waters of lake Ontario : being in the same month that the strong hold of Oswego was taken by the men of Britain.
+
+* Major Appling.
 
 9 Now on the third day of the seventh month , it came to pass , that Jacob , the chief captain of the host of Columbia , on the borders of the river Niagara ,
 
 10 Having prepared his men beforehand , crossed the river and captured fort Erie , and an hundred thirty and seven of the soldiers of the king , and some of the destroying engines ;
 
-11 And the next day being the anniversary of the "independence of Columbia , after having left some of the men of war to defend the place ,
+11 And the next day being the anniversary of the independence of Columbia , after having left some of the men of war to defend the place ,
 
 12 He moved with his host towards the plains of Chippawa , where they rested for the night.
 
 13 On the next day Jacob assembled his captains of fifties , and his captains of hundreds , and spake unto them , saying ,
 
-14 Lo ! the army of the king are mighty men of valor , and their numbers are great , even those who fought in Spain , under the banners of Wellington , the chief warrior of Britain ; and Riall , the chief captain of the host , is a man of great experience :
+14 Lo ! the army of the king are mighty men of valor , and their numbers are great , even those who fought in Spain , under the banners of Wellington ,* the chief warrior of Britain ; and Riall , the chief captain of the host , is a man of great experience :
+
+* Lord Wellington.
 
 15 Nevertheless , be not disheartened ; but let us beware that we be not ensnared.
 
@@ -2879,21 +2887,23 @@ NOW it came to pass , in the second month of the same year in which David gat ho
 
 23 And the field of battle was covered with the slain and the maimed ; even eight hundred men.
 
-24 And the slain and wounded of the servants of the Heine' were about five hundred.
+24 And the slain and wounded of the servants of the king were about five hundred.
 
-23 So Jacob and his army gat great praise , and a the warriors of Columbia that fought that day :
+25 So Jacob and his army gat great praise , and all the warriors of Columbia that fought that day :
 
-26 Amongst whom were the volunteers of the states of New- York and Pennsylvania , who were led on by the gallant Porter.
+26 Amongst whom were the volunteers of the states of New-York and Pennsylvania , who were led on by the gallant Porter.*
+
+* Gens. Porter , Ripley , and Scott.
 
 27 And Ripley was there , and the brave Scott , who went out and fought in the heat of the battle.
 
-CHAP XLI
+CHAP. XLI.
 
 Battle of Bridgewater.
 
 NOW about this time there was peace among the strong powers of Europe ; and the strength of Britain was free to be employed against the people of Columbia.
 
-2 So she increased her navy on the shores of Columbia , and strengthened her armies in Canada ; and .sent skilful men to conduct them and to fight her battles :
+2 So she increased her navy on the shores of Columbia , and strengthened her armies in Canada ; and sent skilful men to conduct them and to fight her battles :
 
 3 And , in her spite , she emptied out the vials of her vengeance upon the United States.
 
@@ -2905,7 +2915,7 @@ NOW about this time there was peace among the strong powers of Europe ; and the 
 
 7 Now the numbers of the host of Columbia were less than the host of the king , who were commanded by two chief captains , the one named Drummond , and the other Riall ;
 
-8> Nevertheless , Jacob went out against them and gave them battle : and the army of Columbia shouted aloud , and the battle waxed hot beyond measure.
+8 Nevertheless , Jacob went out against them and gave them battle : and the army of Columbia shouted aloud , and the battle waxed hot beyond measure.
 
 9 And it lasted for the space of seven hours ; even until the midnight.
 
@@ -2913,9 +2923,13 @@ NOW about this time there was peace among the strong powers of Europe ; and the 
 
 11 But it came to pass , that the army of Columbia drove the invincibles of Wellington from the field.
 
-12 The valiant Miller , with his band , rushed upon the soldiers of the king , with the sharp points of his weapons of war , that faintly glittered in the light of the moon , and overcame them.
+12 The valiant Miller , with his band , rushed upon the soldiers of the king , with the sharp points of his weapons of war , that faintly glittered in the light of the moon , and overcame them.*
 
-13 Moreover , Drummond , the chief captain of the king , was wounded , and in danger of being made captive ; and Riall , the chief captain , was taken and fell into the hands of the brave Jessup.
+* Miller's brilliant charge on the enemy.
+
+13 Moreover , Drummond , the chief captain of the king , was wounded , and in danger of being made captive ; and Riall , the chief captain , was taken and fell into the hands of the brave Jessup.*
+
+* Major Jessup , of the 25th Reg.
 
 14 And Jacob , the chief captain of the host of Columbia , was sorely wounded ; and the brave Scott was wounded also.
 
@@ -2931,11 +2945,13 @@ NOW about this time there was peace among the strong powers of Europe ; and the 
 
 CHAP. XLII.
 
-Assault on Fort Erie , by the British , under Gen. Drummond--Gen. Brown resumes his command--sallies out of Fort Erie against the British camp--M' Arthur's expedition into Canada.
+Assault on Fort Erie , by the British , under Gen. Drummond--Gen. Brown resumes his command--sallies out of Fort Erie against the British camp--McArthur's expedition into Canada.
 
-1 AND it came to pass , on the fourth day of the. next month , being the same day that the gallant Morgan , with two hundred and two score men , drove a thousand soldiers of the king from before Black Rock ,
+1 AND it came to pass , on the fourth day of the next month , being the same day that the gallant Morgan , with two hundred and two score men , drove a thousand soldiers of the king from before Black Rock ,
 
-2 That a chief captain of Columbia whose name was Gaines , arrived from Sackett's Harbor at Fort Erie ; and took the command thereof.
+2 That a chief captain of Columbia whose name was Gaines ,* arrived from Sackett's Harbor at Fort Erie ; and took the command thereof.
+
+* Gen. Gaines.
 
 3 And it was so , that on the following day the army of the king approached towards the fort , and encamped themselves.
 
@@ -2945,7 +2961,9 @@ Assault on Fort Erie , by the British , under Gen. Drummond--Gen. Brown resumes 
 
 6 And as their deeds were evil , they began in the dead of the night , when the howlings of the wild wolf are heard from afar , and the steady roar of distant waterfalls , catches the ear of the drowsy centinel.
 
-7 Lo ! it was a night dark and gloomy ; and the very clouds of heaven wept for the folly of man.
+7 Lo ! it was a night dark and gloomy ; and the very clouds of heaven wept for the folly of man.*
+
+* It was a rainy night.
 
 8 Quickly did the weapons of murder disturb and trouble the general silence.
 
@@ -2955,15 +2973,17 @@ Assault on Fort Erie , by the British , under Gen. Drummond--Gen. Brown resumes 
 
 11 About this time , a man of Columbia , who was sorely wounded , begged of an officer of the king that his life might be spared ;
 
-12 But the captain , whose name was Drummond , to whom he spake , refused him quarters ; and , taking an oath , he swore , and cursed the men of Columbia , saying , Even as I slay thee , so shall it be with ye all.
+12 But the captain , whose name was Drummond ,* to whom he spake , refused him quarters ; and , taking an oath , he swore , and cursed the men of Columbia , saying , Even as I slay thee , so shall it be with ye all.
 
-13 Thus violating the commandment of God. which sayeth , Thou shalt do no murder.
+* Col. Drummond.
 
-14 But the hand of the Lord was stretched cut against him ; for while he was yet speaking , in the wickedness of his heart , he was smitten dead to the earth.
+13 Thus violating the commandment of God , which sayeth , Thou shalt do no murder.
+
+14 But the hand of the Lord was stretched out against him ; for while he was yet speaking , in the wickedness of his heart , he was smitten dead to the earth.
 
 15 Now , although the men of Britain did some injury to the fort , they were quickly compelled to depart.
 
-16 And the slain and wounded of the king that sight , were about seven hundred , besides two hundred captives.
+16 And the slain and wounded of the king that night , were about seven hundred , besides two hundred captives.
 
 17 The loss of the United States was about an hundred men.
 
@@ -2979,11 +2999,11 @@ Assault on Fort Erie , by the British , under Gen. Drummond--Gen. Brown resumes 
 
 23 About this time Izard , the chief captain , arrived at Fort Erie , from Plattsburgh , and , as he was the oldest captain , he took the charge of the army of the north.
 
-24 Daring these circumstances , it happened that the brave M' Arthur , who had remained at the strong hold of Detroit , to defend it ,
+24 During these circumstances , it happened that the brave McArthur , who had remained at the strong hold of Detroit , to defend it ,
 
 25 Moved his army towards Burlington Heights , and went more than an hundred miles into the province of Canada.
 
-26 And the men of Columbia that went with him were valiant men. from the states of Kentucky and Ohio in number about eight hundred.
+26 And the men of Columbia that went with him were valiant men , from the states of Kentucky and Ohio in number about eight hundred.
 
 27 Victory perched upon their arms , and they slew some of the servants of the king , and made many prisoners , and returned again with the loss of one man.
 
@@ -2991,7 +3011,7 @@ Assault on Fort Erie , by the British , under Gen. Drummond--Gen. Brown resumes 
 
 CHAP. XLIII.
 
-Attack on Stonington , by the British ships of war which art defeated and driven of.
+Attack on Stonington , by the British ships of war which are defeated and driven off.
 
 IN these days the strong powers of Britain strove hard to quench the fire of Columbian Liberty ,
 
@@ -2999,15 +3019,17 @@ IN these days the strong powers of Britain strove hard to quench the fire of Col
 
 3 Now it came to pass , on the ninth day of the eighth month of the same year ,
 
-4 That the mighty ships of Britain came and opened their thundering engines upon the little town of Stonington , which lieth in the slate of Connecticut , in the east.
+4 That the mighty ships of Britain came and opened their thundering engines upon the little town of Stonington , which lieth in the state of Connecticut , in the east.
 
 5 But the inhabitants of the place were bold and valiant men , and they scorned to make a covenant with the servants of the king.
 
-6 Although Hardy , the chief captain of the king's ships had threatened to destroy the place ; saying , Re-move from the town your women and your children , who are innocent and fight not.
+6 Although Hardy ,* the chief captain of the king's ships had threatened to destroy the place ; saying , Remove from the town your women and your children , who are innocent and fight not.
+
+* Com. Hardy , a captain under Lord Nelson , at the battle of Trafalgar.
 
 7 Thus shewing more righteousness than any of the king's captains : albeit , he gave them only the space of one hour to depart :
 
-S So the men of Columbia let the destroying engines loose upon the vessels , and shot the yankee balls amongst them plentifully , and compelled them to depart :
+8 So the men of Columbia let the destroying engines loose upon the vessels , and shot the yankee balls amongst them plentifully , and compelled them to depart :
 
 9 Notwithstanding , they had but two of the destroying engines in the place.
 
@@ -3027,25 +3049,67 @@ S So the men of Columbia let the destroying engines loose upon the vessels , and
 
 17 And the gallant conduct of the people of Stonington gained them much praise , even from the great Sanhedrim of the people.
 
-18 Thus would the men of Columbia have done , in. many other places , but for the false words and wickedness of traitorous men.
+18 Thus would the men of Columbia have done , in many other places , but for the false words and wickedness of traitorous men.
 
-Chap. XLIV.
+CHAP. XLIV.
 
 Affairs in the Chesapeake--British army move up the Patuxent--land and march towards the city of Washington--prepare themselves for battle at Bladensburgh.
 
 NOW the mighty fleet of Britain , that troubled the waters of the great Bay of Chesapeake , commanded by Cockburn the wicked , continued their depredations.
 
-2 The number of their lighting ships were increased , and the soldiers of the king had come thither in multitudes from the island of Britain.
+2 The number of their fighting ships were increased , and the soldiers of the king had come thither in multitudes from the island of Britain.
 
-3 For the war which she had waged against the mighty ruler of France , was at an end ; and all their men of war were idle ; so they sent them against the men of Columbia , who slew them with terrible slaughter.
+3 For the war which she had waged against the mighty ruler of France ,* was at an end ; and all their men of war were idle ; so they sent them against the men of Columbia , who slew them with terrible slaughter.
+
+* Buonaparte.
 
 4 Now the numbers of the servants and soldiers of the king , in and about the Chesapeake , were little fewer than ten thousand.
 
 5 And they moved up the great river , which is called the Potowmac , and the river Patuxent , which lieth to the east thereof.
 
-6 So , as they passed along , they did much damage.
+6 So , as they passed along , they did much damage ; and destroyed abundance of the sweet-scented plant of Virginia , burning it with fire.
 
-CHAP. XLV
+7 Now this weed is a native of the land of Columbia , and groweth not on the island of Britain :
+
+8 Therefore , the nostrils of the servants of Britain were regaled with the scent thereof , for the king had put a silver bar* against its plentiful use , throughout his whole dominions.
+
+* The tax on tobacco , manufactured in England is very heavy.
+
+9 However , it came to pass , about the twentieth day of the same month , that the whole army of Britain gat out of their vessels and their boats , at a place called Benedict , being towards the head of the river Patuxent.
+
+10 And a man of great experience in matters of warfare , sir-named Ross, was chief captain of the host of Britain.
+
+11 So they marched on towards Washington , which lieth on the waters of the Potowmac , and is called the chief city of the land of Columbia ; where the great Sanhedrim assemble themselves together.
+
+12 And they journied on until they came to a place called Bladensburgh , which lieth to the east of the city , not far off.
+
+13 And Cockburn staid not behind , for his heart thirsted after blood and murder.
+
+14 Now this was on the twenty-fourth day of the eighth month , in the one thousand eight hundred and fourteenth year of the Christian era.
+
+15 And the army of Columbia that went out to meet the host of Britain , was commanded by a brave man , whose name was Winder.
+
+16 But it was in the heat of the summer , and the husbandmen of Columbia , that went out to defend the place , were weary , for they had travelled many miles from the house of their fathers.
+
+17 Moreover , their numbers were few at the onset : for those that were journeying on their way came not in time.
+
+18 Nevertheless , they who came , prepared themselves for the fight , in the hope that they might not be overcome by the servants of the king.
+
+19 And it was so , that when Ross , the chief captain of the host of Britain , drew nigh the place , and saw that the men of Columbia were bent on giving him hindrance ,
+
+20 He addressed the officers and men of his army , and encouraged them , saying ,
+
+21 Lo ! we are stronger than the host of Columbia , therefore let us go with all our might against their chief city , and make capture thereof ,
+
+22 And burn it with fire , and take their chief governor , and bind him hand and foot , and bring him before the king.
+
+23 Moreover , let us surround the temple of the great Sanhedrim of the nation , and endeavor to catch them , even as the huntsman catcheth foxes.
+
+24 Then shall we strike terror throughout the land of Columbia , and the arms of the king , our master , shall be encircled with glory.
+
+25 The spirit of the people will be broken ; they will bow down to the servants of the king : and all the nations will behold the valiant deeds of Britain.
+
+CHAP. XLV.
 
 Attack on Washington--Sacking of Alexandria--death of Sir Peter Parker.
 
@@ -3053,7 +3117,7 @@ NOW , when Ross , the chief captain , had done speaking , they sent forth their 
 
 2 Nevertheless , the men of Columbia were not dismayed , but poured out their thunders upon them in abundance.
 
-3 And Joshua , sir-named Barney , who commanded the vessels of Columbia near the place , with bis brave men , went out upon the land , and fought against them with desperation.
+3 And Joshua , sir-named Barney , who commanded the vessels of Columbia near the place , with his brave men , went out upon the land , and fought against them with desperation.
 
 4 For he had ordered his little fleet to be burnt with fire , that the men of Britain might not profit thereby , and it blew up in the air with a loud noise.
 
