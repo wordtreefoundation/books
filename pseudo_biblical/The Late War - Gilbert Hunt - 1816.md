@@ -2538,7 +2538,7 @@ THE Lord, in the plenitude of his wisdom and power, ordaineth all things which c
 
 10 It was silence upon the waters ; save when the sound of musical instruments fell sweetly upon the ear.
 
-11 But it happened, a little before the mid-day, that the shouts of the men of war of Britain were heard, and the shouts of the men of Columbia.
+11 But it happened, a little before the midday, that the shouts of the men of war of Britain were heard, and the shouts of the men of Columbia.
 
 12 And now the destroying engines began to utter their thunders, vomiting forth fire and smoke and brimstone in abundance.
 
@@ -2562,9 +2562,9 @@ THE Lord, in the plenitude of his wisdom and power, ordaineth all things which c
 
 [164]
 
-21 And it came to pass, that the skilful contrivance of Perry, and the bravery of his men, at length forced the whole fleet of the king to become captive, even unto the cock-boats of Columbia.
+21 And it came to pass, that the skilful contrivance of Perry, and the bravery of his men, at length forced the whole fleet of the king to become captive, even unto the cock boats of Columbia.
 
-22 Thus again was the mighty lion humbled before the eagle: for six strong vessels of Britain were overcome at one time.
+22 Thus again was the mighty lion humbled before the eagle : for six strong vessels of Britain were overcome at one time.
 
 23 And the slain and wounded of the king that day, was an hundred thirty and five ; besides there were about a thousand prisoners.
 
@@ -2580,6 +2580,8 @@ THE Lord, in the plenitude of his wisdom and power, ordaineth all things which c
 
 28 For when he had conquered the fleet of Britain, he wrote to Jones,* one of the scribes of the great Sanhedrim, with modesty, saying,
 
+* W. Jones, Secretary of the Navy.
+
 29 To day it hath pleased the Lord that the people of Columbia should triumph over their enemies.
 
 30 At the same time he wrote to Harrison, the chief captain of the host of Columbia, whose army was at the bay of Sandusky, saying, We have met the enemy, and they are ours !
@@ -2590,11 +2592,9 @@ THE Lord, in the plenitude of his wisdom and power, ordaineth all things which c
 
 33 Likewise, the people gave him much silver plate, with gravings thereon, mentioning his deeds.
 
-* W. Jones, Secretary of the Navy.
-
 [166]
 
-34 And the bye-slander might read his triumph in his country's eyes.
+34 And the bye stander might read his triumph in his country's eyes.
 
 35 His sons shall hear him spoken of with pleasure ; and his name shall be mentioned in the song of the virgins.
 

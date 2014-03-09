@@ -2217,15 +2217,15 @@ CHAP. XXXI.
 
 The capture of the British Fleet on Lake Erie by the American Fleet, under Com. Perry.
 
-THE Lord, in the plenitude of his wisdom and power, ordaineth all things which come to pass: and the doings are for the benefit of man, and for the glory of God.
+THE Lord, in the plenitude of his wisdom and power, ordaineth all things which come to pass : and the doings are for the benefit of man, and for the glory of God.
 
-2 For where is the evil which hath not turned to an ad- vantage, and been a warning', and swallowed up the evil that might have come ?
+2 For where is the evil which hath not turned to an advantage, and been a warning, and swallowed up the evil that might have come ?
 
-3 Now about this time the strong vessels of Columbia that moved upon the face of the blue waters of the great lake Erie, were given in charge to Oliver, whose sir- name was Percy.
+3 Now about this time the strong vessels of Columbia that moved upon the face of the blue waters of the great lake Erie, were given in charge to Oliver, whose sir-name was Perry.
 
-4 And he was a prudent man, and had prepared him- self to meet the vessels of the king, even forty days beforehand.
+4 And he was a prudent man, and had prepared himself to meet the vessels of the king, even forty days before hand.
 
-5 And the name, of of the captain of the fleet of Britain was Barclay, a man of great valor ; but he boasted and was vain of his fleet, for it was more powerful than the fleet of Columbia.
+5 And the name, of the captain of the fleet of Britain was Barclay, a man of great valor ; but he boasted and was vain of his fleet, for it was more powerful than the fleet of Columbia.
 
 6 Nevertheless, it came to pass, in the one thousand eight hundred and thirteenth year, on the tenth day of the ninth month, early in the morning, about the rising of the sun,
 
@@ -2243,7 +2243,7 @@ THE Lord, in the plenitude of his wisdom and power, ordaineth all things which c
 
 13 And suddenly the waters were in an uproar ; and the bellowing noises sounded along the lake.
 
-14 Moreover, the chief force of the ship ? of the king was put against the vessel in which Perry was ;
+14 Moreover, the chief force of the ships of the king was put against the vessel in which Perry was ;
 
 15 And the vessel was called the Lawrence, after a brave man, whose dying words waved upon her aloft :
 
@@ -2253,13 +2253,13 @@ THE Lord, in the plenitude of his wisdom and power, ordaineth all things which c
 
 18 He put the charge of the vessel into the hands of one of his officers, whose name was Yarnell, a trusty man ;
 
-19 Then, with the starry banner of Columbia in his band, did the gallant Perry leap into his cock-boat, while his brave mariners quickly conveyed him to another fighting vessel of the United States called the Niagara, commanded by a valiant m in, whose name was Elliot.
+19 Then, with the starry banner of Columbia in his hand, did the gallant Perry leap into his cock-boat, while his brave mariners quickly conveyed him to another fighting vessel of the United States called the Niagara, commanded by a valiant man, whose name was Elliot.
 
-20 After this again the vessels uttered heir thunders and fought hard, and the men of Columbia poured out destruction upon die servants of the king.
+20 After this again the vessels uttered their thunders and fought hard, and the men of Columbia poured out destruction upon the servants of the king.
 
 21 And it came to pass, that the skilful contrivance of Perry, and the bravery of his men, at length forced the whole fleet of the king to become captive--even unto the cock boats of Columbia.
 
-22 Thus again was the mighty lion humbled before .the eagle :for six strong vessels of Britain were overcome at one time.
+22 Thus again was the mighty lion humbled before the eagle : for six strong vessels of Britain were overcome at one time.
 
 23 And the slain and wounded of the king that day, was about an hundred thirty and five ; beside there were a thousand prisoners.
 
@@ -2267,11 +2267,13 @@ THE Lord, in the plenitude of his wisdom and power, ordaineth all things which c
 
 25 Moreover, the number of the men of Britain made captive was more than all the men of Perry's squadron.
 
-26 Now Perry was a righteous man, and like the good Samaritan, took care of the halt and maimed, and put skilful men to bind up their wounds ; and the men. of Britain blessed him.
+26 Now Perry was a righteous man, and like the good Samaritan, took care of the halt and maimed, and put skilful men to bind up their wounds ; and the men of Britain blessed him.
 
 27 Neither was he a man puffed up with vanity, even in the hour of victory ;
 
-28 For when he had conquered the fleet of Britain, he wrote to Jones, one of the scribes of the great Sanhedrim, with modesty, saying,
+28 For when he had conquered the fleet of Britain, he wrote to Jones,* one of the scribes of the great Sanhedrim, with modesty, saying,
+
+* W. Jones, Secretary of the Navy.
 
 29 To day it hath pleased the Lord that the people of Columbia should triumph over their enemies.
 
@@ -2287,7 +2289,7 @@ THE Lord, in the plenitude of his wisdom and power, ordaineth all things which c
 
 35 His sons shall hear him spoken of with pleasure, and his name shall be mentioned in the song of the virgins.
 
-36 Where, oh ! Britain, are now thy mighty admirals ? where thy Nelson ? where the transcendent glory they gained for thee ?
+36 Where, oh ! Britain, are now thy mighty admirals ? where thy Nelson ? where the transcendant glory they gained for thee ?
 
 37 Alas ! it hath expired upon the waters of Erie before the destroying engines of Perry !
 
