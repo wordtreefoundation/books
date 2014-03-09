@@ -998,11 +998,11 @@ NOW it happened on the twenty-fifth day of the tenth month , in the first year o
 
 22 The ship United States , and the ship Macedonian came into the haven of New-York , having passed a certain dangerous place called Hell-gate ; and there was a heavy fog that day.
 
-23 And there were great rejoicings in the city of New- York , and throughout the land of Columbia.
+23 And there were great rejoicings in the city of New-York , and throughout the land of Columbia.
 
 24 Moreover , there was a sumptuous dinner given to Isaac , Decatur , and Jones , in honor of their valiant deeds ; and the number of the guests were about five hundred.
 
-25 And the inhabitants of New- York made a great feast , on the ninth day of the month , for the brave mariners that wrought in the ship of Columbia.
+25 And the inhabitants of New-York made a great feast , on the ninth day of the month , for the brave mariners that wrought in the ship of Columbia.
 
 26 And they became merry with the drinking of wine ; after which they departed and went into a house of mirth and gaiety.*
 
@@ -3647,7 +3647,7 @@ NOW , it happened that , in the land of Columbia , there arose up wise and learn
 
 15 And certain skilful men were appointed commissioners to construct this new and dreadful engine of destruction ,
 
-16 And Samuel , a philosopher , sir-named Mitchel , a citizen of New- York , was one of the commissioners ; also , Rutgers , and Morris , and Wolcot , and Dearborn , were other commissioners ; and they all gave their services freely for the good of their country.
+16 And Samuel , a philosopher , sir-named Mitchel , a citizen of New-York , was one of the commissioners ; also , Rutgers , and Morris , and Wolcot , and Dearborn , were other commissioners ; and they all gave their services freely for the good of their country.
 
 17 Now she was equipped with thirty of the engines of destruction ; and the weight of a ball that they vomited forth was about a thousand shekels.
 
@@ -3751,7 +3751,7 @@ NOW , as good sometimes cometh out of evil , so the people of New-York , a great
 
 18 Moreover , as they passed along up the Hudson towards the heights of Haerlem , the fair daughters of Columbia , with hearts glowing with patriotism , waved their lily hands in token of applause.
 
-19 Likewise , bands of men came from the neighbourhood round about ; even from Newark , and Patterson , and Paules Hook , which lie in the state of New- Jersey.
+19 Likewise , bands of men came from the neighbourhood round about ; even from Newark , and Patterson , and Paules Hook , which lie in the state of New-Jersey.
 
 20 They had also captains appointed over their bands ; and Abraham and David were two among the captains.*
 
@@ -3759,7 +3759,7 @@ NOW , as good sometimes cometh out of evil , so the people of New-York , a great
 
 21 Now Abraham , with his band , came a great way , even from the town of Patterson , where the wonderful waterfalls pour headlong over the rocky mountains , reflecting in the sun a thousand brilliant rainbows.
 
-22 Thus for an hundred days did the people of New- York prepare themselves for danger , and cast up entrenchments for many furlongs round about the city ; so that the people of Britain were afraid to go against it.*
+22 Thus for an hundred days did the people of New-York prepare themselves for danger , and cast up entrenchments for many furlongs round about the city ; so that the people of Britain were afraid to go against it.*
 
 * So great was the enthusiasm of the people in contributing their personal services to the erection of fortifications on the heights of Haerlem and Brooklyn , that scarcely could an individual be found in the populous city of New-York , from hoary age to tender youth , capable of using a mattock or a spade , who did not volunteer his services in this work of patriotism. Even the Ladies were conspicuous in aiding and cheering the labours of their Fathers , their Husbands , their Brothers , and their Children. Amongst others , the numerous societies of Freemasons joined in a body , and headed by their Grand-Master,** who was also Mayor of the city , proceeded to Brooklyn , and assisted very spiritedly in its defence. On this occasion an elderly gentleman , one of the order , who had two sons (his only children) in the service of his country , one of them highly distinguished during the war for his wounds and his bravery , sung the following stanzas , in his own character of Mason and Father , whilst the Lodges were at refreshment :
 
@@ -3825,15 +3825,21 @@ STILL there was no peace , and the evils of war continued on the face of the dee
 
 4 Now they sat their engines to work with dreadful violence ; but in about the third part of an hour the barges of the king's ship were overcome ; and more than three score and ten of the men of Britain were slain and maimed : the loss in the privateer was six slain , and about a score wounded.
 
-5 Now this battle happened in the same month in which more than a thousand men of the warriors of Britain , commanded by the Marquis of Tweedale , were defeated at Black Creek , in Upper Canada , and driven to their strong holds by the men of Columbia , unnder the gallant Bissel.
+5 Now this battle happened in the same month in which more than a thousand men of the warriors of Britain , commanded by the Marquis of Tweedale , were defeated at Black Creek , in Upper Canada , and driven to their strong holds by the men of Columbia , under the gallant Bissel.*
 
-6 Ten days after which the steam frigate , Fulton the First , was launched forth into the waters at New- York ,
+* General Bissel.
+
+6 Ten days after which the steam frigate , Fulton the First , was launched forth into the waters at New-York ,
 
 7 And it came to pass , on the fifteenth day of the first month of the next year , that one of the tall ships of Columbia fell into the hands of the servants of the king ;
 
 8 And she was called the President , after the title of the chief magistrate of the land of Columbia ; moreover , she was commanded by the gallant Decatur ,
 
-9 Who , but for an accident that befel his ship the day before , whilst he was moving out of the harbor of New-York , would have outsailed the fleet of Britain , and escaped , as did the brave and persevering Hull , of the Constitution , in the first year of the war.
+9 Who , but for an accident that befel his ship the day before ,* whilst he was moving out of the harbor of New-York , would have outsailed the fleet of Britain , and escaped , as did the brave and persevering Hull , of the Constitution , in the first year of the war.**
+
+* She was injured by grounding off Sandy Hook.
+
+** Commodore Hull , in this affair , gained much applause , for his manoeuvres in escaping from the British fleet.
 
 10 Nevertheless , it was so , that Decatur was , as it were , surrounded by the ships of the king , even five of them ; so one of the vessels , called the Endymion fell upon him , and Decatur fought hard against her , and would have taken her ;
 
@@ -3843,21 +3849,25 @@ STILL there was no peace , and the evils of war continued on the face of the dee
 
 13 Two days after this , a strong vessel of the king , called the Sylph , was cast away , in a dreadful storm , at a place called Southampton , being on Long-Island , where more than an hundred men of Britain perished , in the dead of the night ; and the vessel parted asunder and was lost.
 
-14 Moreover , there were six of the men of Britain who survived their brethren , and were preserved on pieces of the wreck , until the next day , when the neighbouring people took them into their houses' and nourished them ;
+14 Moreover , there were six of the men of Britain who survived their brethren , and were preserved on pieces of the wreck , until the next day , when the neighbouring people took them into their houses and nourished them ;
 
-15 And , when they were sufficiently recovered , that misfortune might not bear to ;; heavy upon them , they were clad , and silver given to them , and they were sent to their own country , at the expense of the people of Columbia.
+15 And , when they were sufficiently recovered , that misfortune might not bear too heavy upon them , they were clad , and silver given to them , and they were sent to their own country , at the expense of the people of Columbia.
 
 16 (Blessed are the merciful , for they shall obtain mercy , saith the scripture.)
 
-17 Now it came to pass , in these days , whilst the fleet of Britain captured the vessels of Columbia , where they caught them singly upon the ocean , that the single ships of Columbia began to capture the ships of Britain by pairs :
+17 Now it came to pass , in these days , whilst the fleet of Britain captured the vessels of Columbia , when they caught them singly upon the ocean , that the single ships of Columbia began to capture the ships of Britain by pairs :
 
 18 Inasmuch as it happened on the twentieth day of the second month of the same year , that a certain strong vessel called the Constitution , commanded by the brave Stewart , fell in with two of the strong ships of the king , and compelled them both , in the space of forty minutes , to strike the red cross of Britain to the stars of Columbia.
 
-19 And the slain and wounded of the king's ships were seventy and seven ; of the men of Columbia three were slain and twelve maimed : and the names of the vessels of Britain were the Cyane and the Levant ; but the Levant was retaken in a neutral port , by two strong ships of the king.
+19 And the slain and wounded of the king's ships were seventy and seven ; of the men of Columbia three were slain and twelve maimed : and the names of the vessels of Britain were the Cyane and the Levant ; but the Levant was retaken in a neutral port ,* by two strong ships of the king.**
+
+* Porto Prava.
+
+** Acasta and Newcastle.
 
 20 Now the valiant Stewart and his brave men gat great praise for their deeds , even the great Sanhedrim of the people honored them , and gave them twenty thousand pieces of silver.
 
-21 In the same-month the gallant Boyle , commanding the privateer Chasseur , captured the St. Lawrence , a fighting vessel of the king , in the fourth part of an hour.
+21 In the same month the gallant Boyle , commanding the privateer Chasseur , captured the St. Lawrence , a fighting vessel of the king , in the fourth part of an hour.
 
 22 And the killed and wounded of the St. Lawrence were thirty and eight ; and the Chasseur had five slain and eight maimed.
 
@@ -3873,7 +3883,7 @@ STILL there was no peace , and the evils of war continued on the face of the dee
 
 28 Now about this time the navy of Columbia had increased more than fourfold , and the fame thereof had extended to all nations.
 
-29 For , though Columbia was young , even as it were in the gristle of her youth ; yet she now began to resume the appearance and display the vigor of. manhood.
+29 For , though Columbia was young , even as it were in the gristle of her youth ; yet she now began to resume the appearance and display the vigor of manhood.
 
 CHAP. LIII.
 
@@ -4119,7 +4129,7 @@ NOW it came to pass , that while the war raged between the people of Columbia an
 
 16 And when they came into the waters of Europe , the men of Britain gnashed their teeth with vexation , neither would they he hold them , but they turned their backs , for their pride was wounded , whilst the surrounding nations beheld the fleet with astonishment.
 
-17 Now it was on the eighteenth day of the fifth month , in the same year , in the after part of the day , that the fleet of Columbia spread their wings to the western breeze , and sailed from the haven of New- York ;
+17 Now it was on the eighteenth day of the fifth month , in the same year , in the after part of the day , that the fleet of Columbia spread their wings to the western breeze , and sailed from the haven of New-York ;
 
 18 And , with Decatur , the chief captain , in the Guerriere , they bade farewell to the land of Columbia ; fand the shouts of the people made the welkin ring , and their blessings followed after them.
 

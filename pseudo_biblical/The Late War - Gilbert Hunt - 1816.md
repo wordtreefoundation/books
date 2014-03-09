@@ -4305,32 +4305,31 @@ STILL there was no peace , and the evils of war continued on the face of the dee
 
 5 Now this battle happened in the same month in which more than a thousand men of the warriors of Britain , commanded by the Marquis of Tweedale , were defeated at Black Creek , in Upper Canada , and driven to their strong holds by the men of Columbia , under the gallant Bissel.*
 
+* General Bissel.
+
 6 Ten days after which the steam frigate , Fulton the First , was launched forth into the waters at New-York.
 
 7 And it came to pass , on the fifteenth day of the first month of the next year , that one of the tall ships of Columbia fell into the hands of the servants of the king ;
 
 8 And she was called the President , after the title of the chief magistrate of the land of Columbia ; moreover , she was commanded by the gallant Decatur ,
 
-* General Bissel.
-
 [284]
 
-9 Who , but for an accident that befel his ship the day before ,* whilst he was moving out of the harbor of New-York , would have outsailed the fleet of Britain , and escaped , as did the brave and persevering Hull , of the Constitution , in the first year of the war.
-
-10 Nevertheless , it was so , that Decatur was , as it were , surrounded by the ships of the king , even five of them ; so one of the vessels , called the Endymiun , fell upon him , and Decatur fought hard against her , and would have taken her ;
-
-11 But the rest of the strong ships came down upon him , and opened their thundering engines , and compelled him to surrender his ship to the fleet of Britain.
-
-12 However it was a bloody fight ; and there fell of the men of Columbia that day twenty and four that were slain outright , and about two score and ten were maimed , after having kept the destroying engines to work about the space of three hours: howbeit , Decatur lost no honor thereby.
+9 Who , but for an accident that befel his ship the day before ,* whilst he was moving out of the harbor of New-York , would have outsailed the fleet of Britain , and escaped , as did the brave and persevering Hull , of the Constitution , in the first year of the war.**
 
 * She was injured by grounding off the Hook.
 
-** Commodore Hull , in this affair , gained mucha pplause , for his manoeuvres in escaping from the British fleet.
+** Commodore Hull , in this affair , gained much applause , for his manoeuvres in escaping from the British fleet.
+
+10 Nevertheless , it was so , that Decatur was , as it were , surrounded by the ships of the king , even five of them ; so one of the vessels , called the Endymion , fell upon him , and Decatur fought hard against her , and would have taken her ;
+
+11 But the rest of the strong ships came down upon him , and opened their thundering engines , and compelled him to surrender his ship to the fleet of Britain.
+
+12 However it was a bloody fight ; and there fell of the men of Columbia that day twenty and four that were slain outright , and about two score and ten were maimed , after having kept the destroying engines to work about the space of three hours : howbeit , Decatur lost no honor thereby.
 
 [285]
 
-13 Two days after this , a strong vessel of the king , called the Sylph , was cast away , in a dreadful storm , at a place called Southampton , being on Long Island , where more than an hundred men of Britain perished , in the dead of the night ; and the vessel parted
-asunder and was lost.
+13 Two days after this , a strong vessel of the king , called the Sylph , was cast away , in a dreadful storm , at a place called Southampton , being on Long Island , where more than an hundred men of Britain perished , in the dead of the night ; and the vessel parted asunder and was lost.
 
 14 Moreover , there were six of the men of Britain who survived their brethren , and were preserved on pieces of the vessel , until the next day , when the neighbouring people took them into their houses and nourished them ;
 
@@ -4344,20 +4343,21 @@ asunder and was lost.
 
 18 Inasmuch as it happened on the twentieth day of the second month of the same year , that a certain strong vessel called the Constitution , commanded by the brave Stewart , fell in with two of the strong ships of the king , and compelled them both , in the space of forty minutes , to strike the red cross of Britain to the stars of Columbia.
 
-19 And the slain and wounded of the king's ships were seventy and seven ; of the men of Columbia three were slain and twelve maimed ; and the names of the vessels of Britain were the Cyane and the Levant ; but the Levant was retaken in a neutral port ,* by two strong ships of the king.
+19 And the slain and wounded of the king's ships were seventy and seven ; of the men of Columbia three were slain and twelve maimed ; and the names of the vessels of Britain were the Cyane and the Levant ; but the Levant was retaken in a neutral port ,* by two strong ships of the king.**
+
+* Porto Prava.
+
+** Acasta and Newcastle.
 
 20 Now the valiant Stewart and his brave men gat great praise for their deeds , even the great Sanhedrim of the people honored them , and gave them twenty thousand pieces of silver.
 
 21 In the same month the gallant Boyle , commanding the privateer Chasseur , captured the St. Lawrence , a fighting vessel of the king , in the fourth part of an hour.
 
-* Porto Prava.
-** Acasta and Newcastle.
-
 [287]
 
 22 And the killed and wounded of the St. Lawrence were thirty and eight ; and the Chasseur had five slain and eight maimed.
 
-23 Moreover , it came to pass , on the twenty-third day of the next month , that another fighting vessel of the king , called the Penguin , was taken by the Hornet , a strong vessel of Columbia , commanded by a man of valor and coinage , whose sur-name was Biddle.
+23 Moreover , it came to pass , on the twenty-third day of the next month , that another fighting vessel of the king , called the Penguin , was taken by the Hornet , a strong vessel of Columbia , commanded by a man of valor and courage , whose sur-name was Biddle.
 
 24 However , the battle was a bloody one , and the vessels kept their engines of destruction fiercely in motion , for about the space of half an hour before the flag of Britain was lowered to the stripes of Columbia.
 
