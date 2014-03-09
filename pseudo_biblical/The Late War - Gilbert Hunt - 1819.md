@@ -131,7 +131,7 @@ CHAP. IV--John Henry--Elijah Parish. 29
 
 CHAP. V--American Army--Militia--Navy--British Navy--Rogers' first Cruise--capture of the U. S. brig Nautilus--removal of aliens beyond tide-water 32
 
-CHAP VI--Hull's expedition--he enters Canada , and encamps at Sandwich--issues his Proclamation--retreats to Detroit. 36
+CHAP. VI--Hull's expedition--he enters Canada , and encamps at Sandwich--issues his Proclamation--retreats to Detroit. 36
 
 CHAP. VII--Hull's expedition--surrender of his army and the whole Michigan Territory his trial and pardon by the President--capture of Michilimackinack 48
 
@@ -490,7 +490,7 @@ LET the children of Columbia beware of false prophets which come in sheep's clot
 
 7 But they deceived me , even as they would deceive the people of Columbia ; for their promises are as the idle wind that passeth by , which no man regardeth.
 
-3 And ; when he had gotten the silver into his own hands he departed to the land of the Gauls , where he remaineth even until this day.
+8 And ; when he had gotten the silver into his own hands he departed to the land of the Gauls , where he remaineth even until this day.
 
 9 Nevertheless , the people profited much thereby ; inasmuch as it put them upon the watch , and they guarded themselves against the evil accordingly.
 
@@ -500,7 +500,7 @@ LET the children of Columbia beware of false prophets which come in sheep's clot
 
 12 And he rose up and called himself a preacher of the gospel , and his words were smooth , and the people marvelled at him ;
 
-1 3 But he profaned the temple of the Lord , and he strove to lead his disciples into the wrong way.
+13 But he profaned the temple of the Lord , and he strove to lead his disciples into the wrong way.
 
 14 And many wise men turned their backs against him ; nevertheless , he repented not of his sins unto this day.
 
@@ -548,7 +548,7 @@ THE whole host of the people of Columbia , who bad been trained to war , being n
 
 16 And they did so ; and their friends from whom they were compelled to flee , mourned for them many days.
 
-CHAP VI
+CHAP. VI.
 
 Hulls expedition--he enters Canada , and encamps at Sandwich--issues his Proclamation--retreats to Detroit.
 
@@ -629,6 +629,8 @@ NOW the host of the king were few in numbers , nevertheless , they came in battl
 13 William , whose heart failed him , commanded the valiant men of Columbia to bow down before the servants of the king.
 
 14 And he ordered them to yield up the destructive weapons which they held in their hands.
+
+15 Neither could they appear in battle against the king again for many days.
 
 16 Moreover , the cowardice of his heart caused him to make a league with the servants of the king , in the which he gave unto them the whole territory over which the people had entrusted him to preside ; notwithstanding it appertained not unto him.
 
@@ -1018,7 +1020,7 @@ NOW it happened on the twenty-fifth day of the tenth month , in the first year o
 
 30 But the storm arose , and the sea beat upon the vessels , and they were cast away , and they parted asunder , upon an island which lieth far to the south , and both vessels were lost.
 
-Chap. XIV.
+CHAP. XIV.
 
 Affairs in the north--skirmishes--battle of Frenchtown , on the river Raisin--capture of Gen. Winchester's army--massacre of American prisoners.
 
@@ -1293,7 +1295,7 @@ NOW it came to pass , in the beginning of the one thousand eight hundred and thi
 
 36 Therefore , let the counsellors of the king ponder these things , and let the strong ships of Britain drive the vessels of Columbia from our coast.
 
-37 "Now the wise men of Britain heard those things with sorrow ; and they spake one to another concerning the matter :
+37 Now the wise men of Britain heard those things with sorrow ; and they spake one to another concerning the matter :
 
 38 But they wist not what to do ; for the cunning of the captains of the fast sailing vessels of Columbia , surpassed the wisdom of the lords of Britain.
 
@@ -1507,7 +1509,7 @@ NOW , whilst these things happened in the south , and the evils of war destroyed
 
 45 but when those who escaped unhurt arose and looked around , they beheld not their chieftain ; he had fallen to the earth.
 
-40 A huge stone smote him upon the back , and two of his officers , (one of whom was the gallant Fraser ,) raised him up and led him forth from the field of murder ; the one on the one side , and the other on the other side.
+46 A huge stone smote him upon the back , and two of his officers , (one of whom was the gallant Fraser ,) raised him up and led him forth from the field of murder ; the one on the one side , and the other on the other side.
 
 47 And as they led him away he turned his head around to his brave warriors , and said unto them , Go on ; I will be with you soon ! I am not slain.
 
@@ -1673,7 +1675,7 @@ NOW it came to pass , that the mighty fleet of Britain , which was moving round 
 
 27 But they were harmless as turtle doves , for they killed not a man.
 
-23 Now the men of Columbia , with their handicraft , shot the balls of iron strait as an arrow from a bow , and ; thereby did much damage to the servants of the king.
+28 Now the men of Columbia , with their handicraft , shot the balls of iron strait as an arrow from a bow , and ; thereby did much damage to the servants of the king.
 
 29 Inasmuch as they slew about two hundred of the men of Britain that day ; and drove the host of them from the island.
 
@@ -2747,7 +2749,7 @@ NOW whilst the great lakes and rivers were bound in fetters of ice , and the arm
 
 24 But his heart sank not within him , for he knew no cowardice ; but , with the wisdom of a brave man , he strove to escape , as the vessels were too powerful for him.
 
-23 But the winds were adverse , and blew hard , and prevented the tacklings of his ship from taking effect :
+25 But the winds were adverse , and blew hard , and prevented the tacklings of his ship from taking effect :
 
 26 Nevertheless , David said unto the captains of the king , Come singly , and not like cowards , upon me ; then shall ye receive the thunders of the freemen of Columbia abundantly ;
 
@@ -4094,6 +4096,7 @@ NOW after the fleet of Britain had departed from New-Orleans in dismay , they co
 29 And all the nations of the earth beheld the glory of Columbia.
 
 END OF THE HISTORY OF THE LATE WAR.
+[END]
 
 ALGERINE WAR ,
 
@@ -4208,5 +4211,3 @@ IN the mean time , it had come to pass , that lest the fleet of Decatur should n
 12 Thus , in this thing , did the lords of Britain strive to snatch the laurel from the brow of Columbia ;
 
 13 But her valiant sons had entwined the wreath of glory ; and the scribes of this day shall record it , in ever-living characters , on the pyramid of fame.
-
-[END]

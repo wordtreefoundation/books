@@ -98,7 +98,7 @@ CHAP. IV--John Henry--Elijah Parish. 29
 
 CHAP. V--American Army--Militia--Navy--British Navy--Rogers' first Cruise--capture of the U. S. brig Nautilus--removal of aliens beyond tide-water 32
 
-CHAP VI--Hull's expedition--he enters Canada , and encamps at Sandwich--issues his Proclamation--retreats to Detroit. 36
+CHAP. VI--Hull's expedition--he enters Canada , and encamps at Sandwich--issues his Proclamation--retreats to Detroit. 36
 
 CHAP. VII--Hull's expedition--surrender of his army and the whole Michigan Territory his trial and pardon by the President--capture of Michilimackinack 48
 
@@ -118,7 +118,7 @@ CHAP. X--Battle of Queenslown--the British Gen. Brock killed. 56
 
 CHAP. XI--Gen. Smythe succeeds Gen. Van Rensselaer--his attempt to cross the Niagara , and failure--causes. 61
 
-CHAP. XII--Capture of the sloop of war , Frolic of 22 guns , by the United Slates' sloop of war Wasp of 18 guns. 64
+CHAP. XII--Capture of the sloop of war , Frolic of 22 guns , by the United States' sloop of war Wasp of 18 guns. 64
 
 CHAP. XIII--Capture of the British frigate Macedonian , by Com. Decatur , in the frigate United States--brig Vixen captured by the British frigate Southampton. 67
 
@@ -334,7 +334,7 @@ CHAP. II.
 
 Report of the Committee--Declaration of War.
 
-1 NOW , when there was an end made of reading the paper which James had written , the Sanhedrim communed one with another touching the matter.
+NOW , when there was an end made of reading the paper which James had written , the Sanhedrim communed one with another touching the matter.
 
 2 And they chose certain wise men from among them to deliberate thereon.
 
@@ -533,7 +533,7 @@ THE whole host of the people of Columbia , who had been trained to war , being n
 
 7 And the men of war of Britain were arrayed in their might against the people of the land of Columbia.
 
-8 Nevertheless , it came to pass , that about this time a strong ship of the United Slates , called the President , commanded by a skillful man whose name was Rogers ,*
+8 Nevertheless , it came to pass , that about this time a strong ship of the United States , called the President , commanded by a skillful man whose name was Rogers ,*
 
 * Com. Rogers.
 
@@ -3732,7 +3732,7 @@ Nevertheless , if difficulties and disasters befel the people of Columbia in the
 
 7 Now the strong hold of Plattsburgh was hard by ; and the brave Macomb was the chief captain of the hold ; and the number of his men was about fifteen hundred ; being in the proportion of one Yankee to ten Invincibles.
 
-3 Howsoever , the valiant husbandmen of the states of Vermont and New-York , called militia , commanded by Mooers , a man of great courage , assembled together , to assist in the defence of the place , on the borders of the river Saranac , which emptieth its waters into lake Champlain.
+8 Howsoever , the valiant husbandmen of the states of Vermont and New-York , called militia , commanded by Mooers , a man of great courage , assembled together , to assist in the defence of the place , on the borders of the river Saranac , which emptieth its waters into lake Champlain.
 
 9 In the meantime , Downie , the chief captain of the fleet of Britain upon the lake , had prepared himself to assist Prevost on a certain day appointed.
 
@@ -4619,6 +4619,7 @@ NOW after the fleet of Britain had departed from New-Orleans in dismay , they co
 30 And all the nations of the earth beheld the glory of Columbia.
 
 END OF THE HISTORY OF THE LATE WAR.
+[END]
 
 [Missing pages 307-310]
 
@@ -4706,7 +4707,7 @@ IN the mean time , it had come to pass , that lest the fleet of Decatur should n
 
 11 Therefore , the fleet of Britain succeeded not , as did the fleet of Decatur ; and the doings of Exmouth might be likened unto a certain mischievous monkey , that , in endeavouring to imitate the shaving of his master's beard , cut his own throat.*
 
-1 2 Thus , in this thing , did the lords of Britain strive to snatch the laurel from the brow of Columbia :
+12 Thus , in this thing , did the lords of Britain strive to snatch the laurel from the brow of Columbia :
 
 13 But her valiant sons had entwined the wreath of glory ; and the scribes of this day shall record it , in ever-living characters , on the pyramid of fame.
 
@@ -4716,8 +4717,6 @@ NOTE.--For humanity's sake , it is to be hoped , that in future , some , if not 
 NOTE.--The result of the late war has had the effect of commanding respect from all nations ; of which the treatment of the United States frigate Macedonian , captain Warrington , by the Spaniards at Carthagena , (S. A.) from whence she lately arrived , is an instance ; for they released the prisoners demanded without hesitation.
 
 * Lord Exmouth narrowly escaped being assassinated while on shore at Algiers.
-
-[END]
 
 [page break]
 
