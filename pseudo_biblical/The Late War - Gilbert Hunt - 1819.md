@@ -3887,7 +3887,7 @@ STILL there was no peace , and the evils of war continued on the face of the dee
 
 CHAP. LIII.
 
-British fleet arrives near New-Orleans--the American can flotilla captured---attacks by the British upon the army of Gen. Jackson.
+British fleet arrives near New-Orleans--the American flotilla captured--attacks by the British upon the army of Gen. Jackson.
 
 NOW , when the lords and the counsellors , and the wise men of Britain , heard of all the tribulations that befel them in the land of Columbia , they were troubled in their minds.
 
@@ -3897,9 +3897,9 @@ NOW , when the lords and the counsellors , and the wise men of Britain , heard o
 
 4 So it came to pass , that they gathered together their army and their navy , even two score and ten fighting vessels , carrying therein about twenty thousand men of war ; and the name of the chief captain of the navy was Cochrane ; and the chief captains of the army were Pakenham , Gibbs , and Keane.
 
-5 And they essayed to go against the city of New Orleans , which lieth to the south , on the. borders of the great river Mississippi , in the state of Louisiana , which. was covenanted in good faith , to the United States in die days when Jefferson presided as chief governor of the land of Columbia.
+5 And they essayed to go against the city of New-Orleans , which lieth to the south , on the borders of the great river Mississippi , in the state of Louisiana , which was covenanted in good faith , to the United States in the days when Jefferson presided as chief governor of the land of Columbia.
 
-6 But It came to pass , that Jackson , when he had returned from the capture of Pensacola , where he corked up the bottles of iniquity that were ready to be emnptied out upon the men of Columbia ,
+6 But It came to pass , that Jackson , when he had returned from the capture of Pensacola , where he corked up the bottles of iniquity that were ready to be emptied out upon the men of Columbia ,
 
 7 Had arrived with his army at New-Orleans , he began to fortify the place , for he heard it noised abroad that the king was bent upon taking the city.
 
@@ -3909,7 +3909,9 @@ NOW , when the lords and the counsellors , and the wise men of Britain , heard o
 
 10 And it was so , that when they had come as nigh as they could unto the city with their heavy ships , some of which carried an hundred of the destroying engines , they cast anchor :
 
-11 And lo , after having passed a certain dangerous place called Pass Christian , they prepared their boats , containing more than a thousand men , and sent them in great numbers against the boats of Columbia that were upon the waters of the lakes about the city.
+11 And lo , after having passed a certain dangerous place called Pass Christian , they prepared their boats , containing more than a thousand men , and sent them in great numbers against the boats of Columbia that were upon the waters of the lakes about the city.*
+
+* Lakes Borgue and Ponchartrain.
 
 12 Now these small vessels of Columbia were commanded by Thomas , a brave man , whose sir-name was Jones , and he gave them hindrance.
 
@@ -3929,11 +3931,11 @@ NOW , when the lords and the counsellors , and the wise men of Britain , heard o
 
 20 On the next day , the whole host of Britain gathered themselves together , and with their might went against the strong hold of Jackson.
 
-21 But Jackson let the destroying engines loose upon the servants of Britain , and compelled them to return to their encampments with great loss , even an hundred and two score.-
+21 But Jackson let the destroying engines loose upon the servants of Britain , and compelled them to return to their encampments with great loss , even an hundred and two score.
 
 22 Nevertheless , on the first day of the first month of the eighteen hundred and fifteenth year , the men of war of Britain came again , and strove to dislodge the army of Jackson ; but again they were deceived , and lost about an hundred men.
 
-23 At this time there arrived to the aid of Jackson about two thousand five hundred valiant men , from the back-woods of Kentucky
+23 At this time there arrived to the aid of Jackson about two thousand five hundred valiant men , from the back-woods of Kentucky.
 
 24 Disappointed in their expectations , and failing in their attempts to discomfit the army of Columbia , the captains and the host of Britain arrayed themselves in their might to go against the hold of Jackson with their whole force.
 
@@ -3949,7 +3951,7 @@ NOW , when the lords and the counsellors , and the wise men of Britain , heard o
 
 30 Moreover , a day and a night shall ye plunder and riot : and your watch-word shall be , BEAUTY AND BOOTY !
 
-CHAP. LIV
+CHAP. LIV.
 
 Grand Battle of New-Orleans.
 
@@ -3961,7 +3963,7 @@ NOW Pakenham , the chief captain of the host of Britain , made an end of address
 
 4 That the mighty army of the king , which had moved out of the strong ships of Britain , came , in their strength , to make conquest of the territory of Columbia , which lieth to the south ;
 
-5 And to place therein a princely ruler , and all manner of officers , the servants of the king , even unto a taxgatherer.
+5 And to place therein a princely ruler , and all manner of officers , the servants of the king , even unto a tax-gatherer.
 
 6 So , early in the morning , they appeared before the camp of the men of Columbia , even the strong hold which Jackson , the chief captain , had fortified.
 
@@ -3975,9 +3977,9 @@ NOW Pakenham , the chief captain of the host of Britain , made an end of address
 
 11 Moreover , they cast forth bombs , and Congreve rockets , weapons of destruction , which were not known , in the days of Jehoshaphat.
 
-12 Nevertheless , the soul of Jackson failed him not , neither was he dismayed , for he was entrenched round about ; and when he raised his hand , beheld every man's heart therein.
+12 Nevertheless , the soul of Jackson failed him not , neither was he dismayed , for he was entrenched round about ; and when he raised his hand , he held every man's heart therein.
 
-13 And Jackson spake , and said unto his captains of fifties , and his captains of hundreds , Fear not ; we defend our lives and our liberty , and in that thining the Lord will not forsake us :
+13 And Jackson spake , and said unto his captains of fifties , and his captains of hundreds , Fear not ; we defend our lives and our liberty , and in that thing the Lord will not forsake us :
 
 14 Therefore , let every man be upon his watch ; and let the destroying engines now utter forth their thunders In abundance :
 
@@ -3985,23 +3987,23 @@ NOW Pakenham , the chief captain of the host of Britain , made an end of address
 
 16 And as the black dust cast upon a burning coal instantly mounteth into a flame , so was the spirit of the husbandmen of the backwoods of Columbia.
 
-17 Now the brave men from Tennessee and Kentucky set their shining rifles to work , and the destroying engines began to vomit their thunders upon the ser- vants oT the king.
+17 Now the brave men from Tennessee and Kentucky set their shining rifles to work , and the destroying engines began to vomit their thunders upon the servants of the king.
 
 18 Twice did the host of Britain , in solid columns , come against the entrenchments of Jackson , and twice he drove them back.
 
 19 Moreover , Daniel the brave , who had raised up defences upon the banks of the river , likewise let his engines loose upon them , and shot into the camp of the king.
 
-20 And the men of Britain strove to scale the ram parts , and get into the strong hold of Jackson ; but the husbandmen drove them back with great slaughter.
+20 And the men of Britain strove to scale the ramparts , and get into the strong hold of Jackson ; but the husbandmen drove them back with great slaughter.
 
-21 The fire and the smoke , and the deafening noise that sounded along the battlements , were tremendous for more than the space of two hours , when the dreadful roarings ceased , for the warriors of the king fled in confusion.
+21 The fire and the smoke , and the deafning noise that sounded along the battlements , were tremendous for more than the space of two hours , when the dreadful roarings ceased , for the warriors of the king fled in confusion.
 
-22 But when the sulphureous vapors arose , behold the battle-ground was covered with the slain and the wounded officers and soldiers of the kingdom of Great .Britain !
+22 But when the sulphureous vapors arose , behold the battle-ground was covered with the slain and the wounded officers and soldiers of the kingdom of Great Britain !
 
 23 Humanity shuddered at the awful scene , whilst the green fields blushed.
 
 24 Seven hundred of the servants of the king were slain ; and their whole loss that day was two thousand six hundred valiant men , who had fought under Wellington , the champion of England.
 
-25 And Pakenham , the chief captain of the host of Britain , the brother-in-law of Wellington , was amongst the slain ; and they served his body as they had served the body of Ross , their chief captain at th Baltimore demonstration , preserving it , in like mannier , with the strong waters of Jamaica.
+25 And Pakenham , the chief captain of the host of Britain , the brother-in-law of Wellington , was amongst the slain ; and they served his body as they had served the body of Ross , their chief captain at the Baltimore demonstration , preserving it , in like manner , with the strong waters of Jamaica.
 
 26 Moreover , one of their chief captains , whose sir-name was Gibbs , was also slain , and Keane was sorely wounded : so that the charge of the host of Britain that remained from the slaughter , fell to a certain man whose name was Lambert.
 
@@ -4013,21 +4015,21 @@ NOW Pakenham , the chief captain of the host of Britain , made an end of address
 
 30 It is written in the book of Solomon , that a fool laugheth at his own folly : now the men of Britain were not inclined to laugh , for they were sorely grieved ; and , but for the fear of the laughter of others would have wept outright.
 
-31 And Jackson , the chief captain of the host of Columbia , gave great praise to the gallant Coffee , and Carrol , and Daniel , whose sirname was Patterson and all the valiant men who fought on that glorious day. ,
+31 And Jackson , the chief captain of the host of Columbia , gave great praise to the gallant Coffee , and Carrol , and Daniel , whose sir-name was Patterson and all the valiant men who fought on that glorious day. ,
 
 32 Moreover , Jackson was honored with great honour by the people throughout the land of Columbia ; even the great Sanhedrim were pleased with him , and exalted his name.
 
 33 And the inhabitants of New-Orleans were greatly rejoiced , and carried him through the streets of the city above the rest ; and the virgins of Columbia strewed his path with roses.
 
-34.For , Lo ! he had defended them from the violence of savages , who came in search of beauty and booty !
+34 For , Lo ! he had defended them from the violence of savages , who came in search of beauty and booty !
 
-35 And when the wounded , of the host of Britain , were brought into the city , the fair daughters of Coluimbia took their fine linen and bound up the wounds of the poor fainting officers and soldiers of the king , and sat bread and wine before them , to cheer their drooping spirits.
+35 And when the wounded , of the host of Britain , were brought into the city , the fair daughters of Columbia took their fine linen and bound up the wounds of the poor fainting officers and soldiers of the king , and sat bread and wine before them , to cheer their drooping spirits.
 
 36 Now again were the servants of the king disappointed ; for , as they were sent upon an evil , as well as a foolish errand , they expected not mercy.
 
 37 And when they saw the goodness that was showered upon them , they said , Surely ye are angels sent down from heaven to heal the wounds inflicted by the folly of nations !
 
-38 And should we agadn be led on to battle against your country , with propositions to violate your happiness , our swords , as by magic , shall be stayed , and drop harmless at the feet of virtue and beauty !
+38 And should we again be led on to battle against your country , with propositions to violate your happiness , our swords , as by magic , shall be stayed , and drop harmless at the feet of virtue and beauty !
 
 CHAP. LV.
 
@@ -4047,7 +4049,7 @@ NOW after the fleet of Britain had departed from New-Orleans in dismay , they co
 
 7 For the voice of the people of Columbia had spoken peace from the beginning ; they wished war might cease , and that the breach between the nations might be healed.
 
-8 In the mean time the king sent some of his wise wen to meet the wise men of Columbia , at a place called Ghent , a town a great way off , in the country of Flanders ;
+8 In the mean time the king sent some of his wise men to meet the wise men of Columbia , at a place called Ghent , a town a great way off , in the country of Flanders ;
 
 9 For it came to pass , that the generous mediation offered by the emperor of Russia was refused by the council of Britain , who had not yielded to the voice of accommodation.
 
@@ -4077,19 +4079,19 @@ NOW after the fleet of Britain had departed from New-Orleans in dismay , they co
 
 22 Henceforth may the nations of the earth learn wisdom : then shall peace become triumphant , and the people of Columbia be at rest ;
 
-23 And , as it is written , their swords may be beaten into ploughshares , and their spears turned into pruning- hooks.
+23 And , as it is written , their swords may be beaten into ploughshares , and their spears turned into pruning-hooks.
 
-24 But nevertheless , if this war like all other wars , brought evil upon the sons of men , it demonstrated to the world , that the people of Columbia were able to defend themselves , single-handed , against one of the. strongest powers of Europe.
+24 But nevertheless , if this war like all other wars , brought evil upon the sons of men , it demonstrated to the world , that the people of Columbia were able to defend themselves , single-handed , against one of the strongest powers of Europe.
 
-25 And the mighty kings and potentates of the earth shall learn , from this example of Republican patriotism , that the people are the only "legitimate sovereigns" of the land of Columbia.
+25 And the mighty kings and potentates of the earth shall learn , from this example of Republican patriotism , that the people are the only " legitimate sovereigns " of the land of Columbia.
 
-26 Now the gladness of the hearts of the people of Columbia at the sound of peace , was extravagant , inasmuch as (it caused them to let loose their destroying engines , that were now become harmless , and set in motion their loud pealing bells , that sounded along the splendid arch of heaven.
+26 Now the gladness of the hearts of the people of Columbia at the sound of peace , was extravagant , inasmuch as it caused them to let loose their destroying engines , that were now become harmless , and set in motion their loud pealing bells , that sounded along the splendid arch of heaven.
 
 27 Moreover , they made great fires and illuminations in the night time , and light was spread over the face of the land ;
 
 28 And the beauty thereof was as if , from the blue and spangled vault of heaven , it had showered diamonds :
 
-29 And all the nations of the earth beheld the glory of. Columbia.
+29 And all the nations of the earth beheld the glory of Columbia.
 
 END OF THE HISTORY OF THE LATE WAR.
 
