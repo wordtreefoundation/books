@@ -3572,14 +3572,15 @@ NOW , when Ross , the chief captain , had done speaking , they sent forth their 
 
 8 And Monroe ,* the chief scribe of the great Sanhedrim , was there ; and Armstrong ,** and many other friends of the land of Columbia.
 
+* Hon. James Monroe , Sec'ry of State.
+
+** Gen. Armstrong.
+
 9 Nevertheless , the wisdom of all their plans failed them ; and they were sorely grieved to behold the husbandmen and the army of Winder , the chief captain , flee before the host of Britain.
 
 10 But they were misled in their calculations ; and they were now unable to prevent the evil.
 
 11 Neither did the men of war they counted upon arrive in time to catch the army of the king.
-
-* Hon. James Monroe , Sec'ry of State.
-** Gen. Armstrong.
 
 [231]
 
@@ -3591,7 +3592,7 @@ NOW , when Ross , the chief captain , had done speaking , they sent forth their 
 
 15 And Cockburn and Ross led the savage band of Britain into the midst of the city.
 
-16 And the men of Columbia gnashed their teeth , and bit their lips with vexation ; for the thing might have been prevented. *
+16 And the men of Columbia gnashed their teeth , and bit their lips with vexation ; for the thing might have been prevented.*
 
 * Whatever may be individual sentiment , it has been , and still is the general opinion of the best informed , that there was sufficient time to have had the place entrenched and fortified , if necessary , with an hundred pieces of cannon ; and at least to have kept the enemy at bay until a sufficient force were assembled to have cut off his retreat. But to expect raw militia to meet and repulse , in an open plain , solid columns of regular troops , superior in numbers as well as discipline , must be preposterous. Who is to blame in the business we presume not to say ; but hope the evil may be remedied against a future day. Had the same energy and industry been exercised there , that were displayed by the patriotic citizens of New-York in erecting fortifications for the defence of their capital , we might have been spared the mortification that followed the capture of the seat of government.
 
@@ -3617,6 +3618,8 @@ NOW , when Ross , the chief captain , had done speaking , they sent forth their 
 
 25 Now Cockburn hated that his wicked deeds should be handed down to future generations , so he went and destroyed , with his own hands , the chief printing-office* of the city , and scattered the types abroad.
 
+* Office of the National Intelligencer.
+
 26 Thus did he , even Cockburn , like an ignorant savage , stamp his own name with infamy , and make it to become a reproach amongst all mankind.
 
 27 Science and learning blushed at the champions of England , who had been represented as the bulwark of religion ; but who were , in reality , the supporters of idolatry ; the staff of Juggernaut , the false god of India.
@@ -3624,8 +3627,6 @@ NOW , when Ross , the chief captain , had done speaking , they sent forth their 
 23 Now the art of printing was not known among the ancients ; for it was invented in these latter days , even in the fourteen hundred and fortieth year of the Christian era.
 
 29 It was the helpmate of Freedom , and when the light which it spread burst forth upon the world , it began to open the eyes of man , and to destroy the poisonous weeds that choaked the growth of Liberty.
-
-* Office of the National Intelligencer.
 
 [234]
 
@@ -3647,16 +3648,15 @@ NOW , when Ross , the chief captain , had done speaking , they sent forth their 
 
 37 And have trampled upon science , mutilated the monuments of art and industry , destroyed the archives of your nation , and burnt your books with fire ;
 
-38 For your benefit , and for the benefit of my country , I will give unto you my whole Library , which I have selected with care , from my youth upwards , and whatever in your judgment shall be the value thereof ,
-that will I accept.*
+38 For your benefit , and for the benefit of my country , I will give unto you my whole Library , which I have selected with care , from my youth upwards , and whatever in your judgment shall be the value thereof , that will I accept.*
+
+* Mr. Jefferson left it to Congress to make him what compensation they thought proper for his Library.
 
 39 I am well stricken in years , and must shortly sleep with my fathers ; but the last wish of my heart shall be THE WELFARE OF MY COUNTRY.
 
 40 Now Thomas was a philosopher , and a man of great learning , and he had abundance of books of all nations , and in all languages , even ten thousand volumes.
 
 41 So the great Sanhedrim accepted the offer of Thomas , and they retain the books to this day.
-
-* Mr. Jefferson left it to Congress to make him what compensation they thought proper for his Library.
 
 [236]
 
@@ -3694,13 +3694,13 @@ that will I accept.*
 
 56 Meanwhile , Rogers sent his fire-ships among them to destroy them as they fled ; nevertheless they escaped.
 
-51 Now about this time , being the thirtieth day of the same month , Peter , whose surname was Parker , who commanded a strong ship of the king , was committing many depredations along the shores of the Chesapeake ;
+51 Now about this time , being the thirtieth day of the same month , Peter , whose sur-name was Parker , who commanded a strong ship of the king , was committing many depredations along the shores of the Chesapeake ;
 
 58 So Peter essayed to go in the nighttime against some husbandmen of Columbia , commanded by the gallant Reid ,* about the borders of the state of Maryland ;
 
-59 And when he had landed his men of war , he went out after the husbandmen , and the plunder ; but they were upon the watch , and fell upon him , and killed and maimed about two score , and was nigh making captives of them all ; and Peter was amongst the slain.
-
 * Col. Reid.
+
+59 And when he had landed his men of war , he went out after the husbandmen , and the plunder ; but they were upon the watch , and fell upon him , and killed and maimed about two score , and was nigh making captives of them all ; and Peter was amongst the slain.
 
 [239]
 
@@ -3718,11 +3718,11 @@ Nevertheless , if difficulties and disasters befel the people of Columbia in the
 
 2 Behold ! a mighty army of the king had assembled together at the village of Champlain , between Plattsburg and Montreal ; nigh unto the place where Forsyth the warrior , the second Sumter ,* was slain :
 
+* Sumter , a brave officer in the American Revolution.
+
 3 For the Prince Regent had commanded his servants to go forth into the heart of the land of Columbia , and separate the states of the east from the rest of the country.
 
 4 So it came to pass , about the fifth day of the ninth month , that the host of Britain appeared before the village of Plattsburgh ; which lieth about three hundred miles from New-York towards the north.
-
-* Sumter , a brace officer in the American Revolution.
 
 [241]
 
@@ -3768,7 +3768,7 @@ Nevertheless , if difficulties and disasters befel the people of Columbia in the
 
 23 For in about the space of three hours , the valiant Macdonough and his brave men , made capture of the whole fleet of Britain , save a few gun-boats , that made good their escape.
 
-24 Now the killed and wounded of the king's fleet , were an hundred ninety and fourand Downie , the chief captain , was among the slain.
+24 Now the killed and wounded of the king's fleet , were an hundred ninety and four ; and Downie , the chief captain , was among the slain.
 
 [244]
 
@@ -3806,7 +3806,7 @@ NOW while Macdonough was capturing the royal fleet of Britain , upon the lake , 
 
 [247]
 
-6 But Macomb kept the engines at workand Brooks , and Richards , and Smith , who were in the forts , displayed much valor , and caused the engines to vomit fire and smoke , and balls of heavy metal.
+6 But Macomb kept the engines at work , and Brooks , and Richards , and Smith , who were in the forts , displayed much valor , and caused the engines to vomit fire and smoke , and balls of heavy metal.
 
 7 Howsoever , when Prevost saw that the king's fleet was captured , he began to be disheartened , and his whole army was amazed.
 
@@ -3826,16 +3826,15 @@ NOW while Macdonough was capturing the royal fleet of Britain , upon the lake , 
 
 14 Thus were the men of war of Britain conquered in the north , army against army , fleet against fleet , and squadron against squadron.
 
-15 And the killed and wounded of the army of the king that day , were about a thousand men ; and about three hundred , who were tired of their bondage , left the service of the king ,* and joined the banners of the
-great Sanhedrim.
+15 And the killed and wounded of the army of the king that day , were about a thousand men ; and about three hundred , who were tired of their bondage , left the service of the king ,* and joined the banners of the great Sanhedrim.
+
+* Deserters.
 
 16 Now Macomb received much praise for his bravery ; and his name shall be remembered by ages yet unborn.
 
 17 Moreover , he spake well of all the officers and men who fought with him.
 
 18 And Mooers , who commanded the brave husbandmen of New-York and Vermont , and Strong , the valiant chief captain of the men called volunteers , had great honor for their noble deeds.
-
-* Deserters.
 
 [249]
 
@@ -3865,7 +3864,7 @@ NOW when Ross and Cockburn returned from their burning and pillaging , and all t
 
 5 So it came to pass , the next day after Macdonough had captured the fleet of Britain , on lake Champlain , being the twelfth day of the ninth month ,
 
-6 That their vessels and transports came to a place called North Pointy which lieth at the entrance of the river Petapsco , about an hundred furlongs from the city , and began to put their men of war upon the shore.
+6 That their vessels and transports came to a place called North Point , which lieth at the entrance of the river Petapsco , about an hundred furlongs from the city , and began to put their men of war upon the shore.
 
 7 And the number of their chosen fighting men , who were landed , were about eight thousand.
 
@@ -3881,18 +3880,19 @@ NOW when Ross and Cockburn returned from their burning and pillaging , and all t
 
 12 With the spirit of freemen , they grasped their weapons of war in their hands , and went out to meet them without fear ; resolved to conquer or to die.*
 
+* Although it may be said the British were not conquered ; yet they were defeated.
+
 13 For well they knew , that life would be a burthen to them , when their habitations were consumed with fire ; their parents slaughtered ; and the innocence of their wives and their sisters violated.
 
-14 Now the name of the chief captain of the army of Columbia was Samuel , whose surname was Smith :** a valiant man , who had fought in the days of Washington , and gained much honor.
+14 Now the name of the chief captain of the army of Columbia was Samuel , whose sur-name was Smith :* a valiant man , who had fought in the days of Washington , and gained much honor.
+
+* Gen. Smith.
 
 15 Moreover , Samuel was a man well-stricken in years , and he had many brave captains under him ; even Stricker , and Stansbury , and Winder were with him.
 
-16 Now it was somewhat after the midday when the engines of destruction began their roaring noises :
+16 Now it was somewhat after the mid-day when the engines of destruction began their roaring noises :
 
 17 And the fire and smoke were vomited forth out of their mouths , so that the light of the sun was hidden by the means of the black clouds that filled the air.
-
-* Although it may be said the British were not conquered ; yet they were defeated.
-** Gen. Smith.
 
 [253]
 
@@ -3924,7 +3924,7 @@ NOW when Ross and Cockburn returned from their burning and pillaging , and all t
 
 29 Now the strong hold of McHenry lieth about fifteen furlongs from the city ; and the name of the chief captain thereof was Armistead , a man of courage.
 
-30 And when the strong vessels of the king drew nigh urrto the fort , they cast their rockets and their bomb-shells into it plentifully , and strove hard to drive the men of Columbia away.
+30 And when the strong vessels of the king drew nigh unto the fort , they cast their rockets and their bomb-shells into it plentifully , and strove hard to drive the men of Columbia away.
 
 31 But the gallant Armistead let the destroying engines loose upon them , without mercy ; and they cast out their thunders , winged with death , among the servants of the king.
 
@@ -3944,7 +3944,7 @@ NOW when Ross and Cockburn returned from their burning and pillaging , and all t
 
 CHAP. XLIX.
 
-Destruction of the privateer Gen. Armstrongs Samuel C. Reid , captain--Scorpion and Tigress captured--U. S. frigate Adams burnt--Castine--Fort Boyer attacked--destruction of the pirates at Barrataria , by Com.Patterson--Gen. Jackson captures Pensacola , and returns to New-Orleans.
+Destruction of the privateer Gen. Armstrong , Samuel C. Reid , captain--Scorpion and Tigress captured--U. S. frigate Adams burnt--Castine--Fort Boyer attacked--destruction of the pirates at Barrataria , by Com. Patterson--Gen. Jackson captures Pensacola , and returns to New-Orleans.
 
 NOW the loud and frightful noise of war sounded upon the bosom of the great deep and the shores of Columbia knew no peace.
 
@@ -3962,7 +3962,7 @@ NOW the loud and frightful noise of war sounded upon the bosom of the great deep
 
 7 A place where , two score and ten years ago , there was a mighty earthquake ; and where poisonous reptiles never dwell.
 
-8 And it was about the dusk of the evening when Samuel saw a number of the strong vessels of Britain hemming him in: so he drew nigh to the shore for safety , for the place was friendly to both powers.
+8 And it was about the dusk of the evening when Samuel saw a number of the strong vessels of Britain hemming him in : so he drew nigh to the shore for safety , for the place was friendly to both powers.
 
 9 Nevertheless , the boats from the vessels of the king went against Samuel to take his vessel ; but with his weapons of war he drove them off and slew numbers of them , so that they were glad to return to their strong ships.
 
@@ -3992,13 +3992,13 @@ NOW the loud and frightful noise of war sounded upon the bosom of the great deep
 
 20 And the valiant deeds of Samuel gained him a name amongst the brave men of Columbia.
 
-21 Now , in the same month , the Scorpion and the Tigress , two righting vessels of Columbia , on lake Huron , were captured by the men of Britain.
+21 Now , in the same month , the Scorpion and the Tigress , two fighting vessels of Columbia , on lake Huron , were captured by the men of Britain.
 
 22 Likewise , about this time , there were numerous other evils that befel the sons of Columbia ;
 
 23 Inasmuch as a brave captain , whose sur-name was Morris , was obliged to consume his ship with fire , lest she should fall into the hands of the enemy ; and she was called the Adams.*
 
-* U.S. frigate Adams.
+* U. S. frigate Adams.
 
 [261]
 
@@ -4008,13 +4008,13 @@ NOW the loud and frightful noise of war sounded upon the bosom of the great deep
 
 26 But , lo ! the governor , even Caleb the shittamite , refused his aid , for he was afraid of the wrath of the king of Britain.*
 
+* See the letter of Sec. Monroe , and Strong's answer.
+
 27 (Now Caleb , in the hebrew tongue , signifieth a dog ; but , verily , this dog was faithless.)
 
-28 Moreover , it came to pass , about the same time , that the strong hold oiFort Boyer , being at a place called Mobile-point , was attacked by the strong ships of Britain.
+28 Moreover , it came to pass , about the same time , that the strong hold of Fort Boyer , being at a place called Mobile-point , was attacked by the strong ships of Britain.
 
 29 Now Mobile had lately been the head quarters and the resting-place of the army of Jackson the brave ;
-
-* See the letter of Sec. Monroe , and Strong's answer.
 
 [262]
 
@@ -4024,28 +4024,27 @@ NOW the loud and frightful noise of war sounded upon the bosom of the great deep
 
 32 And the names of the vessels of the king , that assailed the fort , were the Hermes , the Charon , and the Sophie , besides other fighting vessels ; which opened their fires upon the strong hold.
 
-33 Nevertheless , Lawrence was not dismayed , although Woodbine ,* the white savage , came in his rear , with one of the destroying engines and a howitzer , an instrument of Satan , and about two hundred sav-
-ages.
+33 Nevertheless , Lawrence was not dismayed , although Woodbine ,* the white savage , came in his rear , with one of the destroying engines and a howitzer , an instrument of Satan , and about two hundred savages.
+
+* The celebrated Capt. Woodbine , of the British navy.
 
 34 So when Lawrence let his engines of death loose upon them , and had showered the whizzing balls amongst them for about the space of three hours , they fled.
 
 35 And the slaughter on board the ships was dreadful ; and about three hundred of the men of Britain were slain , and the Hermes was blown out of the water into the air with an awful noise.
 
-* The celebrated Capt. Woodbine , of the British navy.
-
 [263]
 
 36 The loss of the people of Columbia that day , was four slain and five maimed.
 
-37 About this time a band of sea-robbers and pirates , who had established themselves upon the island of Barrator la , were committing great wickedness and depredations ; and were ready to assist the men of Britain.
+37 About this time a band of sea-robbers and pirates , who had established themselves upon the island of Barrataria , were committing great wickedness and depredations ; and were ready to assist the men of Britain.
 
-38 But a valiant man , called Daniel , surnamed Patterson , went against them with his small fighting vessels ,* and scattered them abroad , and took their vessels , and destroyed their petty establishment of sea-robbery.
+38 But a valiant man , called Daniel , sur-named Patterson , went against them with his small fighting vessels ,* and scattered them abroad , and took their vessels , and destroyed their petty establishment of sea-robbery.
+
+* Gun-boats.
 
 39 Now it came to pass , when Jackson heard that Pensacola , the capital of West Florida , had become a resting-place for the enemies of Columbia ; and that the men of Britain occupied the place , and had built them a strong hold therein ;
 
 40 From whence they sent forth the weapons of war and the black dust among the savages , to destroy the people of Columbia ; and that the servants of the king of Spain were afraid to prevent the wickedness thereof ;
-
-* Gun-boats.
 
 [264]
 
@@ -4057,8 +4056,7 @@ ages.
 
 44 Now when the governor of the place heard the noise of the engines of death and the clashing of arms , he was smitten with fear ;
 
-45 Insomuch that Jackson , the chief captain , who with his army had encompassed the place , quickly compelled him to surrender the town , and beg for mercy ; which was granted unto him and his people , even the
-Spaniards.
+45 Insomuch that Jackson , the chief captain , who with his army had encompassed the place , quickly compelled him to surrender the town , and beg for mercy ; which was granted unto him and his people , even the Spaniards.
 
 46 Now when the men of Britain saw this , they put the match to the black dust in their strong hold , and it rent the air with tremendous noise.
 
@@ -4086,7 +4084,7 @@ NOW it happened that , in the land of Columbia , there arose up wise and learned
 
 5 Although , like other men of genius , in these days , he was spoken of but slightly at first ; for the people said , Lo ! the man is beside himself and they laughed at him ; nevertheless , he exceeded their expectations.
 
-6 For it came to pass , that (assisted by Livingston , a man of wealth , and a lover of arts and learning) he was enabled to construct certain curious vessels , called in the vernacuiar tongue , steam-boats.
+6 For it came to pass , that (assisted by Livingston , a man of wealth , and a lover of arts and learning) he was enabled to construct certain curious vessels , called in the vernacular tongue , steam-boats.
 
 7 Now these steam-boats were cunningly contrived , and had abundance of curious workmanship therein , such as surpassed the comprehension of all the wise men of the east , from the beginning to this day ;
 
@@ -4152,29 +4150,29 @@ NOW it happened that , in the land of Columbia , there arose up wise and learned
 
 33 But they had willfully forgotten , that , in the life time of Fulton , they had offered him forty thousand pieces of gold , if he would bring these torpedoes into practice in their own country , that they might use them against the Gauls ,* (with whom they warred continually for more than twenty years) : Howbeit they proved faithless to Fulton , and so he did it not for them.
 
+* This was about the time of the Boulogne flotilla.
+
 34 Moreover it came to pass that a certain man , a pilot , even Joshua , sur-named Penny , became a victim of their spite , because he attempted to go against them with the torpedoes to drive them out of the waters of Columbia.
 
 35 Now Joshua lived at a place called East Hampton , being at the east end of Long Island , near Gardner's Island , opposite New London.
 
 36 And the men of Britain came to his house in the night , and stole him away , even out of his bed , and carried him on board a vessel of the king , called the Ramilies , from whence he was conveyed to Halifax in the province of Nova Scotia.
 
-* This was about the time of the Boulogue flotilla.
-
 [273]
 
 37 Now while Joshua remained in the dungeons of the king he was treated with the inhospitality of barbarians ; moreover , they strove to lead him astray : but he proved faithful to his God and to his country ; for he had known the wickedness of Britain in times past.*
+
+* Joshua Penny had been , previous to the war , impressed in the British service , and kept in it a number of years.
 
 38 However , they kept him in bondage many months , after which they suffered him to go to his own country.
 
 39 For the chief governor of the land of Columbia , and the Great Sanhedrim in their wisdom had ordered two of the servants of the king to be taken and held as hostages for his safe return ; and , but for this thing , they would have hanged him , even as a man hangeth a dog.
 
-* Joshue Penny had been , previous to the war , impressed in the British service , and kept in it a number of years.
-
 [274]
 
 CHAP. LI.
 
-Affairs in and about New- York , the first commercial city in America--working on the fortifications of Brooklyn and Haerlem--capture of the British tender Eagle , by the Yankee smack.
+Affairs in and about New-York , the first commercial city in America--working on the fortifications of Brooklyn and Haerlem--capture of the British tender Eagle , by the Yankee smack.
 
 NOW , as good sometimes cometh out of evil , so the people of New-York , a great city , which lieth at the mouth of the river Hudson , nigh the sea coast , and containeth more than an hundred thousand souls ,
 
@@ -4186,6 +4184,8 @@ NOW , as good sometimes cometh out of evil , so the people of New-York , a great
 
 4 And the number that came to the defence of the place was about thirty thousand valiant men ; moreover there were about five thousand husbandmen from the state of New-Jersey ,*
 
+* The exertions of Daniel D. Tompkins , governor the state of N. York , at this time , will long be remembered by the people.
+
 5 Now these men were called Jersey Blues , and they were encamped partly at Paulus Hook , and partly at a place called the Narrows , which lieth to the south of the city about an hundred furlongs , where the destroying engines were placed in multitudes.
 
 6 And when the term of the engagement of these men of Jersey expired , they grieved only that their time was spent for nought ; for they were ready and well prepared to meet the servants of the king.
@@ -4193,8 +4193,6 @@ NOW , as good sometimes cometh out of evil , so the people of New-York , a great
 7 Nevertheless , it was so that the freemen who came to the defence of the city , built strong holds and forts , and raised up fortifications in abundance , inasmuch as the whole place was as it were one camp.
 
 8 Moreover , on the tenth day of the eighth month , in the eighteen hundred and fourteenth year , the inhabitants assembled together in the midst of the city , even in a place called the Park , where the Federal Hall , a superb edifice , rears its majestic front ; within the walls of which the wise men , the expounders of the law , preside , and deliberate for the benefit of the people.
-
-* The exertions of Daniel D. Tompkins , governor the state of N. York , at this time , will long be remembered by the people.
 
 [276]
 
@@ -4216,25 +4214,25 @@ NOW , as good sometimes cometh out of evil , so the people of New-York , a great
 
 16 The young and the old , the rich and the poor , went out together ; and took with them their bread and their wine ; and cast up the dirt for the defence of the place , freely , and without cost to the state.*
 
+* The services rendered on this occasion , by that respectable class of citizens , the Firemen of New-York , were particularly conspicuous.
+
 17 And when they went into the boats to cross over the river , there was loud shouting in the boats and on the shore.
 
-18 Moreover , as they passed along up the Hudson , towards the haights of Haerlem , the fair daughters of Columbia , with hearts glowing with patriotism , waved their lily hands in token of applause.
+18 Moreover , as they passed along up the Hudson , towards the heights of Haerlem , the fair daughters of Columbia , with hearts glowing with patriotism , waved their lily hands in token of applause.
 
-19 Likewise , bands of men came from the neighbourhood round about ; even from New-York , and Patterson , and Paulus Hook , which lie in the stale of New-Jersey ,
-
-* The services rendered on this occasion , by that respectable class of citizens , the Firemen of New-York , were particularly conspicuous.
+19 Likewise , bands of men came from the neighbourhood round about ; even from New-York , and Patterson , and Paulus Hook , which lie in the state of New-Jersey ,
 
 [278]
 
 20 They had also captains appointed over their bands ; and Abraham and David were two among the captains.*
 
-21 Now Abraham , with his band , came a great way , even from the town of Patterson , where the wonderful waterfalls pour head-long over the rocky mountains , reflecting in the sun a thousand brilliant rainbows ,
-
-22 Thus for an hundred days did the people of New- York prepare themselves for danger , and cast up entrenchments for many furlongs round about the city ; so that the people of Britain were afraid to go against it. **
-
 * Major Goodwin and Major Hunt.
 
-** So great was the enthusiasm of the people in contributing their personal services to the erection of fortifications on the heights of Haerlem and Brooklyn , that scarcely could an individual be found in the populous city of New-York , from hoary age to tender youth , capable of using a mattock or a spade , who did not volunteer his services in this work of patriotism. Even the Ladies were conspicuous in aiding and cheering the labours of their Fathers , their Husbands , their Brothers , and their Children. Amongst others , the numerous societies of Freemasons joined in a body , and headed by their Grand-Master , who was also Mayor of the city , proceeded to Brooklyn , and assisted very spiritedly in its defence. On this occasion an elderly gentleman , one of the order , who had two sons (his only children) in the service of his country , one of them highly distinguished during the war for his wounds and his bravery , sung the following stanzas , in his own character of Mason and Father , whilst the Lodges were at refreshment :
+21 Now Abraham , with his band , came a great way , even from the town of Patterson , where the wonderful waterfalls pour headlong over the rocky mountains , reflecting in the sun a thousand brilliant rainbows ,
+
+22 Thus for an hundred days did the people of New- York prepare themselves for danger , and cast up entrenchments for many furlongs round about the city ; so that the people of Britain were afraid to go against it.*
+
+* So great was the enthusiasm of the people in contributing their personal services to the erection of fortifications on the heights of Haerlem and Brooklyn , that scarcely could an individual be found in the populous city of New-York , from hoary age to tender youth , capable of using a mattock or a spade , who did not volunteer his services in this work of patriotism. Even the Ladies were conspicuous in aiding and cheering the labours of their Fathers , their Husbands , their Brothers , and their Children. Amongst others , the numerous societies of Freemasons joined in a body , and headed by their Grand-Master , who was also Mayor of the city , proceeded to Brooklyn , and assisted very spiritedly in its defence. On this occasion an elderly gentleman , one of the order , who had two sons (his only children) in the service of his country , one of them highly distinguished during the war for his wounds and his bravery , sung the following stanzas , in his own character of Mason and Father , whilst the Lodges were at refreshment :
 
 I.
 Hail , Children of Light ! whom the Charities send
@@ -4251,11 +4249,11 @@ II.
 
 For me , whose dismissal must shortly arrive ,
   To Heav'n I prefer this my fervent petition :
-  "May I never America's freedom survive ,
-    "Nor behold her disgrac'd by a shameful submission :
-      "And , though righteously steel'd
-      "If at last she must yield ,
-    "May my sons do their duty , and die in the field:"
+" May I never America's freedom survive ,
+   " Nor behold her disgrac'd by a shameful submission :
+     " And , though righteously steel'd
+     " If at last she must yield ,
+  " May my sons do their duty , and die in the field : "
   But the free and accepted will never despair ,
   Led on by their worthy Grand Master and Mayor.
 
@@ -4265,18 +4263,17 @@ For me , whose dismissal must shortly arrive ,
 
 [280]
 
-24 Notwithstanding , the haughty captains of the ships of Britain would send in their boats to rob the market-men and the fishermen: howbeit , they were sometimes entrapped.
+24 Notwithstanding , the haughty captains of the ships of Britain would send in their boats to rob the market-men and the fishermen : howbeit , they were sometimes entrapped.
 
 25 For it came to pass , upon a certain day , that the Poictiers , a mighty ship of the king , lying at a place called Sandy-Hook , sent out one of her tenders , even the Eagle , in search of this kind of plunder :
 
-26 Whereupon , a fishing boat of Columbia , called the Yankee , under the direction of a chief captain called Lewis ,* prepared kerself with a number of men to entrap the Eagle.
+26 Whereupon , a fishing boat of Columbia , called the Yankee , under the direction of a chief captain called Lewis ,* prepared herself with a number of men to entrap the Eagle.
 
-27 So they took a fatted calf , a bleating lamb , and a noisy goose , and placed them upon the deck of the boat ; and when the servants of the king came nigh the Yankee , thinking they were about to be treated handsomely with the good things of the land of
-Columbia , their hearts were rejoiced ;
+* Commodore Lewis , commander of the flotilla in the harbor of New-York.
+
+27 So they took a fatted calf , a bleating lamb , and a noisy goose , and placed them upon the deck of the boat ; and when the servants of the king came nigh the Yankee , thinking they were about to be treated handsomely with the good things of the land of Columbia , their hearts were rejoiced ;
 
 28 They commanded the vessel called the Yankee to follow after them , towards the ship of the king their master ; but at this moment the men of Columbia arose up from their hiding-places in the hold of the boat , and shot into the vessel of Britain.
-
-* CommodoreLewis , commander of the flotilla in the harbor of New-York.
 
 [281]
 
@@ -4286,9 +4283,9 @@ Columbia , their hearts were rejoiced ;
 
 31 And as they came up to the city , before the Battery , which is a beautiful place to the south thereof , the thousands who were assembled there , to celebrate the Columbian Jubilee ,* rent the air with loud shouts of joy , whilst the roaring engines echoed to the skies.
 
-32 Thus was the lamb preserved , and the proud and cunning men of Britain outwitted with a fatted calf and a Yankee goose.
-
 * American Independence.
+
+32 Thus was the lamb preserved , and the proud and cunning men of Britain outwitted with a fatted calf and a Yankee goose.
 
 [282]
 
@@ -4298,8 +4295,7 @@ Affairs on the ocean--privateer Prince of Neufchatel--Marquis of Tweedale defeat
 
 STILL there was no peace , and the evils of war continued on the face of the deep , and the waters thereof were encrimsoned with the blood of man.
 
-2 And it came to pass , on the eleventh day of the tenth month , in the eighteen hundred and fourteenth year , that there was a sore battle fought between five barges from the Endymion , a strong ship of the king , and a privateer , called the Prince of Neufchatel , commanded by the valiant Ordonneaux , a
-man of Gaul.
+2 And it came to pass , on the eleventh day of the tenth month , in the eighteen hundred and fourteenth year , that there was a sore battle fought between five barges from the Endymion , a strong ship of the king , and a privateer , called the Prince of Neufchatel , commanded by the valiant Ordonneaux , a man of Gaul.
 
 [283]
 
@@ -4361,7 +4357,7 @@ asunder and was lost.
 
 22 And the killed and wounded of the St. Lawrence were thirty and eight ; and the Chasseur had five slain and eight maimed.
 
-23 Moreover , it came to pass , on the twenty-third day of the next month , that another fighting vessel of the king , called the Penguin , was taken by the Hornet , a strong vessel of Columbia , commanded by a man of valor and coinage , whose surname was Biddle.
+23 Moreover , it came to pass , on the twenty-third day of the next month , that another fighting vessel of the king , called the Penguin , was taken by the Hornet , a strong vessel of Columbia , commanded by a man of valor and coinage , whose sur-name was Biddle.
 
 24 However , the battle was a bloody one , and the vessels kept their engines of destruction fiercely in motion , for about the space of half an hour before the flag of Britain was lowered to the stripes of Columbia.
 
