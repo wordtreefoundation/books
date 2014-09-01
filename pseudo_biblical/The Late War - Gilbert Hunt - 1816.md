@@ -6,7 +6,7 @@ year: 1816
 place: New York
 source: "https://archive.org/details/latewarbetween_00hunt"
 status: CLEAN+0
-note: Missing pages 307-310 , Commercial Treaty
+note: Missing pages 307-310 , Commercial Treaty. Comparison to Book of Mormon: http://wordtreefoundation.github.io/thelatewar
 ---
 
 THE
