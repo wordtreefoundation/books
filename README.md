@@ -21,16 +21,23 @@ Interested in helping? Want to join WordTree? Send an email to info@wordtree.org
 Status of Books
 ===============
 
+MISSING TEXT
+------------
+
+- [Chronicles](pseudo_biblical/Chronicles, The Maryland Journal - 1766.md) (1766)
+
 IMAGE ONLY
 ----------
 
 - [Chronicles](pseudo_biblical/Chronicles - Massachusetts Centinal - 1786.md) (1786)
+- [Chronicles of Andrew](pseudo_biblical/Chronicles of Andrew - Jesse Denson - 1815.md) (1815)
 - [The Book of Preferment](pseudo_biblical/The Book of Preferment - Horace Walpole - 1742.md) (1742)
 
 OCR ONLY
 --------
 
 - [The Conquest of Canaan](pseudo_biblical/The Conquest of Canaan - Timothy Dwight - 1785.md) (1785)
+- [The epistles of Ignatius and Polycarp](pseudo_biblical/The Epistles of Ignatius and Polycarp - 1827.md) (1827)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1817 (archive.org).md) (1817)
 - [True Relation of the Holy War](pseudo_biblical/True Relation of the Holy War - 1806.md) (1670 or so)
 
@@ -44,6 +51,7 @@ CLEAN+0
 CLEAN+1
 -------
 
+- [Chiefs of Muttonville](pseudo_biblical/A Chronicle of the Chiefs of Muttonville - White Griswold - 1830.md) (1830)
 - [Chapter 37th](pseudo_biblical/Chapter 37th - 1782.md) (1782)
 - [Chronicles of Nathan Ben Saddi](pseudo_biblical/Chronicles of Nathan Ben Saddi - 1758.md) (1758)
 - [Reformer Chronicles](pseudo_biblical/Reformer Chronicles - 1832.md) (1832)
@@ -61,10 +69,6 @@ CLEAN+2
 
 - [The Book of Mormon](pseudo_biblical/Book of Mormon - Joseph Smith - 1830.md) (1830)
 
-IN PROCESS
-----------
-
-- [Chronicles of Andrew](pseudo_biblical/Chronicles of Andrew - Jesse Denson - 1815.md) (1815)
 
 FAQ
 ===
