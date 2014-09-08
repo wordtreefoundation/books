@@ -1,0 +1,53 @@
+'''Pseudo-Biblicism''' is a style of writing in English that imitates the language of the King James Bible. Its popularity began in England in 1740 and spread to British North America, ending around 1830. It is also known as the "Scriptural Style", or the "Style of Ancient Antiquity".<ref>Shalev, Eran (2010) [http://www.thefreelibrary.com/%22Written+in+the+Style+of+Antiquity%22%3A+Pseudo-Biblicism+and+the+Early...-a0244888045 "Written in the Style of Antiquity": Pseudo-Biblicism and the Early American Republic, 1770-1830] Retrieved August 2014.</ref>
+
+==Motivation==
+
+When the King James Bible was translated, its translators intentionally chose language forms that were antiquated even in its day. They did so "to create a voice of divine wisdom and truth" (Shalev 2010). Borrowing from this distinctive voice, English and American authors employed the "Style of Ancient Antiquity" as a rhetorical tool.
+
+For instance, English authors chronicled wars in the biblical style, lending gravity to the battles in faraway lands: "[the people of Hungary] cried unto the Lord their God in their distress ... but the men of Hungary prevailed : for the Lord was on their side." (French Gasconade 1743)
+
+Furthermore, some American authors wrote in the pseudo-biblical genre as part of a larger pursuit toward national identity: (Shalev 2010)
+
+<blockquote>While the language of the Bible reiterated Americans' understanding of their collective mission, it also positioned politics as the new religion of the republic, a medium that sanctified the nation and constructed Americans' perception of chosenness... The pseudo-biblical language thus wove the Bible into American life and sanctified the young nation.</blockquote>
+
+Because the bible was a cultural text with near universal familiarity in England and the Americas, pseudo-biblical publications found a niche and acted as a medium of expression for nearly a century.
+
+==Examples==
+
+'''The French Gasconade Defeated''' (1743):<ref>Boston Evening Post, Oct. 31, 1743 [https://raw.githubusercontent.com/wordtreefoundation/books/master/pseudo_biblical/The%20French%20Gasconade%20Defeated%20-%201743.md The French Gasconade defeated, and then swept out of Germany] Retrieved August 2014.</ref>
+
+<blockquote>And the people were sore afraid, even the people over all Hungary.
+
+And they cried unto the Lord their God in their distress, and the Lord heard their cry.
+
+And behold, there was a sore battle fought : but the men of Hungary prevailed : for the Lord was on their side.
+</blockquote>
+
+'''The Book of America''' (1766):<ref>Boston Gazette, May 12, 1766 [https://raw.githubusercontent.com/wordtreefoundation/books/master/pseudo_biblical/The%20Book%20of%20America%20-%201766.md The Book of America] Retrieved August 2014.</ref>
+
+<blockquote>AND it came to pass in the days of George the King, (who ruled over the children of Britain, and the children of Ireland, and over those who dwell in the Isles afar off, and on the coast of the Great Land across the mighty ocean of waters, even in America)
+
+That when the war which he had waged against the Gaulities and the Iberianites, was at an end, that the People of his land were burdened with debts, and grievous were the tributes which they paid.</blockquote>
+
+'''Chapter 37th''' (1782):<ref>Boston Evening Post, April 20, 1782 [https://raw.githubusercontent.com/wordtreefoundation/books/master/pseudo_biblical/Chapter%2037th%20-%201782.md Chapter 37th] Retrieved August 2014.</ref>
+
+<blockquote>AND it came to pass in the reign of George the king, who ruled over Albion, and whose empire extended to the uttermost parts of the earth, that the spirit of Belial went forth among the sons of men, and people warred against people, and nation against nation, so that there was no peace in the land.</blockquote>
+
+[[The First Book of Napoleon]] (1809):<ref>Linning, Michael (1809) [https://archive.org/details/firstbooknapole00gruagoog The First Book of Napoleon, the Tyrant of the Earth: Written in the 5813th Year of the World] Retrieved August 2014.</ref>
+
+<blockquote>And behold it came to pass, in these latter days, that an evil spirit arose on the face of the earth, and greatly troubled the sons of men, 
+
+And this spirit seized upon, and spread amongst the people who dwell in the land of Gaul 
+
+Now, in this people the fear of the Lord had not been for many generations, and they had become a corrupt and perverse people; and their chief priests, and the nobles of the land, and the learned men thereof, had become wicked in the imaginations of their hearts, and in the practices of their lives.</blockquote>
+
+[[The Late War between the United States and Great Britain]] (1816):<ref>Hunt, Gilbert J. (1816) [https://raw.githubusercontent.com/wordtreefoundation/books/master/pseudo_biblical/The%20Late%20War%20-%20Gilbert%20Hunt%20-%201816.md The Late War Between the United States and Great Britain...] Retrieved August 2014.</ref>
+
+<blockquote>Immediately Jackson took two thousand hardy men, who were called volunteers, because they fought freely for their country and led them against the savages. Now the men of war that followed after him were mostly from the state of Tennessee, and men of dauntless courage.</blockquote>
+
+[[Book of Mormon|The Book of Mormon]] (1830):<ref>Smith, Joseph (1830) [https://archive.org/details/bookofmormon00smit The Book of Mormon] Retrieved August 2014.</ref>
+
+<blockquote>For it came to pass in the commencement of the first year of the reign of Zedekiah, king of Judah, (my father Lehi having dwelt at Jerusalem in all his days;) and in that same year there came many prophets, prophesying unto the people, that they must repent, or the great city Jerusalem must be destroyed.</blockquote>
+
+==References==
+{{reflist}}
