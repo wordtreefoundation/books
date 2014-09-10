@@ -30,7 +30,6 @@ IMAGE ONLY
 ----------
 
 - [Chronicles](pseudo_biblical/Chronicles - Massachusetts Centinal - 1786.md) (1786)
-- [Chronicles of Andrew](pseudo_biblical/Chronicles of Andrew - Jesse Denson - 1815.md) (1815)
 - [The Book of Preferment](pseudo_biblical/The Book of Preferment - Horace Walpole - 1742.md) (1742)
 
 OCR ONLY
@@ -44,6 +43,7 @@ OCR ONLY
 CLEAN+0
 -------
 
+- [Chronicles of Andrew](pseudo_biblical/Chronicles of Andrew - Jesse Denson - 1815.md) (1815)
 - [The Fall of Samuel the Squomicutite ALT](pseudo_biblical/The Fall of Samuel the Squomicutite ALT - 1763.md) (1763)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1816.md) (1816)
 - [The Late War](pseudo_biblical/The Late War - Gilbert Hunt - 1819.md) (1819)
