@@ -1,4 +1,5 @@
 ---
+id: pseudobib1809firstbooknapole
 short_title: "The First Book of Napoleon"
 title: "The First Book of Napoleon, the Tyrant of the Earth: Written in the 5813th Year of the World"
 author: Eliakim the Scribe

@@ -1,4 +1,5 @@
 ---
+id: pseudobib1742bookpreferment
 short_title: The Book of Preferment
 author: Horace Walpole
 year: 1742

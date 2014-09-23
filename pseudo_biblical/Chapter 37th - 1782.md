@@ -1,4 +1,5 @@
 ---
+id: pseudobib1782chapter37th
 short_title: Chapter 37th
 author: 
 year: 1782

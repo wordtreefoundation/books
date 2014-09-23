@@ -1,4 +1,5 @@
 ---
+id: pseudobib1758chronbensaddi
 short_title: Chronicles of Nathan Ben Saddi
 title: "A Fragment of the Chronicles of Nathan Ben Saddi ; A Rabbi of the Jews, Lately Discovered in the RUINS of Herculaneum : And Translated from the Original, into the Italian Language. By Command of the King of the Two Sicilies, AND Now first publish'd in English."
 author:

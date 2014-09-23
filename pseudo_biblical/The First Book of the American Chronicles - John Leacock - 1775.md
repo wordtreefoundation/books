@@ -1,4 +1,5 @@
 ---
+id: pseudobib1775amchrontimes
 short_title: The First Book of the American Chronicles of the Times
 author: John Leacock
 year: 1775

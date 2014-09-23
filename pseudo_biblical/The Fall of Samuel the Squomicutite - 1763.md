@@ -1,4 +1,5 @@
 ---
+id: pseudobib1763samsquo1
 short_title: The Fall of Samuel the Squomicutite
 author: Samuel Hopkins
 year: 1763

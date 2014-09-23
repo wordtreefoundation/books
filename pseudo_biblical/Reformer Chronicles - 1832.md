@@ -1,4 +1,5 @@
 ---
+id: pseudobib1832reformchron
 short_title: Reformer Chronicles
 title: Reformer Chronicles - Chapter 2
 author:

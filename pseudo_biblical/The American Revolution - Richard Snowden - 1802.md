@@ -1,8 +1,9 @@
 ---
+id: pseudobib1793amerrev
 short_title: "The American Revolution"
 title: "The American Revolution: written in Scriptural, or Ancient Historical Style"
 author: Richard Snowden
-year: 1766
+year: 1793
 place: 
 source: 
 status: CLEAN+1

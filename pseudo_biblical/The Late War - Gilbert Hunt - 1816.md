@@ -1,4 +1,5 @@
 ---
+id: pseudobib1816thelatewar
 short_title: The Late War
 title: "The Late War Between the United States and Great Britain , From June 1812 to February 1815 , Written in the Ancient Historical Style"
 author: Gilbert J. Hunt

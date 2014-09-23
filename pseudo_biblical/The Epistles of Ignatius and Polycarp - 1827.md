@@ -1,4 +1,5 @@
 ---
+id: pseudobib1827epistignatius
 short_title: The epistles of Ignatius and Polycarp
 author: W.K. Clementson
 year: 1827

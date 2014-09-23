@@ -1,4 +1,5 @@
 ---
+id: pseudobib1830bookofmormon
 short_title: The Book of Mormon
 author: Joseph Smith
 year: 1830

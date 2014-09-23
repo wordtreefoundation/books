@@ -1,4 +1,5 @@
 ---
+id: pseudobib1785conqcanaan
 short_title: The Conquest of Canaan
 author: Timothy Dwight
 year: 1785

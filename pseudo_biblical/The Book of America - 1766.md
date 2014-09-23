@@ -1,4 +1,5 @@
 ---
+id: pseudobib1766bookofamerica
 short_title: The Book of America
 author: 
 year: 1766

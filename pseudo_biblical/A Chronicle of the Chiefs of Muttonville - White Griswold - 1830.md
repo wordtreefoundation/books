@@ -1,4 +1,5 @@
 ---
+id: pseudobib1830muttonville
 short_title: Chiefs of Muttonville
 title: A Chronicle of the Chiefs of Muttonville!
 author: White Griswold

@@ -1,4 +1,5 @@
 ---
+id: pseudobib1743frenchgasc
 short_title: The French Gasconade Defeated
 title: The French Gasconade defeated, and they swept out of Germany
 author: 

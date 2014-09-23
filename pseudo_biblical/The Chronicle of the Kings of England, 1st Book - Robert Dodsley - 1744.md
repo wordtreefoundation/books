@@ -1,4 +1,5 @@
 ---
+id: pseudobib1744chronkings1
 short_title: "1st Book of the Chronicle of the Kings of England"
 title: "The First Book of the Chronicle of the Kings of England, Written in the Manner of the Ancient Jewish Historians"
 author: Robert Dodsley

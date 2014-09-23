@@ -1,4 +1,5 @@
 ---
+id: pseudobib1670holywar
 short_title: True Relation of the Holy War
 title: A True Relation of the Holy War, Made by King Shaddai Upon Diabolus, For the Regaining of the Metropolis of the World, or, The Losing and Taking Again of the Town of Mansoul
 author: John Bunyan
@@ -15,7 +16,7 @@ TRUE RELATION
 
 OF THE 
 
-HOLY WAft, 
+HOLY WAR, 
 
 MADE BY 
 
@@ -25,9 +26,9 @@ UPON
 
 DIABOLUS, 
 
-TOR THE 
+FOR THE 
 
-REGAINING OF THE METROPOLIS OF THE WORLD » 
+REGAINING OF THE METROPOLIS OF THE WORLD
 OR, THE LOSING AND TAKING AGAIN OF THE 
 
 TOWN OF MANSOUL. 
@@ -38,11 +39,11 @@ By JOHN BUNUN.
 
 A NEW EDITION, 
 
-ILLUSTRATED BY THE AUTHOR'S OWN^REFERENCES, 
+ILLUSTRATED BY THE AUTHOR'S OWN REFERENCES, 
 
 and embellisher vr..J>t 
 
-SIX BEAUTIFUL ENGRAVING*. 
+SIX BEAUTIFUL ENGRAVINGS. 
 BUNGAY : 
 
 JMUNTED AND PUBLISHED BY BRIGHTLY AND tQ, 

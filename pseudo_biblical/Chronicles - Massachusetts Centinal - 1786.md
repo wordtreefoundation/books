@@ -1,4 +1,5 @@
 ---
+id: pseudobib1786chron
 short_title: Chronicles
 author: 
 year: 1786

@@ -1,4 +1,5 @@
 ---
+id: pseudobib1819thelatewar
 short_title: The Late War
 title: The Historical Reader Containing The Late War Between the United States and Great Britain , From June 1812 to February 1815 , In the Scriptural Style
 author: Gilbert J. Hunt

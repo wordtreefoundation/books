@@ -1,4 +1,5 @@
 ---
+id: pseudobib1812chronjohn
 short_title: The First Book of the Chronicles of John
 author: 
 year: 1812

@@ -1,4 +1,5 @@
 ---
+id: pseudobib1744chronkings2
 short_title: "2nd Book of the Chronicle of the Kings of England"
 title: "The Second Book of the Chronicle of the Kings of England, Written in the Manner of the Ancient Jewish Historians"
 author: Robert Dodsley
