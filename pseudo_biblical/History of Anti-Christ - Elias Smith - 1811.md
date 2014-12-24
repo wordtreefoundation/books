@@ -435,139 +435,139 @@ CHAPTER III.
 
 1 Now it came to apss after these things, that Anti-Christ began to exercise his authority over the disciples of Christ, by causing them to be put to death.
 
-2 And when this was done, great multitudes rofc up agaloft hiin and^ faldf we will not have Anti-Christ to reign over us.
-3 Then rofe up Dominic, and said unto Anti-Chrtft, let us eftab- lifli an anti-chriiiae court, and call it the court of Inqui-fition.
-4 And 1ft those who are heretics, and all who are fufpefted of herefy, be brought before the court to be examined, by torturing them, 'till they confefi their errors*
-j Now it came to pass, that when this court was cftabliflted, all who were enemies to AntidChrist, were brought before I lie court to be punlfhedf (now this wm like the modern gag law, which was to
-.
-￼ANTI-CHRHT, _ ?
-prevent the people from speaking the truth.)
-6 Andthisforfometimeferved to promote the federal plan, and to prevent many of Chnft's friends from publicly owning Iiim.
-7 Now when Anti-Christ Hw how beneficial the court of inqui- fition was to his kingdom, and that he wore out the difciples of Clirift by it, lie conferred on Dominic the title of Saint, and from that day to
-this he has been called St. DOMI- NIC,
-8 And after this, the cause of Christ fcemed to be on the decline j and Anti-Christ reigned many
-years undifturbed, havmg kings at his command.
-9 (For he made one king lie under his table while he fet at meat; another he caused to hold his ftir- rup when he mounted his horfe j another he caused to kifs his great toep- and others he took their crowns from off their heads, *tiU
-￼42 HISTORY yi
-they owned reigned.)
-that say k m jemgs
-10 And by teafoii of the courr of inquifitioii (by which ail who were iufpetted of being enemies to Anti-Christ, were tortured or kill- ed) the number of Christ's difci- pies became fo fmall, that Anti-
-Christ coritluded he had obtained a complete- victory weir Ch'rtfl aid l i b followers,
-11 Mow %vhcn this was done* An&Christ gathered together alt who were members of the federal $sdyf and laid unto them,
-i a 1 ha¥e obtained what I once thought I never fhould, for now my kingdom is eftablifhed on the
-ruins or Christ's* and over other kingdoms which are not deftroycdf fo that they now pay homage to
-me as their rightful fevereigh,
-13 Now therefore^ as a reward
-for your faithfulnefs, 1 confer on you the titles which 1 promifei many years ago.
-￼JGfYl-CERtST, 43
-14 Then were they illfilledwith joy when they had received their places §fofficeforKfe3 acd they all agreed to be feithftil m-iimfe(kml
-cmfk% and to oppofe aS who rofe up aplnft theni.
-^ 15 And it came to prig in the time of the profperous reign of Anti-Christ, that many new things were cftablifiied which had not taken phec fince the world began.
-i6 Norn* theseare feme of them —Antl-Chrilt founded a federal
-company, oiled monks* who lived in caves § andalso a female companys called nuns* who were fecludcd in
-a cloicfter from the world, but not from the federal company*
-17 Anti-Chrii had alia a place called purgatoryf where all (except the federal company) were taught that their friends were fufferlng for theirfin*>,who died without a pardon from Anti-Christ; and that if their friend* gave large funis o£ money 19 any of this company.
-￼#4
-HISTORY Oi'
-they colli .deliver themfronttheir mitery.
-18 Anti-Christ and his friends taught the people likcwlfc the im* portance of praying to Maryrto ikinte and angels, and that their fins might be pardoned before they were committed, (now this was called indulgence.)
-ip Therearemanythingsmore of this nature, of which we cannot now speak particularly* for if they were all written the world would fearcely contain the books which would be written.
-20 But these things are written unto you who believe Anti-Christ is in the world, that you may fee
-the power he once poffeffed, and how much he has loft; and that he wiU certainly be deftroyed, and
-the federal flan come to nothing;*
-￼1
-reign of Anti-Christ, and the lyjck* ednefs of the clem which wis al> lowed by Anti-Christ, the whole earth wm filled with Yiolence* ig*
-BorancCj and every kind of cruelty. 3 For e¥en in England the reign
-of Anti-Christ was fo powerful, that the king feared him9 and the whole ifland groaned under their tlcrical talk matters j and their groans reached hcaYen*
-AWTf-CIIRlS^,. 4s
-mdpmM m
-i And. It came to pall say reafon of Anti-Christ's pretending to be Christ's vicegerent on earth, and
-taking away the fcriptttf e from the people, that he extended his king* dom over almoft the whole world, 2 And by reafon of the cruel
-4 And it came to pass that when •Anti-Christ was about thirteen
-hundred and fixty years old, Christ raifcd up againil Anti-Christ one John whofe lurnamc was Wickliflf,
-5 Who appeared to Anti-Christ
-￼4<i
-HI3T0&Y o r
-I
-like Gideon conquering the Midi. anites, with only a trumpet and & lamp*
-6 For he^by preaching and writ ingf gave fisch a fbock to Anti« Chritt and his kingdom, that it has been on the decline from that day
-to this*T
-7 (X ow at the tune when John
-lived, the money and power was in the hands of tlm feJemi clergyf who oppreOedtlie people that were poor and without power to help them, fibres*)
-8 And when this was done, Anti-Christ fought to deftroy Johof who-had difcoveredliis wsckednefi, and that of the clergy*, whom he called proud, worldly, curfed dip*
-pen and pttrfe carvers*
-9 John aUb said unto Anti-Christf
-that the abomination of dcfolation had its beginning from a perverfe Clergy.
-10 At that time, when John lav the wickednefe and pride of
-￼Aft-n-CHRlST. 4^
-ilw*federalclergy*, he prayed and said,
-i1 O Lord, what tokens of ineekei and fotfaklng of worldly riches, are these clergymen, pre- tending to be dead to the world, with the pride and vanity thereof $
-^ i a Yet under this* pretence^ ri* ding with eighty horfcs., haraeled with gold and filver, and ffend- ing with carls and barons thou- foodsof pounds, to maintain a fidfe plea- of the world, and to pre- vent men from enjoying their rights-
-13 Now when he had made this prayer, they being convicted in their own confcienccs of tho truth of thefc things, fought how they might deftroy him,
-14 And for his Jhitlifulnefi he was brought before Anti-Christ, and accufed of lierefy, yet he ef- caped out of their handti, and af- ter writing many books against
-'Anti-Chilli, lie died in peae§»
-￼48
-HISTORY or
-ij^ AndItcametopassthat af- ter km death,-his dofirine, (by rea* fen of his book! and name) iprcad in many parts of Anti-Christ** kingdonii
-16 So that after he was dead, he did more to deltroy Ariti- Christ than he did In his life time,
-which filled all the federal compa* # ny with madneft,
-17 Then. Ami-Christ fcnt into all the regions round about, and caused all the books to be burnt, which were written by John, whole furname was WicklifT.
-18 Moreover Anti-Christ fcr.t to the clergy in England, forty and four years after John was dead, and ordered his bones to be taken out of the grave and burnt, which was done,
-19 And after they had burnt them, they oft the allies into a brook called Swift, which has its head near Knaptoft, in Lciceftefr fliirct
-￼Af%Yi-CIMIST. 4 9
--Ba Now ilie reft of tic icis of John—how In trsniatfd the Mew ifcftamcnt* lirft into tie Engllfii language* and hid tie foundation
-of an after reformation : arc they not found In Trimif College* in the BoilHm9 and the Kim*$ libmrf% In tiigtami ?
-21 Now this greateft ael of John in transiting the fcriptmres, wa» that which offended Ami- Chr1ft more than any thing die ;
-21 For by rcafon of the fcrip- turc which the common people had to read, they law how they had been impofed on by the wick- ed^ clergy, who had taken the fcriptmvs from them.
-21 Now the rcalon why they deprived the people of the fcrip- turcs was, that ihey might praAtfc in wkkeJneir, which the fcrip- tires forbid,
-24 And by rcafon of this, the people rejected thefc fpiritnal ru- lers, and their traditions, r.nd fob-
-￼5®
-HISTORY OF
-fritted to the commands of Chrifr, a5 Now:it came to pass chatal- ter John was dead, Clirit railed
-up other witnefles,'which gawea Sreater Mow to Anti-CIirilt than
-e had cter received before,
-CM4PTER y.
-T And it came to pais when Anti-Ohrift began to be about fit teen hundred years* old, that ma- ny of Christ's friends publicly op* pofed Mm,
-% And laid unto him, we wiU not fulinit unto thy cruel laws, for "they are opprcflive and griev* ous to tic borne*
-3 And at that time Anti~Christ sent forth one John, whofe fur- name was Tctzel, to fell iiidulgeo-
-cies, by which he might raiie mon* ey to build hb palace, which hi called the Church of St. Peter*
-4 And John said unto the pea* pie, i have sayed more fouls by hi
-￼AKT1-CHR1ST, p
-|tilg§tieie§f than ever the Apoftle Peter did by preaching the gofpel ^ 5 Now it came tii pass at that
-time* that Ghril mMkd up a man Galled Martin* whofe i m a m e was Luther, [Now he was called Mar- tin, because'he wafr.boni on St. Martin's eve.]
-6 And he laid unto John, thorn haft not power to pardon fim, but thou Impofeft on the people, that thou mayeft increaft thy wealth by iinpoverifliuig the multitude*
-7 Now Martin was mighty m the Scriptures, and had under- Handing concerning, what was con- tained therein,
-8 And m he oppnfed John, the eyes of the people were opened to fee the wickcdnefs of frnti-Christ and the Clergy.*
-9 And Martin increafid in ftrengiii, and mightily convinced the people of the wickcdnefs of Anti-Ohrift and his followers.
-io Now when this came to the
-￼ft HISTORY OF
-cars of An&Christ, he was filled with rage againt Martin, & fought to deflroy Kim j for by reaten of him many threw off the yoke which Anti-Chrli had laid on
-then
-11 And Antl-Chril wrote un* to Martin9 wltofe furname was Lu- ther, laying, thou art an heretic,
-and unicfii thou reprateft of thy hercfy, thou flialt be excomnmm* catcd, which will be eternal danife sation*
-12 Then fMd Martin, If 1 haw done any thing worthy of death or bonds* 1 rcftiie not to die ; but unlefsthou.prqvcft from tlicfcrip-
-. lutes that 1 am an hcn-lic, 1 lhall not acknowledge ni)iclf in an cr^ ror*
-^ 13 Then fald Aell-Christ unto him, unlefo thou appear before mc, and confefs and renounce thy falte doftrine, thou (halt be dealt with as an heretic,
-14 Now it came to oafi that the
-1
-￼ANTi-c-KniaT* 5 |
-day before Anti-Chr&ft had de- creed to cut him off, that Martin aflcmblcd the people of t\m city, andrfatd unto titetit, 1 this day re*
-jcet Anti-Christ and lib doctrine s 15" Moreover 1 rejeft thefcdsml
-planj adopted by Anti-Chrill and his followers, and all the wicked* neft which they practife» under pretence of being the friends of
-Christ.
-16 Then Anti-Christ was wroth,
-and fought how he might <*diroy Martin and his doctrine, which was fo injurious to the federal plan*
-17 And he wrote unto the Em- peror, in whofc dominion Martin dwelt, ordering him to deliver op Martin, or he fhould be e&pofcd to
-the wrath of Anti-Christ.
-18 Howbeit the Emperor obey*
-ed him not,but revolted and threw off the yoke which Anti-Christ had put on his neck, which made An* ti»Christ tremble like Magernula*
-￼54- HISTORY Of
-if Now^ It; cime to pal: that when Martin found that' the Em* fterar a i d multitudes of the peo-
-pie had embraced hia doftrine, and were ©ppofed to Anti-Christ, that he was much more bold to preach the doftrlne of Christ, and to op-
-pofe Ami-Christ.
-20 And hi told the people that
-though Anti-Chfift pretended to be a friend to Christ, yet he was an enemy to liimf and to all righ- tcoufnefa.
-91 Mow these are fome of the reafcn§ which Martin brought to prove the wickednefs of Antt- Christ, and all the jkkrai band.
+2 And when this was done, great multitudes rose up against him and said, we will not have Anti-Christ to reign over us.
+
+3 Then rose up Dominic, and said unto Anti-Chrtft, let us establish an anti-christian court, and call it the court of Inquisition.
+
+4 And let those who are heretics, and all who are suspected of heresy, be brought before the court to be examined, by torturing them, 'till they confess their errors.
+
+5 Now it came to pass, that when this court was established, all who were enemies to Anti-Christ, were brought before the court to be punished (now this was like the modern gag law, which was to prevent the people from speaking the truth.)
+
+6 And this for some time served to promote the federal plan, and to prevent many of Christ's friends from publicly owning him.
+
+7 Now when Anti-Christ saw how beneficial the court of inquisition was to his kingdom, and that he wore out the disciples of Christ by it, he conferred on Dominic the title of Saint, and from that day to this he has been called St. DOMINIC.
+
+8 And after this, the cause of Christ seemed to be on the decline; and Anti-Christ reigned many years undisturbed, having kings at his command.
+
+9 (For he made one king lie under his table while he set at meat; another he caused to hold his stirrup when he mounted his horse; another he caused to kiss his great toe; and others he took their crowns from off their heads; and others he took their crowns from off their heads, 'till they owned that by him king-reigned.)
+
+10 And by reason of the court of inquisition (by which all who were suspected of being enemies to Anti-Christ, were tortured or killed) the number of Christ's disciples became so small, that Anti-Christ concluded he had obtained a complete victory over Christ and his followers.
+
+11 Now when this was done, Anti-Christ gathered together all who were members of the federal body, and said unto them,
+
+12 I have obtained what I once thought I never should, for now my kingdom is established on the ruins of Christ's, and over other kingdoms which are not destroyed, so that they now pay homage to me as their rightful sovereign.
+
+13 Now therefore, as a reward for your faithfulness, I confer on you the titles which I promised many years ago.
+
+14 Then were they all filled with joy when they had received their places of office for life, and they all agreed to be faithful in the federal cause, and to oppose all who rose up against them.
+
+15 And it came to pass in the time of the prosperous reign of Anti-Christ, that many new things were established which had not taken place since the world began.
+
+16 Now these are some of them--Anti-Christ founded a federal company, called monks, who lived in caves; and also a female company, called nuns, who were secluded in cloiester from the world, but not from the federal company.
+
+17 Anti-Christ had also a place called purgatory, where all (except the federal company) were taught that their friends were suffering for their sins, who died without a pardon from Anti-Christ; and that if their friends gave large sums of money to any of this company, they could diliver them from their misery.
+
+18 Anti-Christ and his friends taught the people likewise the importance of praying to Mary, to saints and angels, and that their sins might be pardoned before they were committed, (now this was called indulgence.)
+
+19 There are many things more of this nature, of which we cannot now speak particularly, for if they were all written the world would scarcely contain the books which would be written.
+
+20 But these things are written unto you who believe Anti-Christ is in the world, that you may see the power he once possessed, and how much he has lost; and that he will certainly be destroyed, and the federal plan come to nothing.
+
+CHAPTER IV.
+1 And it came to pass by reason of Anti-Christ's pretending to be Christ's vicegerent on earth, and taking away the scripture from the people, that he extended his kingdom over almost the whole world.
+
+2 And by reason of the cruel reign of Anti-Christ, and the wickedness of the clergy which was allowed by Anti-Christ, the whole earth was filled with violence, ignorance, and every kind of cruelty.
+
+3 For even in England the reign of Anti-Christ was so powerful, that the king feared him, and the whole island groaned under their clerical task masters; and their groans reached heaven.
+
+4 And it came to pass that when Anti-Christ was about thirteen hundred and sixty years old, Christ raised up against Anti-Christ one John whose surname was Wickliff,
+
+5 Who appeared to Anti-Christ like Gideon conquering the Midianites, with only a trumpet and a lamp.
+
+6 For he, by preaching and writing, gave such a shock to Anti-Christ and his kingdom, that it has been on the decline from that day to this.
+
+7 (Now at the time when John lived, the money and power was in the hands of the federal clergy, who oppressed the people that were poor and without power to help themselves.)
+
+8 And when this was done, Anti-Christ sought to destroy John who-had discovered his wickedness, and that of the clergy, whom he called proud, worldly, cursed clippers and purse carvers.
+
+9 John also said unto Anti-Christ, that the abomination of desolation had its beginning from a perverse Clergy.
+
+10 At that time, when John saw the wickedness and pride of the federal clergy, he prayed and said,
+
+11 O Lord, what tokens of meekness and forsaking of worldly riches, are these clergymen, pretending to be dead to the world, with the pride and vanity thereof;
+
+12 Yet under this pretence, riding with eighty horses, harnessed with gold and silver, and spending with earls and barons thousands of pounds, to maintain a false plea of the world, and to prevent men from enjoying their rights.
+
+13 Now when he had made this prayer, they being convicted in their own consciences of the truth of these things, sought how they might deftroy him.
+
+14 And for his faithfulness he was brought before Anti-Christ, and accused of heresy, yet he escaped out of their hands, and after writing many books against Anti-Christ, he died in peace.
+
+15 And it came to pass that after his death, his doctrine, (by reason of his books and name) spread in many parts of Anti-Christ's kingdom.
+
+16 So that after he was dead, he did more to destroy Anti-Christ than he did in his life time, which filled all the federal company with madness.
+
+17 Then Anti-Christ sent into all the regions round about, and caused all the books to be burnt, which were written by John, whose surname was Wickliff.
+
+18 Moreover Anti-Christ sent to the clergy in England, forty and four years after John was dead, and ordered his bones to be taken out of the grave and burnt, which was done.
+
+19 And after they had burnt them, they cast the ashes into a brook called Swift, which has its head near Knaptoft, in Leicestershire.
+
+20 Now the rest of the acts of John--how he translated the New Testament, first into the English language, and laid the foundation of an after reformation: are they not found in Trinity College, in the Bodlien, and the King's library, in England?
+
+21 Now this greatest act of John in translating the scriptures, was that which offended Anti-Christ more than any thing else;
+
+22 For by reason of the scripture which the common people had to read, they saw how they had been imposed on by the wicked clergy, who had taken the scriptures from them.
+
+23 Now the reason why they deprived the people of the scriptures was, that they might practice in wickedness, which the scriptures forbid.
+
+24 And by reason of this, the people rejected these spiritual rulers, and their traditions, and submitted to the commands of Christ.
+
+25 Now it came to pass that after John was dead, Christ raised up other witnesses, which gave a greater blow to Anti-Christ than he had ever received before.
+
+CHAPTER V.
+
+1 And it came to pass when Anti-Christ began to be about fifteen hundred years old, that many of Christ's friends publicly opposed him,
+
+2 And said unto him, we will not submit unto thy cruel laws, for they are oppressive and grievous to be borne.
+
+3 And at that time Anti-Christ sent forth one John, whose surname was Tetzel, to sell indulgencies, by which he might raise money to build his palace, which he called the Church of St. Peter.
+
+4 And John said unto the people, I have saved more souls by indulgencies, than ever the Apostle Peter did by preaching the gospel
+
+5 Now it came to pass at that time, that Christ raised up a man called Martin, whose surname was Luther. [Now he was called Martin, because he was born on St. Martin's eve.]
+
+6 And he said unto John, thou hast not power to pardon sins, but thou imposest on the people, that thou mayest increase thy wealth by impoverishing the multitude.
+
+7 Now Martin was mighty in the Scriptures, and had understanding concerning what was contained therein.
+
+8 And as he opposed John, the eyes of the people were opened to see the wickedness of Anti-Christ and the Clergy.
+
+9 And Martin increased in strength, and mightily convinced the people of the wickedness of Anti-Christ and his followers.
+
+10 Now when this came to the ears of Anti-Christ, he was filled with rage againt Martin, & fought to destroy him; for by reason of him many threw off the yoke which Anti-Christ had laid on them.
+
+11 And Anti-Christ wrote unto Martin, whose surname was Luther, saying, thou art an heretic, andunless thou repentest of thy heresy, thou shalt be excommunicated, which will be eternal damnation.
+
+12 Then said Martin, if I have done any thing worthy of death or bonds, I refuse not to die; but unless thou provest from the scriptures that I am an heretic, I shall not acknowledge myself in an error.
+
+13 Then said Anti-Christ unto him, unless thou appear before me, and confess and renounce thy false doctrine, thou shalt be dealt with as an heretic.
+
+14 Now it came to pass that the day before Anti-Christ had decreed to cut him off, that Martin assembled the people of the city, and said unto them, I this day reject Anti-Christ and his doctrine:
+
+15 Moreover I reject the federal plan, adopted by Anti-Christ and his followers, and all the wickedness which they practise, under pretence of being the friends of Christ.
+
+16 Then Anti-Christ was wroth, and sought how he might destroy Martin and his doctrine, which was so injurious to the federal plan.
+
+17 And he wrote unto the Emperor, in whose dominion Martin dwelt, ordering him to deliver up Martin, or he should be exposed to the wrath of Anti-Christ.
+
+18 Howbeit the Emperor obeyed him not, but revolted and threw off the yoke which Anti-Christ had put on his neck, which made ANti-Christ tremble like Magermisabib.
+
+19 Now it came to pass that when Martin found that the Emperor and multitudes of the people had embraced his doctrine, and were opposed to Anti-Christ, that he was much more bold to preach the doctrine of Christ, and to oppose Anti-Christ.
+
+20 And he told the people that though Anti-Christ pretended to be a friend to Christ, yet he was an enemy to him, and to all righteousness.
+
+21 Now these are some of the reasons which Martin brought to prove the wickedness of Anti-Christ, and all the federal band.
+
 22 Martin teftified that Antt* Christ and the federal company,
 called the Clergy, declared that they were not bound to keep the commandments of God. [Now the clerjpr were confidcred as Anti-
 Christ's ftanding army.]
