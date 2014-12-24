@@ -83,7 +83,7 @@ CHAPTER I.
 
 16 Now the manner of his appearance was this--John, the son of a Jewish high priest was sent to begin a new dispensation, which Christ was the author of; and to baptize in the river Jordan, those who believed what he preached.
 
-17 And it was said unto John, the person on whom the Holy Ghoft shall descend like a dove, the same is the Christ ; and so it was, that Christ, coming up out of the water, the Holy Ghoft descended like a dove, and sat upon him.
+17 And it was said unto John, the person on whom the Holy Ghoft shall descend like a dove, the same is the Christ ; and so it was, that Christ, coming up out of the water, the Holy Ghost descended like a dove, and sat upon him.
 
 18 And after this there came a voice, saying, this is my beloved Son in whom I am well pleased.
 
@@ -91,7 +91,7 @@ CHAPTER I.
 
 20 (Now Anti-Christ at this time for want of experience was not qualified to oppose Christ, only he was born and possessed malice in his heart against him.)
 
-21 Is this the Christ whom I thought was slain in Bethlehem many years ago ? Then answered some of his friends and said, this is indeed the very Christ.
+21 Is this the Christ whom I thought was slain in Bethlehem many years ago? Then answered some of his friends and said, this is indeed the very Christ.
 
 22 Now when Anti-Christ had heard this, he was troubled, and all his friends with him; and they adopted a federal system, which was to say one thing and do another, and to make the people think that the reason why they opposed Christ was, because they were such friends to religion and the government.
 
@@ -290,131 +290,152 @@ we worship.
 21 They likewise say, that Christ will reign 'till he has put all his enemies under his feet, and if this is
 true, we must submit among the rest.
 
-22 Now when Antt-Christ heard this, he was filled with aftoniffi- inent, and said unto them that flood by him,
-23 The dodrine of Christ has fpread much fafter fincc we begun to oppofe it, than it did when we kiUed hk followers.
-￼*8 HISTORY Of
-# 24 Let us therefore inform the king concerning this matter, and make him believe that if he does not fall these men, in afliorttime
-his kingdom will be overthrown. 25 And Anti-Christ wrote unto
-thefang,certifying that there were certain people in his realm, that were hurtful to kings s
-26 And that ifhelct them alone, they would neither pay toil, tribute
-nor cuftom.
-27 Now when this came to the cars of the king, he commanded them all to be {lain.
-28 Then said Anti.Christ, our cause now « begins to look up," and they all rejoiced with exceed-
-ing great joy,
-29 But fo it was, that notwith- Handing they put fo many todeath, yet they incrcafed the more, which caused all the joy of Ami-Chria to be turned into mourning.
-30 And Anti-ChrM called ail his M federalfriends together, with all
-￼ANTI»CHRI3T* 3 9
-the new members of their company and -laid unto tMm9
-31 1 have one plan .more to pro* pofet©youas afidwlMjtfvi?hldi 1 think will fervetoaecompjiih my wilhes.
-32 And when they all kept fi- lence, he said unto them, I fhall mention this plan to you when- we meet again*
-33 And when he had thus fpo- ke% he difinilTed the affembly*
-i; t
-« vi *1
-1*
-￼Misi§fy of AntfrCftrirt.
-BOOK H. CHAPTER / .
-% MOW It came to pass when Anti-Christ was about three fiun. drcd and thirty-four years old,
-2 That he font forth Into all the country round about, and called i together the whole federal band, I
-and fald unto tlieinf
-3 Ye fee that i hive fpnt more
-than three hundred years In endea- %forIng to overthrow the doftrine I and difeipfes of Clurift, and yet I have prevailed nothing :
-4 Noiir therefore hearken unto me, and I will make known unto you the plan which I mentioned when we affembled laft,
-5 And when they kept fdenc% he (aid unto tliemf
-￼AMTI-UHRIST. p
-tj l'h&jidcral plan which ! have is this—to endeavor to he as much lite Christ and his miniiefs is we jmllbly cattf and .appear to tee Ms friends.
-7 Let us firft make Rome the feat of our governing ntf as the Em- peror lias removed his feat of gov- ernment to Coniantliople, and given ps an opportunity of ciah* iiQiing ourfelves there.
-8* Mow that this may he done, I nmil afliraie the fame names which Christ bear?, and fome of you mnft be officers tndcr mc, as Christ's difclpks were under him.
-a Andhesaiduntothem,Christ k said to be the Image of Godf to fac a King, a Pricft, and a Prophet,
-10 He is alfo called a Bifliop of Souls, and head of the Church, md Father of his children, and the
-Infallible Judge*
-11 ^Moreover he pardons fins,
-tpromtfes a heaven to tliofe \vJ«o "obey him, and a lidl for tliofe wha
-wUi not fiibeyt to Ma government-
-￼3^
-HISTORY Of
-12 Anti*Christ Md alfo unto them, if we only take the name which his dlftiples-bear9 amfederal : mtife muft proffer, for ye know i
-that the foundation of amfederal* \ ifm is to say one thing apd do ! another.
-13 Now that we may not fail lit our plan* I muft be called God np» 011 earth, and a King of kings.
-14 I muft alfo have two govern- mentSp one temporal and the other fpiritual, and I muft be king and prleft on the throne*
-j 5 \ muft alfo be called the uni- verfal Hfhop, and the head of the church, and the father of $11 who fubmit to mc*
-16 And 1 muft alfo promlfc hea- ven to those who are faithful in our cause, and cfpeciaMy those who give money to our church*
-17 It will be nprpfpv tR Hfii- lion a hell, aiid threaten all with rternal damnation that do not obey vs 1 it will be wife in us alfo to
-￼ANTI-CHRIST, g |
-hive a place ofpirgnlow for de- parted thiils $
-18 That those who died in un- WBcf may be delivered from mife- wf by their rich friends, who may purebafe their deliverance*
-19 As Chrlft appointed twelve Apoftles3Ifliallappoint twelve men, to be called their fucceffbrs.
-20 Moreover as Chrlft appointed other officers, 1 fliall alfo appoint officers as their fucceffors, and fliall call them the Clergy.
-2i 1fliallalfo confer a number of honorable titles on those who are worthy of them, by being faithful tothisfederalplan.
-22 Now for your encourage- ment, 1 will mention fome of the titles which you fliall wear, !
-23 those who are next to me in power fliall be called Cardinab% and fliall be dUHnguiihcd by wearing
-fcarkt coloured clothes, & red caps. 24 And those under them fliall alfo be called Lord Archbilhops,
-Bz.
-￼J4 HIiTORV Of
-ArclibiliOfif I^rds Spiritual, Right Reverend Fathers In God, Metro, poll tans, lectors, Reverend Clergy, l&rfuns, Curates, Archdeacons, Dotlors of Divinity, frofeflbrs of Divinity, and many other names equally honorable.
-25 Now when Aiiti-Chrli had told them this, he said unto them, this plan mutt be put in execution by little and little.
-36 And when Anti-Christ had left nflf speaking, there was a gen* cral fliout of joy, which filled all the houfe where they were fitting.
-27 For many of them said, it is thevoiceof aGodf andnotofa man 1 now we arc fure thai our
-federal mt0 will proffer* CMAPTMM If,
-i( Kowitcametopafiafterthefc things, that Anti-Christ removed his leal of government to the city
-of Rome*
-1
-￼ANTI-CHRIbTt 35*
-2 And when tills was donaf he lent out Into all the regions round about Rome, and said unto the fetple, and the difctples of Chrill, l a m the unwer&I' BHhop, and Christ's vicegerent.
-3 Then rofe up the Biiiop of Cnnftantinople, and said unto Anti- Cliriftj thou art not Clirift's vice-
-gerent, neither art thorn the uni- verfal Bifhop,
-4 ^ Now it came to pass that when Antl-Clirlfi heard this, lie engaged in a war with Ms oppofers, and
-sent tu the King of France, to help him against his enemies.
-5 And the battle was tore, yet Ami-Christ overcame Ms foes, and became the fole poflcflbr of Rome,
-ami the country round about,
-, 6^ Now it came to paft that after
-AntUChrist kid obtained the name of King and univerfal Biflmp, by the help of the king of France, tkr: he said unto him,
-￼j6 KWT#Ef m
-f As a peculiar token of my fa- vor and love, thorn and thy fiicceflf* ors (as lopg is they are faithful to
-me)lhaU ever beetled the eidefl fin tfiAedmnk
-8 ^ Now It came to pass that after Anti-Gbriii had obtained the pow- er which he had ever been fcckini; after, and had declared himfcif Chriil's vicegerent on earth,
-g That many of CJirift*s friends were filled with joy, becaufc Anti- Ckrift had (as ihcy thought) be-
-come ih-ir friend, and appeared to favor the doctrine of Christ.
-IP (Now the reaion of this w % they were Ignorant of the FeJeml pLm which Anti-Christ and his company had adopteds which was
-Uifm mc tbmg and da mmihnj
-11 Now It tame to pais that af- ter many years, Anti-Clirift begun I to excrcifc his authority over the difcipta of Christ,fi>that many of
-t limit doubted whether he \vjp Ghri-ft's friend or i;ou
-i
-￼Utl*J-CHftIo« . 3f
-ij ilunranfwcrcdoneofdrift's iMendit and said unto Anti-Clirittp thou art not a friend to Christ, but thou art till like thy name,.-against hiip*
-i j Now when he had said this» many believed on him, and rebell- ed against Anti-Christ, who was endeavoring to overthrow Christ9s kingdom, under the pretence of
-being hh friend*
-14 And when Ami-Christ faw
-that they rebelled, he sent forch men to reelaiiii them from their errors, and to threaten them with dcatht if they did not fubmit to the laws of Anli-€hrift.
-15 And they said we will not ? obey Anti-Christ* for he claims that power which belong? only to Clirift.
-16 Now when this was done Anti-Cbrtft was filled with rage, and said unto the Fakmi company let us adopt part of flie laws of Mofcs, by which wc may put to death thojfe who tranlgrefs our lawst
-￼0 HISTORY-dF
-i ? And AntUChrist acid Ms company agreed on many tilings mentioned In the law of Molta* by
-which they might kill their c n o nita, and yet be juliiied la It from the fcripturcsfc
-iS Now these arefome of the things which they agreed to—
-19' Firftto ereft plaai of public worfhip, and call them the foujls &fGoti9 and ImfanHmrks,
-20 AndAntl-Chrtflfatdtheicm* pie had an outer courts an inner courtf
-the bofy flace and the iMh\Ji ofa/L 21 In our templed the outer court fhali be called gplkrhs% the
-inner court we will call pt*x% the holy place ihall be called the Amm's imt, and the holidt of all Ihall be
-called thefacrcJ tkfl
-2t And as no own was allowed
-to enter into the htkftofaliy&^ eepiing the %/* /Hr/if, ib it ihall be a law that no prieil ihall enter into the fmmi tlcji9 tmhh he is
-authorized by me, who am GW
-**pm mnk
-￼ANTl-CHRI&T. 3 9
-23 And as the high prkjl wore a breaft-platc on his breaft, and an
-ij>fmk fo alfo those who enter the jhmd dejk, (ball were a brcaft-plate
-(or BAUD,) and an cphod (or aim*
-PLICE.)
-24 Moreover as the law obliged the people to attend at the temple at Hated times, fo our law fliall
-oblige them to attend public wor- ihip in our temples or be punifhed. 25 Aiiti-Chnft said unto them, let us alfo introduce children into our communion, and tell the peo-
-ple that by baptizing them they will be faved*
-2G And that those who die with- out receiving the kefy waters* will be damned,
+22 Now when Anti-Christ heard this, he was filled with astonishment, and said unto them that stood by him,
+
+23 The doctrine of Christ has spread much faster since we begun to oppose it, than it did when we killed his followers.
+
+24 Let us therefore inform the king concerning this matter, and make him believe that if he does not kill these men, in short time his kingdom will be overthrown. 
+
+25 And Anti-Christ wrote unto the king, certifying that there were certain people in his realm, that were hurtful to kings;
+
+26 And that if he let them alone, they would neither pay toll, tribute nor custom.
+
+27 Now when this came to the ears of the king, he commanded them all to be slain.
+
+28 Then said Anti-Christ, our cause now "begins to look up," and they all rejoiced with exceeding great joy.
+
+29 But so it was, that notwithstanding they put so many to death, yet they increased the more, which caused all the joy of Anti-Christ to be turned into mourning.
+
+30 And Anti-Christ called all his old federal friends together, with all the new members of their company and said unto them,
+
+31 I have one plan more to propose to you as a federal body, which I think will serve to accomplish my wishes.
+
+32 And when they all kept silence, he said unto them I shall mention this plan to you when we meet again.
+
+33 And when he had thus spoken, he dismissed the assembly.
+
+History of Anti-Christ
+
+BOOK II.
+
+CHAPTER I.
+
+1 NOW it came to pass when Anti-Christ was about three hundred and thirty-four years old,
+
+2 That he sent forth into all the country round about, and called together the whole federal band, and said unto them,
+
+3 Ye see that I have spent more than three hundred years in endeavoring to overthrow the doctrine and disciples of Christ, and yet I have prevailed nothing:
+
+4 Now therefore hearken unto me, and I will make known unto you the plan which I mentioned when we assembled last.
+
+5 And when they kept silence, he said unto them,
+
+6 The federal plan which I have is this--to endeavor to be as much like Christ and his ministers as we possibly can, and appear to be his friends.
+
+7 Let us first make Rome the seat of our government, as the Emperor has removed his seat of government to Constantinople, and given us an opportunity of establishing ourselves there.
+
+8 Now that this may be done, I must assume the same names which Christ bears, and some of you must be officers under me, as Christ's disciples were under him.
+
+a And he said unto them, Christ is said to be the Image of God, to be a King, a Priest, and a Prophet.
+
+10 He is also called a Bishop of Souls, and head of the Church, and Father of his children, and the Infallible Judge.
+
+11 Moreover he pardons sins, promises a heaven to those who obey him, and a hell for those who will not submit to his government.
+
+12 Anti-Christ said also unto them, if we only take the name which his disciples bear, our federal cause must prosper, for ye know that the foundation of our federalism is to say one thing and do another.
+
+13 Now that we may not fail in our plan, I must be called God upon earth, and a King of kings.
+
+14 I must also have two governments, one temporal and the other spiritual, and I must be king and priest on the throne.
+
+15 I must also be called the universal bishop, and the head of the church, and the father of all who submit to me.
+
+16 And I must also promise heaven to those who are faithful in our cause, and especially those who give money to our church.
+
+17 It will be necessary to mention a hell, and threaten all with eternal damnation that do not obey us; it will be wise in us also to have a place of purgation for departed souls;
+
+18 That those who died in unbelief may be delivered from misery by their rich friends, who may purchase their deliverance.
+
+19 As Christ appointed twelve Apostles, I shall appoint twelve men, to be called their successors.
+
+20 Moreover as Christ appointed other officers, I shall also appoint officers as their successors, and shall call them the Clergy.
+
+21 I shall also conver a number of honorable titles on those who are worthy of them, by being faithful to this federal plan.
+
+22 Now for your encouragement, I will mention some of the titles which you shall wear.
+
+23 Those who are next to me in power shall be called Cardinals, and shall be distinguished by wearing scarlet coloured clothes, & red caps.
+
+24 And those under them shall also be called Lord Archbishops, Archbishops, Lords Spiritual, Right Reverend Fathers in God, Metropolitans, Rectors, Reverend Clergy, Parsons, Curates, Archdeacons, Doctors of Divinity, Professors of Divinity, and many other names equally honorable.
+
+25 Now when Anti-Christ had told them this, he said unto them, this plan mutt be put in execution by little and little.
+
+26 And when Anti-Christ had left off speaking, there was a general shout of joy, which filled all the house where they were sitting.
+
+27 For many of them said, it is the voice of a God, and not of a man; now we are sure that our federal cause will prosper.
+
+CHAPTER II.
+
+1 Now it came to pass after these things, that Anti-Christ removed his seat of government to the city of Rome.
+
+2 And when this was done, he sent out into all the regions round about Rome, and said unto the People, and the disciples of Christ, I am the universal Bishop, and Christ's vicegerent.
+
+3 Then rose up the Bishop of Constantinople, and said unto Anti-Christ, thou art not Christ's vicegerent, neither art thou the universal Bishop.
+
+4 Now it came to pass that when Anti-Christ heard this, he engaged in a war with his opposers, and sent to the King of France, to help him against his enemies.
+
+5 And the battle was sore, yet Anti-Christ overcame his foes, and became the sole possessor of Rome, and the country round about.
+
+6 Now it came to pass that after Anti-Christ had obtained the name of King and universal Bishop, by the help of the king of France, that he said unto him,
+
+7 As a peculiar token of my favor and love, thou and thy successors (as long as they are faithful to me) shall ever be called the eldest son of the church.
+
+8 Now It came to pass that after Anti-Christ had obtained the power which he had ever been seeking after, and had declared himself Christ's vicegerent on earth,
+
+9 That many of Christ's friends were filled with joy, because Anti-Christ had (as they thought) become their friend, and appeared to favor the doctrine of Christ.
+
+10 (Now the reason of this was, they were ignorant of the Federal plan which Anti-Christ and his company had adopted, which was to say one thing and do another.)
+
+11 Now it came to pass that after many years, Anti-Christ begun to exercise his authority over the disciples of Christ, so that many of them doubted whether he was Christ's friend or not.
+
+12 Then answered one of Christ's friends, and said unto Anti-Christ, thou art not a friend to Christ, but thou art still like thy name, against him.
+
+13 Now when he had said this, many believed on him, and rebelled against Anti-Christ, who was endeavoring to overthrow Christ's kingdom, under the pretence of being his friend.
+
+14 And when Anti-Christ saw that they rebelled, he sent forth men to reclaim them from their errors, and to threaten them with death if they did not submit to the laws of Anti-Christ.
+
+15 And they said we will not obey Anti-Christ, for he claims that power which belongs only to Christ.
+
+16 Now when this was done Anti-Christ was filled with rage, and said unto the Federal company let us adopt part of the laws of Moses, by which we may put to death those who transgress our laws.
+
+17 And Anti-Christ and his company agreed on many things mentioned in the law of Moses by which they might kill their enemies, and yet he justified in it from the scriptures.
+
+18 Now these are some of the things which they agreed to--
+
+19 First to erect places of public worship, and call them the houses of God, and his sanctuaries.
+
+20 And Anti-Christ said the temple had an outer court, an inner court, the holy place and the holiest of all.
+
+21 In our temples the outer court shall be called galleries, the inner court we will call pews, the holy place shall be called the deacon's seat, and the holiest of all shall be called the sacred desk.
+
+22 And as no man was allowed to enter into the holiest of all, excepting the high priest, so it shall be a law that no priest shall enter into the sacred desk, unless he is authorized by me, who am God upon earth.
+
+23 And as the high priest wore a breast-plate on his breast, and an ephod, so also those who enter the sacred desk, shall were a breast-plate (or BAND,) and an ephod (or SURPLICE.)
+
+24 Moreover as the law obliged the people to attend at the temple at stated times, so our law shall oblige them to attend public worship in our temples or be punished. 
+
+25 Anti-Christ said unto them, let us also introduce children into our communion, and tell the people that by baptizing them they will be saved.
+
+26 And that those who die without receiving the holy waters will be damned.
+
 27 Now when these laws are in force, those who rebel against us can be put to death, according to
-the law, as heretics, who ought to' die.
-￼4 " H I S T O R Y OJ! mdmMM JM
-i Now it came to piifi after tliefe thingsftlst Anti-Chrtft began
-to excrcifc his authority over the difciples of Christ, by caning the: j to be put to death*
-% And when this was done, great multitudes rofc up agaloft hiin and^ faldf we will not have Anti-Christ to reign over us.
+the law, as heretics, who ought to die.
+
+CHAPTER III.
+
+1 Now it came to apss after these things, that Anti-Christ began to exercise his authority over the disciples of Christ, by causing them to be put to death.
+
+2 And when this was done, great multitudes rofc up agaloft hiin and^ faldf we will not have Anti-Christ to reign over us.
 3 Then rofe up Dominic, and said unto Anti-Chrtft, let us eftab- lifli an anti-chriiiae court, and call it the court of Inqui-fition.
 4 And 1ft those who are heretics, and all who are fufpefted of herefy, be brought before the court to be examined, by torturing them, 'till they confefi their errors*
 j Now it came to pass, that when this court was cftabliflted, all who were enemies to AntidChrist, were brought before I lie court to be punlfhedf (now this wm like the modern gag law, which was to
@@ -443,7 +464,7 @@ for your faithfulnefs, 1 confer on you the titles which 1 promifei many years ag
 cmfk% and to oppofe aS who rofe up aplnft theni.
 ^ 15 And it came to prig in the time of the profperous reign of Anti-Christ, that many new things were cftablifiied which had not taken phec fince the world began.
 i6 Norn* theseare feme of them —Antl-Chrilt founded a federal
-company, oiled monks* who lived in caves § andalfo a female companys called nuns* who were fecludcd in
+company, oiled monks* who lived in caves § andalso a female companys called nuns* who were fecludcd in
 a cloicfter from the world, but not from the federal company*
 17 Anti-Chrii had alia a place called purgatoryf where all (except the federal company) were taught that their friends were fufferlng for theirfin*>,who died without a pardon from Anti-Christ; and that if their friend* gave large funis o£ money 19 any of this company.
 ￼#4
@@ -555,7 +576,7 @@ ti-Christ did, that there were nona
 ￼.INll-CllftllT. J!
 who could judge him, but that lie is the judge of all men, and that he giveth all laws theirforce,and yet Is not bound to be fitlgeft to
 them*
-a 4 Martin alfo proved, that An-
+a 4 Martin also proved, that An-
 ti-Cliiift (aid he had all power to make laws and ordinances for ChrUfo churchy and that Christ had given him power o¥er the heavenly and earthly kingdoms.
 ;tj Anti-Christ alio Hid that hit * lawi were of equal force with the laws of Christ.
 26 Martin fald likcwife that Anti-( hrift declared that he only had power to explain the fcrip- lures of truth, and that it was fin- ful for any man to explain them contrary from what Anti-Christ laid was right.
@@ -577,7 +598,7 @@ r !
 ￼ANTI-CHRIST, j y
 i The whole federal corapny came together and Anti-Chril fiud unto them, let us continue our kingdom in- England In dif giilfc I
 7 For feeing the people refrfe to own our power at .Rome, let us form another kingdom upon our plan, and this will Ifcrvc to ex- tend our dominion.
-8 He did alfo unto them, the leaim why they have revolted, is licit becaule they hate our govern- ment but because they wifli to have the feme power which we claim.
+8 He did also unto them, the leaim why they have revolted, is licit becaule they hate our govern- ment but because they wifli to have the feme power which we claim.
 9 For if they can obtain the' feme power which we poflefi, they will pcrfecutc the difciplcs of Christ in the lame manner we do.
 IO Let us therefore advife the clergy in England io build their church upon our federal plan, and
 let the King be head of their church, as the Fope^ ii the head of outi.
@@ -588,7 +609,7 @@ to place their BiliopincEt to tlie King In powfrf: as the CSatdinab are next In 
 i2 Andiiour.Bifhop(m head) is elc£ted by the Cardinals, fo let the Bliiops be empowered to crown the King—and that the *to& in England may not be fyf.
 pitted as our friends, let us advife -theiri (inllcad of wearing fcarlct
 clothe and a red rapJ to drefs in MIsME UNIFORM* md to wear TWMEECOMMEMEB EMS.
-13 Let us alfo advife them to have their parliament coinpofcd of
+13 Let us also advife them to have their parliament coinpofcd of
 Lord's Spiritual and Lord's Tem* pond, that the government may be in the hands of the ArchbHhops and Lord Archbiffuips.
 14 Nowjwhcn Anti-Christ had made mention of these things, the fideml emfany with great rclufiw atice contented that it flicuhl be m
 lie had (aid.
@@ -615,7 +636,7 @@ cradle; and the chief ruler under the June, was the fat nurfejumtr, under the Ki
 monfter, Anti-Christ.
 22 Forcxpcrier.ee taught them that the King of England, tire Archbiflrop, and ckrj>y of the king.
 dom, ltad only deprived the Pope of his power over the people, to poflefs it tJjcmfelves.
-23 And they alfo found, that if they ventured to differ in thought word or deed, from the King and rtcrgy, they were expofed to DUO- iflimcnt at heretics. •«
+23 And they also found, that if they ventured to differ in thought word or deed, from the King and rtcrgy, they were expofed to DUO- iflimcnt at heretics. •«
 §4 Now it came to pafi, that
 4
 I
@@ -634,7 +655,7 @@ Cbrift? becwfe they refufed to cm* form to the laws of An&Christ, which were puM
 and cl&gy*
 % And. the clergy laid unto them,
 we are Protectants, for we protcft again! the power of the Bifhop of Romc^and wc are friends of Christ, and arc bound to punilh heretics wiih deaili, according to the law of Mofei.
-3 Then laid the difdples of Christ, though yon protcft against the Bifhnp of Rome, yet you pot fds the fame fpirtt he docs, and ye arc friends of AntiU, lirift, even m they alfo are.
+3 Then laid the difdples of Christ, though yon protcft against the Bifhnp of Rome, yet you pot fds the fame fpirtt he docs, and ye arc friends of AntiU, lirift, even m they also are.
 4 Now it came to pass that when they had heard this, they hepan to call them by odious names,fiichas anabaptifts, fchilmmlics and here- tics, who corrupted the holy Cath* olic church*
 4 Now when this came to the ears of Aoti-Christ, he sent to the J
 •Mng and ckrgy in England, to ap.
@@ -897,7 +918,7 @@ about eighty tlioulimd, which Is nearly eleven times'feventhoufand, twenty-four 
 out of his great chair.
 14 Moii^/* ur this Earthquake
 lliook his money out of his cotters into the hands of the French Gen- eral ; and it even lliook the Pope out of his dominion, and caused him to tremble away to Malta,
-15 This great Earthquake alfo fliook off the head of the King and Queen ; it alfo fliook many of the Bittiop's heads off, and others it ihook out of the government.
+15 This great Earthquake also fliook off the head of the King and Queen ; it also fliook many of the Bittiop's heads off, and others it ihook out of the government.
 116 Moreover it fliook down the Baftile, the Nu&ncries, the Altars, the Imaged, the wax Candles, the
 «»•*
 i
@@ -926,7 +947,7 @@ Christ, that lofi of children and friends fliali come-on Mm in on.© day.*
 3 Moreover one of Antt-ChrtA"^ fervantt fhall endeavor to make the people believe tiut Jefus Christ is his maftcrf and that lie requires parents m fprinkle their children, and at tlte-Itine time lie Oiatl own that Christ has not exprefsly com- mafidcd it.
 4 (And far fear that he fhall be confidcrcd Anti-ChrMt'a firrvant, he will leave out the tides Ami- Christ gave him; which is Rev. and A* M. thin he will do to con- ceal himself, that he may fcrve AntUChrist in difguife.)
 5 And many lltall follow his pctnicious ways, by rcalbn of whom the way of truth fliall be evil fpokeii of, and throughfiigncd wnrdsfliallhe make merchandize of them.
-6 He fliall alfo endeavor *• to pervert the right way of the Lord,*1 and by u fpcaking lies in bypocrt-
+6 He fliall also endeavor *• to pervert the right way of the Lord,*1 and by u fpcaking lies in bypocrt-
 fy," hefliallrry to turn many away
 « from the Mth9B of Christ. I
 ￼ANTZ»cfmz*ri 5 j
@@ -942,14 +963,14 @@ S He iialt tlfo puMlfli hli bomiuution*," winch Hull be re* mmi by the ignorant 
 fion G£t§mm0iimMWi0jm*m Honey
 ground hemmsfmi m WhirMmb,"
 M
-12 He will endeavor alfo to make the people believe that fotnc of the clifciplcs of Christ arc chain.
+12 He will endeavor also to make the people believe that fotnc of the clifciplcs of Christ arc chain.
 Skins of1 " reviling, railing and underf' and at the Ikme time be will tell them, that If tbey at- rack him, he will own liimfelf over- come, and that they fliall be inaf*
 tcrs of the field*
 cartluiuakoi/' and. many iuch like things as these fliall he do,
 13 And after he has acknowl- edged that there la no mention of infant baptifm, (that main pillar of Aiui-Chrifc's kingdom) in the fcripturar* he will undertake !$ prove it by " prcluuiplbui/'
 14 Moreover lie will endeavor to prove it from covenants, iradi* turns, wjkmry wrtitrs-9 men of er*0 roneou* iwiuimcnts, and from wri- h
 ters who have not mentioned it in their books*
-1$ He will alfo endeavor to
+1$ He will also endeavor to
 !
 ￼AKTI-CII&I&T. | ^
 priive tint believers* with ill their hearts, arc not the ciily fubjects of baptilm j this he will do from the conduct of two liars by the rsim* of Ammias and Snfbira% and from one wizard by the name of 5/JWJ} the forccrer.
@@ -961,7 +982,7 @@ priive tint believers* with ill their hearts, arc not the ciily fubjects of bapt
 ￼J>8 HISTORY OP
 iAjeaionsagilni^itI.ClirIits Uajj* fUSo—which arc these s
 m Hrif there is no firipture for it I fecoiidty, that they are not capable of believing; and thirdly, that it can do them no goad ; and after all this, lie will be prdtimp- tuous to that degree, that he will declare it to be according to the mind of Christ.
-21 He will alfo declare that Christ has cxpreffed his mind in fuch an indclinite manner, that
+21 He will also declare that Christ has cxpreffed his mind in fuch an indclinite manner, that
 we cannot determine what he meant we fhould dos or how we
 fliould keep his commands.
 22 ciw to prove that fie is
