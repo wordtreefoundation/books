@@ -568,87 +568,77 @@ CHAPTER V.
 
 21 Now these are some of the reasons which Martin brought to prove the wickedness of Anti-Christ, and all the federal band.
 
-22 Martin teftified that Antt* Christ and the federal company,
-called the Clergy, declared that they were not bound to keep the commandments of God. [Now the clerjpr were confidcred as Anti-
-Christ's ftanding army.]
-. 23 He proved likewlfc that An-
-ti-Christ did, that there were nona
-￼.INll-CllftllT. J!
-who could judge him, but that lie is the judge of all men, and that he giveth all laws theirforce,and yet Is not bound to be fitlgeft to
-them*
-a 4 Martin also proved, that An-
-ti-Cliiift (aid he had all power to make laws and ordinances for ChrUfo churchy and that Christ had given him power o¥er the heavenly and earthly kingdoms.
-;tj Anti-Christ alio Hid that hit * lawi were of equal force with the laws of Christ.
-26 Martin fald likcwife that Anti-( hrift declared that he only had power to explain the fcrip- lures of truth, and that it was fin- ful for any man to explain them contrary from what Anti-Christ laid was right.
-27 Now when this was ptiblifh* ed abroad, Anti-Christ and hip Handing army (the clergy) were filled with rage, bccaule Martin had revealed their federal plan.
-￼|S* -HISTORY Hi.
-and they flight how they night
-detlroy liinlii wholeftirnaiiiewas •*niii%r#
-i A:.dItcametopassafterthofc things, that Chrlft raiid up other
-adv^riarlci against Ami-Cb'Hfi,
-2 Who mightily convinced the pcojile of the wlckcdiiefs of Ami. Chrlft and the clergy, and great
-multitudesbelieved tiidr doctrine. 3 Norf it came to pass that tie
-people in England began to be weary of the yoke which Ami- Christ had laid on tlicin, and they rebelled.
-4 And when this was i!fmef there was immediately heard ihc confufed noife of ihc warriorf and
-garments rolled in blood.
-5 And after the people had re*
-fufeJ to fubmit to the chief ruler in Ami-Christ'si kingdom, whore-
-k->J at RoniCf
-r !
-￼ANTI-CHRIST, j y
-i The whole federal corapny came together and Anti-Chril fiud unto them, let us continue our kingdom in- England In dif giilfc I
-7 For feeing the people refrfe to own our power at .Rome, let us form another kingdom upon our plan, and this will Ifcrvc to ex- tend our dominion.
-8 He did also unto them, the leaim why they have revolted, is licit becaule they hate our govern- ment but because they wifli to have the feme power which we claim.
-9 For if they can obtain the' feme power which we poflefi, they will pcrfecutc the difciplcs of Christ in the lame manner we do.
-IO Let us therefore advife the clergy in England io build their church upon our federal plan, and
-let the King be head of their church, as the Fope^ ii the head of outi.
-' Cs
-￼f ! HISTORY Of
-11 Moreover, let us advife them
-to place their BiliopincEt to tlie King In powfrf: as the CSatdinab are next In power to the Hope,
-i2 Andiiour.Bifhop(m head) is elc£ted by the Cardinals, fo let the Bliiops be empowered to crown the King—and that the *to& in England may not be fyf.
-pitted as our friends, let us advife -theiri (inllcad of wearing fcarlct
-clothe and a red rapJ to drefs in MIsME UNIFORM* md to wear TWMEECOMMEMEB EMS.
-13 Let us also advife them to have their parliament coinpofcd of
-Lord's Spiritual and Lord's Tem* pond, that the government may be in the hands of the ArchbHhops and Lord Archbiffuips.
-14 Nowjwhcn Anti-Christ had made mention of these things, the fideml emfany with great rclufiw atice contented that it flicuhl be m
-lie had (aid.
-$5 And after this, Anti-Christ ,
-￼AUTl-eKRIBV, i f
-laid *hc plan before the King and ikrg}. «f England, wit© readily adopted itf and formed ihcir gov-
-ernment accordingly.
-16 For the King was declared
-the head of the church,which made the difference between the church cif Rome and England to be tfiist
-the Pope was the head of one, and the King the head of the other.
-17 Now it came to;pit that when this was donef the people were filled with great joy through- out all the ifland of Great-Britain*
-18 For the peoplef and particu- larly the difdplesof Christ, thought they were delivered from the pow*
-er of Anti-Christ and Ids wicked
-clergy®
-19 'Moreover, many of them be- lieved the time had come which was
-mentioned in the prophetsf when .Kings fiiould be iiurhng fathers* and Queens nurfing mothers.
-so (Now this is the way they •surfed the difdplci of Christ,.thc
-￼6o
-HISTORY QC>
-court of mquifition was the nw/e. rj; the torturing cords %vere the fwadlmg bands ; the hot lead, which
-they poured down their throats, was the pap ; the grid-iron was the
-cradle; and the chief ruler under the June, was the fat nurfejumtr, under the Kings and Queens.)
-21 But it was not Jong before they found that though they were delivered from the power of the Bilhop of Rome, yet they were Jtill under the reign of that cruel
-monfter, Anti-Christ.
-22 Forcxpcrier.ee taught them that the King of England, tire Archbiflrop, and ckrj>y of the king.
-dom, ltad only deprived the Pope of his power over the people, to poflefs it tJjcmfelves.
-23 And they also found, that if they ventured to differ in thought word or deed, from the King and rtcrgy, they were expofed to DUO- iflimcnt at heretics. •«
-§4 Now it came to pafi, that
-4
-I
-￼AMN-C!IltMl%
-when the dlMpks of Ghrlft found that the change of power hid. not weakened the power of Anti^hrift, they werefilledwithforrow :
-25 And they fald one to another, we are brought into great ftraits, for the people think they are Prot- eftant5sand that the King and ckrm arc friends to Christ, and enemies
-to Anti-Christ.
-26 Andnowifweoppofethemft we (hall be conlidered enemies to Christ, because the people believe
-that the King and clergy are enemies to Anti-Christ. •
-27 And they said one to anoth* er, let us take the laws of tlirift fur o p rule, and put our whole truft in him for fupport, and ven-
-ture our live:* in his cause.
-ClIdPTM riL
+22 Martin testified that Anti-Christ and the federal company, called the Clergy, declared that they were not bound to keep the commandments of God. [Now the clergy were considered as Anti-Christ's standing army.]
+
+23 He proved likewise that Anti-Christ said, that there were none who could judge him, but that he is the judge of all men, and that he giveth all laws their force, and yet is not bound to be subject to them.
+
+24 Martin also proved, that Anti-Christ said he had all power to make laws and ordinances for Christ's church, and that Christ had given him power over the heavenly and earthly kingdoms.
+
+25 Anti-Christ also said that his laws were of equal force with the laws of Christ.
+
+26 Martin said likewise that Anti-Christ declared that he only had power to explain the scriptures of truth, and that it was sinful for any man to explain them contrary from what Anti-Christ said was right.
+
+27 Now when this was published abroad, Anti-Christ and his standing army (the clergy) were filled with rage, because Martin had revealed their federal plan, and they sought how they might destroy Martin whose surname was Luther.
+
+CHAPTER VI.
+
+1 And it came to pass after those things, that Christ raised up other adversaries against Anti-Christ,
+
+2 Who mightily convinced the people of the wickedness of Anti-Christ and the clergy, and great multitudes believed their doctrine.
+
+3 Now it came to pass that the people in England began to be weary of the yoke which Anti-Christ had laid on them, and they rebelled.
+
+4 And when this was done, there was immediately heard the confused noise of the warrior, and garments rolled in blood.
+
+5 And after the people had refused to submit to the chief ruler in ANti-Christ's kingdom, who resided at Rome,
+
+6 The whole federal company came together, and Anti-Christ said unto them, let us continue our kingdom in England in disguise;
+
+7 For feeing the people refuse to own our power at Rome, let us form another kingdom upon our plan, and this will serve to extend our dominion.
+
+8 He did also unto them, the reason why they have revolted, is not because they hate our government, but because they wish to have the same power which we claim.
+
+9 For if they can obtain the same power which we possess, they will persecute the disciples of Christ in the same manner we do.
+
+10 Let us therefore advise the clergy in England to build their church upon our federal plan, and let the King be head of their church, as the Pope is the head of ours.
+
+11 Moreover, let us advise them to place their Bishops next to the King in power, as the Cardinals are next in power to the Pope.
+
+12 And as our Bishop (or head) is elected by the Cardinals, so let the Bishops be empowered to crown the King--and that the clergy in England may not be suspected as our friends, let us advise them (instead of wearing scarlet clothes and a red cap) to dress in BLACK UNIFORM, and to wear THREE CORNERED HATS.
+
+13 Let us also advise them to have their parliament composed of Lord's Spiritual and Lord's Temporal, that the government may be in the hands of the Archbishops and Lord Archbishops.
+
+14 Now when Anti-Christ had made mention of these things, the federal company with great reluctance consented that it should be as he said.
+
+15 And after this, Anti-Christ laid the plan before the King and clergy of England, who readily adopted it, and formed their government accordingly.
+
+16 For the King was declared the head of the church, which made the difference between the church of Rome and England to be this, the Pope was the head of one, and the King the head of the other.
+
+17 Now it came to pass that when this was done, the people were filled with great joy throughout all the island of Great-Britain.
+
+18 For the people, and particularly the disciples of Christ, thought they were delivered from the power of Anti-Christ and his wicked clergy.
+
+19 Moreover, many of them believed the time had come which was mentioned in the prophets, when Kigs should be nursing fathers, and Queens nursing mothers.
+
+20 (Now this is the way they nursed the disciples of Christ, the court of inquisition was the nursery; the torturing cords were the swadling bands; the hot lead, which they poured down their throats, was the pap; the grid-iren was the cradle; and the chief ruler under the king, was the hot nurse junior, under the Kings and Queens.)
+
+21 But it was not long before they found that though they were delivered from the power of the Bishop of Rome, yet they were still under the reign of that cruel
+monster, Anti-Christ.
+
+22 For experience taught them that the King of England, the Archbishops and clergy of the kingdom, had only deprived the Pope of his power over the people, to possess it themselves.
+
+23 And they also found, that if they ventured to differ in thought word or deed, from the King and clergy, they were exposed to punishment as heretics.
+
+24 Now it came to pass, that when the disciples of Christ found that the change of power had not weakened the power of Anti-Christ, they were filled with sorrow:
+
+25 And they said one to another, we are brought into great straits, for the people think they are Protestants, and that the King and clergy are friends to Christ, and enemies to Anti-Christ.
+
+26 And now if we oppose them, we shall be considered enemies to Christ, because the people believe that the King and clergy are enemies to Anti-Christ.
+
+27 And they said one to another, let us take the laws of Christ for our rule, and put our whole trust in him for support, and venture our lives in his cause.
+
+CHAPTER VII.
+
 1 Anrl it came to paft in those day* iffit \\vtt* arnfc' a great per* feeudoa .i^iiuit the difcipla of
 ￼it HISTORY m
 Cbrift? becwfe they refufed to cm* form to the laws of An&Christ, which were puMilhcd by the Mug
