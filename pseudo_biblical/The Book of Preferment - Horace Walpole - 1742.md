@@ -3,8 +3,8 @@ id: pseudobib1742bookpreferment
 short_title: The Book of Preferment
 author: Horace Walpole
 year: 1742
-place: 
-source: 
+place:
+source:
 status: IMAGE ONLY
 note: Letter from Horace Walpole to Horace Mann, July 14, 1742
 ---
@@ -124,3 +124,45 @@ XIV.
 John, the Arg-lite, will suddenly come before the King, to propose somewhat called a Broad-Bottom, which is to extend to the East, to the West, to the North, and to the South. Now on this strong Foundation are the Enemies of the King to build their Hopes: For on this the Sons of Belial, the Jacobites, are to come into my Lord's Favour, and have great Power. Wherefore I beseech thee not to hearken to the Voice of John the Arg-lite. Trust not, O king, the Jacobites, lest peradventure Evil come upon thee in thy latter Days. And he bowed his Head, and spake no more.
 
 XV.
+
+At the Name of Jacobites the ---, as if he were bewitched by the Spell of a Wizzard, fell into great Wrath, and rent his Hat from his Head, and smote it, and sprun'd it with his Feet in furious-wise; ans swore none of that Tribe should have Power under him, to the End that they might not have Power over him.
+
+XVI.
+
+And Robert laughed in his Sleeve, --- as much as to say, Tush, go to: I care not for what man can do unto me. And his Heart was puffed up exceedingly; and he departed from the Palace with great Glee.
+
+XVII.
+
+Now it came to pass, in a few Days after John the Arg-lite had been apointed Captain over ten thousands, and twenty thousands, and forty thousands, he went to the Palace of the King, and they communed together, and the Broad-bottom was mentioned.
+
+XVIII.
+
+And as soon as the Words were uttered, the --- fell into a great Rage, and cried aloud, Jacobites! Jacobites! Traytors! Traytors! Then he was deaf to all the Captan of War could say; and he turned his A- on the Captain of his Armies, and the Captain of his Armies turned his A- on him, and said, he would be no more the Captain of his Armies; And so they departed in gread Dudgeon.
+
+XIX.
+
+During these Things there was a Report among the People, that there was a League and a Covenant between some of the Chiefs of the Tribes of the Court, and some of the Chiefs of the Tribes of the Country; and that in defence of Robert, a mighty SCREEN should be made near the Throne of the ---; and that he should retire behind that SCREEN, as to a Sanctuary, and be as safe there, even as if he touched the Horns of the Altar.
+
+XX.
+
+There was indeed Communion among the Chiefs, and it was agreed, that from that Day for ever, the W-lp-lites, should be no longer called W-lp-lites, but Orf-dites; and that the Pul-ites should be no longer called Pul-ites, but B-thites: And they are so called unto this day.
+
+XXI.
+
+Moreover, that this should be as a Peace-Offering; and, for Time to come, the O-f-d-ites, the B-thites, the C-rt-r-tites, the P-lh-mites, the B-th-stites, the W-lm-ngtonites, the G-r-ites, the Pit-ites, the H-rr-ngtonites, and all the Tribes of ites, should be as one Tribe, save only the Arg-lites, and those People called by Robert the Sons of Belial, the Jacobites.
+
+XXII.
+
+Accordingly all these Things came to pass: And Robert was made a Prince of the Land, and called O-f-d; and William was made a Prince of the Land, and called B-th. So also fared it with the other Chiefs, as had been agreed among them; and the Patriots became as Courtiers, and those in Disgrace were numbered among the Rulers of the People. And the Courtiers who went In had Compassion on their Brethren who went Out, and gave P-n-fi-ns to them, each Man according to his Family and Tribe.
+
+XXIII.
+
+Now these are the Acts of the Patriots. And the People murmured greatly, saying, "What have our Chiefs done? In vain have our Patriots raged, and the People have imagined a vain Thing."
+
+XXIV.
+
+And O-f-d the E-l laughed to Scorn the Murmurings of the People, saying, Mine Exaltation seemeth a Wonder in the Eyes of the People; but their Wonder will cease, as Wonders now do, on the Even of the ninth Day. This is a happy Day, and I will rejoice and be glad in it.
+
+XXV.
+
+Then his Coaches, and Chariots, and Horsemen, and Followers were got ready, and they went to Ch-ls-a to be merry; where he sung this Song in praise of the King, who had delivered him from his Enemies.
