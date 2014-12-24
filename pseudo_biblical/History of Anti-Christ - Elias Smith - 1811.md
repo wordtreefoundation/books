@@ -198,7 +198,7 @@ CHAPTER III.
 
 6 And as they began to speak to the people, there came such a visible power on them, that great multitudes believed that Christ was risen from the dead.
 
-7. Now it came to pass that Christ's ministers not only preached with power; but they wrought miracles that filled all the people with astonishment.
+7 Now it came to pass that Christ's ministers not only preached with power; but they wrought miracles that filled all the people with astonishment.
 
 8 (For a lame man was healed, and walked, and leaped, and praised God.)
 
@@ -639,614 +639,134 @@ monster, Anti-Christ.
 
 CHAPTER VII.
 
-1 Anrl it came to paft in those day* iffit \\vtt* arnfc' a great per* feeudoa .i^iiuit the difcipla of
-￼it HISTORY m
-Cbrift? becwfe they refufed to cm* form to the laws of An&Christ, which were puMilhcd by the Mug
-and cl&gy*
-% And. the clergy laid unto them,
-we are Protectants, for we protcft again! the power of the Bifhop of Romc^and wc are friends of Christ, and arc bound to punilh heretics wiih deaili, according to the law of Mofei.
-3 Then laid the difdples of Christ, though yon protcft against the Bifhnp of Rome, yet you pot fds the fame fpirtt he docs, and ye arc friends of AntiU, lirift, even m they also are.
-4 Now it came to pass that when they had heard this, they hepan to call them by odious names,fiichas anabaptifts, fchilmmlics and here- tics, who corrupted the holy Cath* olic church*
-4 Now when this came to the ears of Aoti-Christ, he sent to the J
-•Mng and ckrgy in England, to ap.
-￼AMTI-CHAiSTt § §
-frehead and punifli with burning all who would not abjure their errors.
-6 And that all the books mitten by the dlttplcs of Chrlftt Audi be burnt, aid particalarly thole which speak agataft the ikrg)% and the
-baptizing of infanta.
-7 Now when these orders came
-front Anti-Christ, the king and tkr- apprehended ihe difciples of Chrul, and ordered them to con* fefs that they were heretics, which
-funic did through fear.
-8 And when they had done this,
-they were ordered to wear a bunch of faggots tied to their backs when.
-they went to St. Paufs church, (now this was done to flicw they deferved death, though their lives were fparcd through the mercy of
-the ekr^.J
-9 But thofc who would not
-fiibmit to the laws of JtatKChrist, were publicly burnt at Smithtield,
-m heretics who ought to die*
-￼§4 HISTORY OV
-JQ And though fomc were burnt alive, and others baniflied, yet they increafcd the more, and their doct- rine prevailed In all the regions round about §
-11 So that the clergy feared left Anti-Christ would loofe his domin- ion in England, and they be depriv- ed of their places of honor, power and maintenance, which the)* had from the king's palace.
-m Warn tlefc are fomc of the herefies charged agalnft the difci- ples of Christ, which was the cause of their bdng burnt alive by order of the anii-cliriilufi ektgy*
-13 The difdplcs of (thrill taught that the baplifm of infants was* an invention of AntUChriit, and one of the main pillars in his kingdom, and that a hriefts' lprinkling water on them was blafplitniy.
-14 They alio maintained, that the king and clergy had no right to make laws concerning religion, and that they had a right to choofc and fupport their own miuiftcrs*
-￼15 And-that those whom Chrilt ioiiimiillotied to preach, might not in b* hindered by the king and
-#£rpf but that they have a right to go oyer parifli lines, and preach tlie gofpcl to every creature*
-16 They likewifc taught, that to impnfe cm people certam/irmi of p-aycr9 was contrary to the laws of Christ, and that the manner of worlhipping in the church of Eng- land was a proof of their fubjedion to Ami-Christ.
-17 Moreover they declared It blafphciny for any man to arrogate to hiiufelf the titles of Ekilw -of I)k*hiiiyf which is to be called Rab* &/, or mafter of other mcn\ faith.
-1S Now it came to pass when thc£rthings were noiled abroad, the Icing and chrgf (being ftirrcd t?p by Anti-ChriltO ordered the Jifclpks to be banifhed, whipped,
-mrurf iinprilnncd, and treated mth every kind ofc.rud.ty*
-f 9 And many of litem"led inl©
-￼66 HISTORY ©I
-Germany, and others for fame time conceded tliemMves, while isnany boldly propagated the do£t rine of Christ, notwithftanding all
-the cruelties of the wicked ckrgy^ who ttirred up the people against them.
-20 And It came to pass in the fixteen hundred and fourteenth year of Anti-Christ when James was king of England, that one cif the difciples of Christ was brought
-before the king and clergy^ for hcrcfy,
-21 And he was there convicted of three things which was termed herefy, for which he was condemn- ed to die, (now the man's name was William, whole furname wm
-Sawtre.)
-%i Now thefc are the hcrefics Jie held, ibai ike bafiiwig tfitifimu
-wasanabominablepra£licct that the Lord's Jupper and baptjfmf ought not to be adminlftcred as they arc
-in the church of England,
-￼I AVI i»iMiiif» 6|
-| f| Aid that the doctrine of I Christ is not preached in England
-Ibytheriirygy,as Christcommanded ' lis difciplcs to preach it.
-24 Fot theft things he was burnt dive, to thegreat joy of the atop, who were lejgucd together agalnft
-all who oppofed their wickedncfc 25 Now when this was donef the people in England laid one to
-anotherf if we are Proteftanti as we profefs to be, why proteft we agaiiift the church of Eomef and
-do the fame things which they do ? 26 And this caused fuch difcon* tent in the kingdom, that the king
-and r/r/g£ determined not to burn the heretics, but to fcize their fiates and confine them in filthy prifons, to die there; left they Ihould be confidcred perfecutors, who honor-
-ed the difcipics of Christ with inartyrdoni.
-￼HXSYORY 0 1
-SUAP7ER Fill
-IAidItcametopaif tlithf reatiii of t i e {grievous'' perlccui ion» which the dlfclplc^ of Cliriit rccciv.
-cJ from the r/e/gy, that many of tfctn left theip native country to find a peaceful retreat from the cruelty of their perJectttors,
-a And hearing of a new countrf called New-England, which was feparatcd from t h a n by a wide
-oceanscalled tlw Atlantic Ocewij they rcfolvcd to take up their j . Ijodc there, whzrc they might obey their king, JeftaCbnJt*undiflurbed.
-3 Now thofc who failed for tlits new ^ world were of different de. nominations, yet they were called by one common nanics wliieh was Puriiam.
-A Andfacingagreed, they filled from England In the fixtecn hun- dred and twentieth year of Anti- Cfcrift, in the eighth month, and the fittli day of the month.
-5 Norn* when this wis don?,
-￼AKTI-CMR1ST. i p
-Anti-Chrid ftirrei1 up the cfci$gt% to i prevent*their reiiibvingaerols the ocean* fearing1 that they might be-
-come a puffery for the enemies of Anti-ChHft and hii ikrgy,
-6 However by promifing faith- fillncfs to the kingf and that they would feck the interred of the got pel, part of them obtained liberty, mil part m*erc detained as fureties
-for the reft.
-7 AnJ after failing many days,
-they difcovered a place called Cape* l^wfcere they arrived in the dev- enth men ill of the fitmc year,
-which canted all their hearts to rejoice.
-#8 And It came to pa& after cer- tain clay*, they landed in a place which they oiled Plymouth,which
-lame it has retained to this day* 9 Mowwhentheyhadlandedat Plymouth, they did one to anoth- er, we arc now out of the king- dom of Afiti-Christ, for our per- secutors remain on the other tide
-of the flood. % .
-￼7© HISTORY om
-^10Litusnowadopt aplanof civil and religions government, by which we" may live without fttrfecution, and that the genera-
-tions to come may never be per* fecuted fo long as they maintain the form of government- which we have adopted.,
-i i And they agreed on th» plan, that no man' Ihould be a maglftratc unlds he was a mem- ber of the church }. because that no man was thought fit for a mag* iftrate or church member, uniefi' he was a good man*
-i s Now when this was donef many thought they fhonld be hap- py, and free^ from perfection, herefieSt and divifions.
-11 But feme of the dlfciples of Christ said the plan of govern- ment laid a foundation for Anti- Christ to introduce his govern- ment among them, by which fome of them might become perforators, if any differed from the church and couri in doftrine or practice.
-￼ANTI-CHRIST. f l
-r4 How the reafca they aye was tills—that when Antf-Christ begun his kingdom In Eomef it was by blending the church with the power of the migiirates, by which the Miiop became a tempo-
-ral, and spiritual' tyrant.
-15 Moreover when the king
-and bifliops of our cruel m§thr Britain protefted againfi the bilh- op of Rome, and fit up a feparate government, it was upon the feme plan,
-16 And by fad experience we have found that the kingdom of Anti-Chrilt extended in our coun- try, and that we fuflered the fame from the king and clergy of En- gland, that our fathers fuffered from the power of Rome,
-17 And nowf said they, if this form of government is adopted, it will not be many years before this wildernefs will be a place of perforation, where Anti-Gluift will reign in difguife.
-￼73
-* 18 (Now the difciplcs who op. poled tills form of cnvcrnnnmii mm called Anabaplith, who dc
-nied the power of magistrate* in matters of religion, believing that Clirll was able to manage his own
-kingdom without human aid)
-19 Now It came to pass after these things, that the form of gov- ernment in which the church and colony were connected, was adop- ted, and for a feafoii the people
-lived in peace.
-HlbYQRY of
-20, For the minifters confickred thcmfclvcs fervants, and ililcd
-i
-thcmfclrcs Elders the Churches.
-and Puttors «f
-21 And when the ncwA of I fair peace and profperfcy came to the cars of the people in KiigLiiidtiiia* ny of the dilHpks of Chiifl refor-
-tcd to the new world, to efc*pc the rage of Anti»Chriih
-22 liowbett Anti*€hrift was 1- ware of it, and sent over his fer* vants, and they ilirrcd up the got*
-￼ANTICHRIST, 7$
-eminent again ft the diftiples of Christ, and the government caut ed them to be cruelly pcrlectstccL
-21 Now the manner of Antl- Christ1! introducing; his loctrinc into New-England> was by ftljr- ring up the government1 against the' diicipks of Christ, because they refufod: to obey inaglftrateiln those things which were contrary
-to the laws of Christ.
-24 And after many years, tlofe
-miniftcre and people, who fir ft oiiic over to Ncw-tingland, died 3 (Now many of them were faith- ful fervanttf of Jefus - Christ, and hearty oppofers of Anti-ClirilL)
-£5 And after them rofe up men friendly to Anti-Christ, and hav- ing the fame power which thole had, who had gone before them* and not pollc-Qui£ the lame tern- per, they e&crdled if in promo- ting the kingdom tit" Anti Christ, and pcriccuting tiie diic.pies of
-Christ
-D
-￼|4 HISTORY 0*
-26 And tnftead of bearing the .Hume erf Elders, they, under An* tUChrist, took llie fame name
-which the fcrvante of Anii-Chrht
-were called by in Italy, France, and England, which k the Ckrgy% and they call themfelwcs by that name unto this day.
-CMdFTMR / x
-1 And it came to pafit in the year of Antl-Christ one thoufiml, fix hundred and forty, that the clergy fitid, go to, let us build 1 TowjiR in Cambridge, by which o i r power may be preferred to our fens, and to our !bnsf fens, m the lateft generations.
-2 And m the power of the gov- ernment is in cmr bunds, let us command them to make laws, that nomaiiflinllpretend to preach, unlefi lie haa gone through the
-TOWER, which we fliaH ercft fop the u honor of our majeitics."
-￼3 For by tlili means we Ibai prifetit the ignorant An ilwpiiftf
-from lotting up to be teachers con- trary to ciur intcrcft, and by which each pf ua in our partfhes may reign undiitarbcJ by iuch men as are breiMfii »i|i i-mrxburcties*
-4 Now Wiien ttil§ TQW&& was built, ihey pretended that it was Mkc the kluml of the prophets, where pious youii^ men were
-trained up fur gofpul mini iters, though in general they fg&ve but a
-fknall evidence 01 their pray.
-5 for any yining man, who could " confecraie himfclf with a
-bullock and 11 ram," became ^ a ckrzyman—and by reafon of this, the lowed of the people became clergymen.
-6 And aft „T this building was erected, the clergy, who ruled, be- gan to *• leek honor one of anoth. cr»" and ihey heaped on each oth- er the names of Aalt-Chrlft in great abundance.
-￼*0 HISTORY Of
-7 For they called themfelm A. B.-A. M.-1, D.-D. D.-S. T. D.
-and fomctimes thole who were fa- mous in their caufc, had large
-honors conferred on them, Juch as A« A* 0*^0* JnL St
-8 Now thefc things gave the difciplcs of Christ reaion to think thai the clergy were a let of proud, worldly men, who were deftitutg of ri$t€Wjfhffi9faitb9md the kveof
-g And feeing how the clergy and 1 heir churches u rcjetlcd the commandment of God, to keep their own tradition," they refold- ed to form a church upon the New- Telhim-.-nt plan, which was, that none flioulu be members, unlefi they mere born agiiin*
-10 Ifcey like.wile agreed to re- ject flic bapjfhi of isiii'ntss, because It was not mentioned in theftrip* turcs, and to baptize only fuch as believed that baptHm was a burial
-with Christ, according 10 the ienp- turcj.
-￼AtfTioCiiai-j'i-. 7 ;
-II Now tlit name of the place where tfcey choie to ereel this church* wm at fir§ called Shaw* mm* but afterwards it wm called jkflmf which name it retains unto this day.
-12 And in the year of Christ one- tlionfand fix hundred and fit ty fivef in the fifth month, and twenty eighth day of the fame month, the church was erected contrary to lawf and, m WM Cup* pofed at that day, according to the gplpel.
-13 Now when this was done* they called theinfelves baptifts, which made the clergy say of them, 11 they declare our infant baptifm nothingt and call thei^&lvcs bap* tiftsf as if none were baptized but
-themfclvcs*
-14 Now when this was donef
-the clergy told the court that thefa men were the fame as the mad men of Munfter, and that unlcfs they were fupprefled, the church
-￼y3 HibrokV Of
-and colony winltl be ftim thrown Into a late of anarchy.
-ij NPW when the court'came together, -one of tlic clergy in his dilcourla before the court, told them that t;cfc men were foul murderers, bceaufe they refuted filvation to infants, by withhold- ing from tlicm lite living ordi- nance of baptifm, which regciicra- ted the children, and made them membersof Clirift.
-16 And when
-the cars of the Governor, the CounMloisthK Senators, the bher- iffii, the Rcprcfi-ntati-vc&9. and all the Mimmiil Clergy* who ruled the whole court, they gave orders to have their meeting houfc nailed
-up.
-17 The clergy under Anti-
-Christi likewife moved the court <(whi{]p was their weapon of war) to make a lawf that if* any man fpakc any thing amifs refpc£ling
-infant baptifm*heflionldbebaa* iflicd from the town*
-this came tint©
-￼ANIi-vHRUT- 79
-18 How this WJS done to deftroy the diiciplcs of ChrIt, but bcscaule Ghrilt had built tltem mp in low, theftikrim/miis §fiMUmuldn&ffi* vail against imiih
-19 And It came to pass that a* bout, this time, when the clergy under Anti-Chrll were endeavor- ing to overthrow this little church of Clirift, that another trouble came on the clergy, and their
-dupes the court.
-20 For in a town not far from
-this, oiled at lirft Naumkcag9 and afterwards Salem, there role up a man ctlfcd linger, whofe fureame wai Williams.
-a i Mow this man was a good ftian, and mighty in the fcriptures, he declared that the baptifm ofin*
-fmits %vm an abomination in the light of Godf and that m^ttratcs nu^ht not to interfere with re-
-ligion,
-r r22 Moreover lie taught that the
-^ D'f who depended on the gov*
-￼s©
-HISTORY OP
-eminent hr ilicit cxiflcnce* were
-mmmm m Christ and advocates for Ami-CJuiit
-23 Ntmr when they heard tills, they were cut to the heart, and not having arguments from the
-fcripturen to prove him 111 an error, they had rectrarfe to their ufual weaptnt, the power of the court.
-24 And he, by the courts who were ruled by the cfergy, was con- dcinned to perpetual baniflmient.
-25 And being bawiiied from a government where it \\m criminal tor a man to believe and nracHfc according to the laws of d\ he
-journeyed to a place wk.« he af. terwards called Pmmdcnm
-26 And, there he fct up a free government, and on that account the ckrgg have never had it in their power to extend the limits of Ami-Christ's dominion in that S:atc to thifulav.
-1
-￼ANTI-CHRIST. Sd iBAi»TSM X
-i AndItcatnetopaithatwhen Afiti-Christ was about fevcnteen hundred and ninety years old, his
-kingdom had extended over many parti of the worldt
-^ 2 And at that time the Mlhop of Rome, and the Cletgf in Roincg France, England and Aiiicrks, had exceeded all who had gone before them in wkkednclk
-_ 3 For in Rome, the Ckrgy had given themfelves up to work all ijocleantiefs with greedlnef% being allowed in it by Anli-Christ their maftcr.
-4 And in -France,- they kepi the people in ignorance, and hound heavy burdens on them, grievous to be borne, and would not move their finger to help them*
-I In England the Clergy were preudf worldly and linful, uppret ling the people, and obliging the
-D2
-￼HISTORY OF
-difciplcs to pay tythes to tliem, though tliey never heard them,
-6 And In America the C&#jyf were prci'uniptuou*,and not afraid to speak evil of dignities ; oppof- ing and treating with contempt all who would not have these men to rule fiver them.
-7 They even differed ihcmfcfrts to be bought and fold at the lows auctions, and even towns traded with towns In Clergymen^ felling them to the higheft bidder.
-8 And it was fo that funic of the Ckigy went at a great price, reckoning than by weight, which Is thought was the way of fyliing their bodies.
-Q For one Clergyman was pur* ch'Jld by the town of Bofion, at on* i hoyland pieces of liver, (now
-a piece of lilver wm lis {hillings} *- ft* that though lie wan iiMs yet lie
-wm not fold tor naught, he was Inflight with corruptible i h t e p i fudi a* Jilvcr and gold*
-%P w"
-ji
-i
--i I
-￼AKTI*CHftiyr«- S f
-i® Anil allowing him to weigh two^ hundred; pounds weighty (which is likely,) he was valued at five pieces of liver for each poind | tlii* was confidcrcd a goodly price of him whom Bottom did value.
-11 Now there were others which were fold for live hundred pieces of River* fo great was the depred-
-ation of the Clergy in the fight of the people,
-12 Moreoverftuneofthemem« braced the doctrine of devils, call- ed Univcrftlifin, and wrote their sentinieets, and concealed them 'till after their death ; then were they publilhed by their friends.
-13 And it caiiie to pafi after this time, and by rcifon of these and many other things, the hou£s of Christ grew ftrungcr and ftronger, and the houfeuf Anti-Christ grew weaker and weaker.
-14 And when the Ckm% under Anti-Christ,-perceived that their craft-waa In danger, they fiiid kr
-￼84 HftfoaY of
-us pray m our god (the court) tliat lie would -command that all the people pay toll, tribute and cuftom to us.
-^ 11 And.to bring tils to pass— the Ckrgy of Maflachiilislts prayed to their goclt and he commanded ei that every town, parifli, precinct and body politic/" fliould have a Clergyman to read to them a fmatt
-part of one day in liven.
-16 And that every town, &&
-fhoukl have a Gkrgymm to read three months out of fix, and their god, the court, (now they had changed their weapon, the courtt into a god) commanded that if any to* n refpfed to do itf they fliould pay money, not exceeding fixty pieces of filver, nor lefs than thirty*
-if KQW the rcafon wtty the Clergy did thin, was, becaufis the people would not employ them to
-read, becaufc they could read for thcnifclves at a much cheaper rate than they could hire*
-￼ANTI-CHRIST, S j
-it Mow whin tils was done, and the order* .came to tie town's*
-many of them laid it was the voice of a goctf but lime: doubted.
-19 And this caufcd great joy among the Clergy* and they said ane to another we (hall now ob- tain an honorable living by saying over four prayers arid reading Jifty or iixty minutes in each week.
-%Q Yet notwltliftanding thist the people were not fiiisficd with them, and many laid we will not have these Clergymen to reign over i s , for they defpife the govern- ments, and complain of good men.
-21 And though the Clergymen ordered I he Shcrifls to take their property, yettkf would not hear them, but left their m feats and nails'* in what the Clergy called the
-"JioufcofGod."
-22 And when the Clergy for
-that the people left them, they complained that they were obliged to read to the walls, while /laid
-￼15 HISYORW Of i
-•;.., . ... i
-they) every enthufiaft who came* 'along has a croud of people after Mm.
-23 (Nowthose whom they call- ed enthufiafts and wolves* were fuch as preached Chrili and him crucified, and who were not of the world, and therefore these worldly ciu^y hated them*)
-24 Mow when these things were done, the clergy were much catt down in their own eyes, for they found dial they prevailed nothing, and that their ftraiglli was to fet ML
-25 And the trouble of the ekrgy under AntUChrist was very great in America, England, France and
-Rome, which w-» the feat of the
-clerical Ix^Ji*
-26 these things being mention-
-ed may fufiice ; hereafter we (hall
-talk of Antl-Christ and the ckrgy
-Infrancef aftcr l^ir ^inSwm ^e" headed, and the kingdom over*
-thrown* <r
-￼ANTI-CHRIST. Ef §M£PTMM Ml
-i And it came to. pass In those days that there afofe -a great d p turbancc In France* by reifon of
-Antt-Christ mud. the ekrgy^ who were m numerous/1 and firm fup- porters of a government oppreflivc
-to the people* m 2 And: by frafonof this,
-one hundred and thirty-eight Biliops and Archbifliops, and fixty four
-thciufand Curates* were driven fritin their fees and their pari flies for refilling to take an oath by which they niut have incurred the
-guilt of perjury and apotaey from Ami-Chrittl"
-3 JCow when fftw was donef sill the cLrgy and ihule who were de- ceived by them, were at once de- prived of the patrimony of the church of Ami-Chriil, and forced
-from their retreats.
-4 Moreover the temples of An-
-ti-Christ where the t^rgj had im»
-￼88
-HI&TOftY Of
-jrifoned the foub of men* were converted into prifons tm the re- ception of the bodies of tlie ekrgy ; (now this was done that this liv- ing might be fulfilled," happy lliall he be that rewarded! thee as thou haft Jcrved us,")
-5 There %%e're others alio who were put to death for their wick- edncfj, for three hundred of the ikitgy in one city were put to death In one day ; (now the ikrgy were as numerous In France, is the priefts of Baal were in the days of Jezebel, who maintained four hun- dred and fifty of them at her own table*)
-6 And thofc who were not im« prifoncd nor flain, but remained faithful to Ami-Christ, were ban- iflied from their country, feeking refuge among thole who were the greatcft friends to Anfi-ehrift their mailer,
-7 Now when these things were doncf therewasagreatmonarchi-
-￼AKTI'CHRMTi 89
-tal and hierarchical Earthquake, which almoft all nations of the earth felt.
-8 Then bepan to he fulfilled that which is written ill the book of Revelation, given to John on the
-lie of Patmoa.
-9 ft< And the lame hour was
-there a great Earthquake, and the tenth part of the city fell 1 and in the Earthquake were iain of men feven thoufond, and the remnant were affrighted and gave glory to 1he God of heaven,"
-10 Now by the earthquake was meant the overthrow of the king- dom of France, and the breaking that part of the kingdom of Anti- Christ ; for France was confidered as the tenth part of the city of
-Rome, that great city which ruled over the kings of the earth,
-11 And by feven thoufand men
-(not women or children) being Main, is meant the great number
-of Anti-Christ's ekrgy which were
-put xodcath mtlm foliticalcartbqtUi&Cn
-￼JP
-HISTORY tfF
-12 Now the number of flic tier* jg? who were Iain and banithed wag
-about eighty tlioulimd, which Is nearly eleven times'feventhoufand, twenty-four thoufand being flain, and the reft banifhed as enemies to the country where they dwelt.
-•i I This was a day of darknefs and trouble to the ckrgf in France and in all other parts of the €3rthf for the Earthquake was fo great that it fliook the Bifhop of Rome
-out of his great chair.
-14 Moii^/* ur this Earthquake
-lliook his money out of his cotters into the hands of the French Gen- eral ; and it even lliook the Pope out of his dominion, and caused him to tremble away to Malta,
-15 This great Earthquake also fliook off the head of the King and Queen ; it also fliook many of the Bittiop's heads off, and others it ihook out of the government.
-116 Moreover it fliook down the Baftile, the Nu&ncries, the Altars, the Imaged, the wax Candles, the
-«»•*
-i
-￼AKTI-CHRI3T. f t
-Court of Inguifition, and even Purgatory itfulf felt ilile terrible flock -of the Karthquuke! S
-17 And though 'Rome mni France felt the moil of this great Earthquake, yet.'all the comntrici were kinj.s and clergywan reigned, were linefeed at the iltire time.
-18 For even in America the r/*rgy were £0fluikcitthat they be- gan to £i)% abb 1 that great city by which uc were made rich; Ionic
-of them laid, if the government fails us we muft all be deprived of a living.
-\*9 And it enme to pass after thole things, that the tkrgy 111 A- fncrica under Anti-Chritlt, endeav- oured to make the people believe that the Chtifttan Religion was in danger of being banlftted from the earth,
-co And that if THOMAS was cliolcii chief M'lgiftrate, it would not be long before the Sabbath would be forgotten, and the min- liters of Chrilt beheaded.
-￼g&
-HISTORY o r
-z i And many who were igno- rant of the religion of drift, be- Beved their saying* for many years,
-22 But tlie. difciples of Christ believed them, not, tint told the people that these iktgymm were not Clirift*s miniiers, but AntU
-Cliriifs, and that Christ had de- clared that the gates of hell fliould not prevail agalnft his church,
-23 They likewifc lold them that the government was on Christ's flioulder, and that Christ's kingdom was to Increafe continu- ally, and that the religion which could come to nothing, could not he the religion of Christ.
-^ 24 Now when ilic people heard this, they were convinced that those who were afraid thai religion would come to nothing, were men who knew that if the truth was proved about them, it would be proved that their religion confifted in an imported form of godlincfs, without the power thereof*
-￼History ofAn&Ckrtst.
-BOOK 111,
-CMjiPTEM L
-i AND It fliali come to pifi In the latter part of tie life of Ami*
-Christ, that lofi of children and friends fliali come-on Mm in on.© day.*
-2 And it {hall come to pass that many of his friends fliali be greatly enraged agalnft the ferwants of Christ, and particularly thofc who arc labourers in preaching and writing agalnft Anti-Christ, and his fervants, the ckrgy.
-* I am a^rart that fumr wilt by, you pretend fa be a prophet < J tin nut: btu I believe die pruphe* ewv vul tim decl.'re ill.* every tiling cunl»i-y to Christ tli»f4 lip iivftrcyetlf the tliingi mcniionrd nervate e>., * *ry to X'lirfT* MiipJ«itt ^ e lull cert .In y hi* Miniyed t*y the bre.itli of ki wutb, *ad die brigmueft of hit appearing*
-￼9 4 IIIflTORY Of
-3 Moreover one of Antt-ChrtA"^ fervantt fhall endeavor to make the people believe tiut Jefus Christ is his maftcrf and that lie requires parents m fprinkle their children, and at tlte-Itine time lie Oiatl own that Christ has not exprefsly com- mafidcd it.
-4 (And far fear that he fhall be confidcrcd Anti-ChrMt'a firrvant, he will leave out the tides Ami- Christ gave him; which is Rev. and A* M. thin he will do to con- ceal himself, that he may fcrve AntUChrist in difguife.)
-5 And many lltall follow his pctnicious ways, by rcalbn of whom the way of truth fliall be evil fpokeii of, and throughfiigncd wnrdsfliallhe make merchandize of them.
-6 He fliall also endeavor *• to pervert the right way of the Lord,*1 and by u fpcaking lies in bypocrt-
-fy," hefliallrry to turn many away
-« from the Mth9B of Christ. I
-￼ANTZ»cfmz*ri 5 j
-9 Mow the %4f in which he will endeavor to build up the cause of Anti-Christ, will lie to appear religious, and at the fame time en- couragepeoplewltcrarenotu born apiii/1 to become members of the church of Antt-Chcift. m
-a-
-9 Now thefc arc fome of the ar- gunients which this fervanl of Ami-Glirift fliall ufe to keep the peojSk In igiioraiice, and to pre^ vent their reading and believing
-die ^ doctrine of Christ:"
-IO He will endeavor to make
-the people brlieve *tliat the work of Cbrilt'H fpirit is emlMj$afmf and that Christ* often makes ufe of wicked men to deliver others from finf while the? are themfclves the ftrvant* of fin.
-11 Moreover he will make men-
-S He iialt tlfo puMlfli hli bomiuution*," winch Hull be re* mmi by the ignorant is mak% barely lieeaule he says fi>, without any other proof.
-￼f)6 HISTORY OP
-fion G£t§mm0iimMWi0jm*m Honey
-ground hemmsfmi m WhirMmb,"
-M
-12 He will endeavor also to make the people believe that fotnc of the clifciplcs of Christ arc chain.
-Skins of1 " reviling, railing and underf' and at the Ikme time be will tell them, that If tbey at- rack him, he will own liimfelf over- come, and that they fliall be inaf*
-tcrs of the field*
-cartluiuakoi/' and. many iuch like things as these fliall he do,
-13 And after he has acknowl- edged that there la no mention of infant baptifm, (that main pillar of Aiui-Chrifc's kingdom) in the fcripturar* he will undertake !$ prove it by " prcluuiplbui/'
-14 Moreover lie will endeavor to prove it from covenants, iradi* turns, wjkmry wrtitrs-9 men of er*0 roneou* iwiuimcnts, and from wri- h
-ters who have not mentioned it in their books*
-1$ He will also endeavor to
-!
-￼AKTI-CII&I&T. | ^
-priive tint believers* with ill their hearts, arc not the ciily fubjects of baptilm j this he will do from the conduct of two liars by the rsim* of Ammias and Snfbira% and from one wizard by the name of 5/JWJ} the forccrer.
-16 And bcfldes all this, he will say that baptilm is the door into ihc church—and afterwards he will say that It belongs to thole who are already in the church.
-17 He will alio declare that John'sbaptifmisthem connecting link1? between the law and the gofpel; after this he will say it is the gi clofing of the law and th§ prophets/'
-18 And after this, he will say it is the " beginning of the jrolpel of Cfirift ffl and thus he will not only contradict the ieripture% but he mill alio contradict hiinfelf.
-19 And after he hassaidall this, h will acknowledge there are three
-1
-￼J>8 HISTORY OP
-iAjeaionsagilni^itI.ClirIits Uajj* fUSo—which arc these s
-m Hrif there is no firipture for it I fecoiidty, that they are not capable of believing; and thirdly, that it can do them no goad ; and after all this, lie will be prdtimp- tuous to that degree, that he will declare it to be according to the mind of Christ.
-21 He will also declare that Christ has cxpreffed his mind in fuch an indclinite manner, that
-we cannot determine what he meant we fhould dos or how we
-fliould keep his commands.
-22 ciw to prove that fie is
-Ami-Christ's fcrvant9 he will dc* dare that religion has a " fickly and a>nfumptivc appearance," hav.
-ingits body wounded by .its lri:»d^ 23 And tliii will prove to the friends of Christ. that Anti-Christ
-an J -iL religion i* like to conic to nothing, beaufc « a confumption
-￼ANTI-CHRIST. 9 9
-Is determined by the Lord -of I losts."
-.24 And it iiall come to pafi a* bout this time, that feme of the disciples of Chrii fhall boldly op. pole the corrupt doctrines of Ami*
-Chiii and his clergy.
-25 And many of the ckrgy fhall
-be greatly enraged againi?them, and particularly the one who fhall write, fo that what he writes fhall look right at them.
-26 Andnotwithflandlogallthis, and though feme ofChrist's friends fhall % " the troth niufi not be fpoken at all limes ;,f
-u 27 Yet thehoufe of Christ Ihall grow ftrongcr and ftrongcr/' and the hesufe of Anti-Christ " weaker and weaker," till he lhali fall like
-Saul, upon his own fword, and die.
-￼Id© HISTORY CJP
-CMAPTBR M
-1 And it fliall eome to pass af- ter these tilings, that by realon of flie writings of two of the fcrvants of Christ, the fervants of Anti* Christ, In one of the NewJEngland
-States,fliallunite in iblcmn prayer to their god the court,
-2 Now this will be the petition that he will make—that no mall •fliall fell any immoral pamphlets!
-and that no mahfliallfell any kind excepting book&lcrs.
-3 And this they will do to pre- sent the hicrealc of ufeful knowl- edge among the people who an " checked" by the ckrkwl nobility
-of thai Hate.
-4# And it fliall conic to pass that
-Christ will abundantly pour out his fpirit, which fliall increafc his own kingdomj and diminilh the kingdom of Anti-Christ;
-^ S And hefliallffirtip the min« iftcrs, and raifc up many more to
-￼ANTI-CHRIST, l o t
-run to and fro, that the knowl- edge of his glory may be incrcafcd, c> Then {ball Ahti-Cfcrift alio ftir up his tkrgy to oppofe him and
-his miuiliers | yet the more he 1 endeavors to ftrengthen his king- dom, the more Christ will weaken i
-him and his fubjc&s,
-7 And it fliall come to pass that 1 after many years, Anti-Christ fliall beforfaken byKings, Prefidcnts,>« Governors, and all that arc in au, j
-thority j and there mail be no law to protect him. i
-8 And it mail come to pass that ' when he is thus forfaken, he fliall
-make a great lamentation, crying, alas 1 alas ! and all hisfriendsfliall mourn and he in bitternefs, fetting '
-gent like job's friends, because of his great trouble.
-9 Andtheclericalmerchantswho have traded in his wares, (hall fa. . man, saying, alas I the great Anti- Chnft, by " whom we were made
-rich" and honorable,
-￼lot
-m
-IIISTORV or
-10 For now lie is forfaken by the governments, "no mm buy- cth our wares or merchandize my more/*
-11 "The'merchandize" ofin^ dulgeiides,of pardonsfofold relics, of the croft : " the merchandize*1 of creeds, old covenants, and plat-
-forms, are no more,
-12u Themerchandize"ofprayer
-. bmks § « the merchandize" of e/rf '/mmm i u the merchandize" of , pariihes, and the people, arc at an I end forever.
-i j u The merchandise" of ded- i'catjoua; " t h e merchandize" of
-ordinationfi, of funerals, and mar- riage^ with m the merchandize" ijf obligations against pariihes for !if\ ureal an end. 1 *
-14 " The merchandize' of titles E'veii by our matter Anti-Christ, li*ive ecafed j fuck as Lord Arch- bifliops, Archbifhops, Doftors^of Dhhiity, Rcverncd Eirfon, with all our eafet pleafurc and profit
-are over fort-ven
-￼T
-f
-t$ AndItflnttconictopaibe- fore the death of Anti-Cbrii»till the authority of the Popefliallbe
-whoiI]rdeftroyedt with all the fmM* cr of the Cardinals and Jefuits.
-16 Morepverf die power of tie Mngof England, as head of the church, with the power of the bilhop who crowns liini, fiiall be
-no more § the collecting of tithes for the Renters and Curates* fliall be at an end forever.
-17 And befides all thesei the fafliion of making minifters out of 6* college materials/9 (hall be wholly kid afidc ; and parifii lines with " parifh priefts/1 fliall be no
-more.
-18 And thofc men who now ftand to oppofc the minifters of Christ, fliall be taken away j for
-fomc of thornflialldie in an awful manner.
-19 Others will leave their king* donw, to pradife law—fome wSl becomefcuQQlmaftcrs--fomc mar-'
-￼104 HISTORY OP
-chants—mkof like tii'drljfe brother, Cain wUl" tfflthcCTound/*
-no And at that time there will be r great lamentation among the
-Sctmlcj for whenthegovernmerit tall ccafe to make laws to fupport Anti-Christ's minifters, the great-
-eft pari of them will leaire their fubjects u for want of fupport/1
-fii For even now the greateft part of them would be deferred, were it not that the law binds the
-peoplfe to them for life.
-22 Now when these things are
-acxomplifhed, wefliallnot hear of mii|ifters fueing towns for their
-filarles, neither will the courts be
-troubled with the clamour of rfpr- wmett, about parfonage lands, to
-fee whofliallhave it,
-2j Now all these things will be the btginnings of forrow " to An* ti-Christ, and ail Ms friends, for he fliall look back to tfto& days when his kingdom profpered, and his children were about him :"
-￼ANTI-CHRIST* *'©5
-24. And at the thought of this, and' his prdeftradveriity, being now an old*" man of In/* lie fhau he ready tevfink .under his troublet and many ofMsfriendsand others will think he will d b with old ai
-25 But in the midii of all aflliftion heflialldie as Aclian did, being burnt with his family, houfe- ' hold Huff, cattle and'all.that he hath, and his namefliallbeforgot*1 ten forjevcr.
-€IMPTMM M
-i MowthedeathofAntl-ChristJ fliall lie after this manner§ after lie has lived to fee his kingdom : deftroyed, his children killed, and ' " his works burnt up," CUirift fliall burn him alive, after he has " hew- ed him with his fword11 as Sam- '
-uel " Iiewcd Agae," u j
-^ % And the firelhall
-him after he has been tormented
-Ea
-confumc"
-￼I©6
-HISTORY Of
-lfwitfi the fivord that IhafI fuAEM-. ceed out of Gbrifi't; mouth," and
-he fliall know what the ditcipJes of Christ have endured, when they* received this kind of death from him and his fervants.
-^ 3 And it fliall conic topass that Ms dying groans fliall cause great mourning through earth and hell, while the angck of lieavetb with all the faints in Heaven and in earth' fliall rejoice with great joy*
-4 Then fliall he fulfilled that
-: which is written in m the rcvela*
-tion of Christ/* given to his fer- vant John, on the ilk of Ritmes, 5 ss Rejoice over her thou hea-
-vens, and ye holy apoftles and pro- phets, for God hath a%*engcd you on her/'
-• 6 And it fliall come topass that after lik death **hcfliallbe buried with the burial of an Af$$ drawn and call out of the city/' and no onefliallsay *' all my brother11 or *fc nil mv father/*
-A
-￼T
-jr Ami an. a«|el fiall fpcak at Ills. gra¥% declaring tint this dead 11 mm of fin" fliall not rife again,
-8 And after tliw " he fhall take I up a great ftcme like a millftone, and Hall cal it Into the feaf laying
-thusu kAnti-Chrlftthrowndown and fliJI be found no more for. ever."
-9 Now this fha.ll be accomplish- ed not for from the year of the reign of Chrlft two thoufimd and thirty-feven, which mill be about two hundred and twenty-fix years
-from this present time.
-i o (Now the reafon given for
-Anti-Christ's death being at that time is rhb; Anti-Christ afcendod his throne*at Romef about the
-year of Christ fe%*en hupdrcd and *
-fcvcnty-fcvcn, M 11 And his reign is to
-con* tinue forty and two months" or
-<fi twelve hundred and fixty days," (each day for a year ;) and 'thin time w|ll no£fabaccompliflicd 'till i
-f
-￼If8 JJJT0AV OF
-t i e year two tiioufmd and thirty* feven, (or two hundred and twen* ty-fis years from now,)
-12 But though the death of Jtati-Christ Is to far off, yet Mi power will be fa gone for many years, that the faint* will not liirc much to fear from Jiim9 or his fcr- vants die wicked clergy,
-i j Yet lie will ftir up the clergy% and they will endeavour to hurt the caute of Christ by Iyiiij^9 and 46 by flattery/1 "and they will try
-to make craft to, f rofprr" when they Cud that riicy cannot proffer " by force of arms,"
-14 And they will endeavour to prevail against Child's minifleraas SaiiMkt and Tcbhtb did against Nekmm/h by laying " we will build with \ ou, for v/c feck your God/1 P
-15 They will £ih endeavour to draw away the niiiiilters of Christ, J -as thofc mcti did Mdrmml^ by in- J vtting them into the villages " in /
-the plains of Ono." I
-￼ANTI-CHRIS*. Jojj""'
-i6 And feme of them will aft the part of Jmbf who took Mmr by the beard sod did * art thou in health my brother f* and while they are Hiing them they will ftab them, and leave them to wallow : in their own blood. !
-if (W&w file way to guard a»| fpinft fuch, will be always to kesp the bearJ fliort, and to tee wheth-' ct there "isa He in their right8
-hand" or not) J
-iS And it Iiall come to pass* after thofc things arc accomplished* Anii-Christ being djad and h i t kingdom wholly deftroyed, thatf *s war Iktll ccafe to the ends of thtf
-earth/* and man fliall no longer coniider man his frc\
-19 Then lsaiclk»n! ft ill be bcit into plough fliai. . n:.\.-. ipejit into jiruning-liu'jks 1 •.-- .111 ihall not lift up iVturd a^v :; ratirn, nor kingdom ajpinft .-Jngdoni j tivither Ihall thev leara war anv n:orc.M ' 'l
-￼110
-HISTORY OP
-h,2? TIlcn,fl,a11t,lemm* of Christ betung tbroaghthcarth> j
-all natronsfliallall him Welled." si Then fliall «tlic Jew, the
-Se'tni0 B:,.rl?arian' ' 4 ' S
-crown [lanJ/rCeJ a!1 u"itc to .
-„'";herc,be "oneLord,andhis r name one,"
-i mrNnin i"f r °f ih c u"ernioft pans or the earth fliall HM»,.„ t.-
-«rara longs, even glory to the nghtcous» for «t,| pejp,/^
-tin.il! inherit the earth "
-Jf G,;d bc finifted" when «the .Kingdoms of this world fliall be- ^Tl. « kir,gd»m ofour Lord
-and lua.Chriic ; and he fhail rdTM tor ever and ever."
-*h*il,B,Sd bfthe LORDGOD,
-tnn5° °f,IfraeI'w,,°onlyd°«h
-wondrous things ; and blefled b.-
-pis glorious name forever j and E.??niSe Carfh bcfi,,etIw"'»
-lus GLORY,—AMEN & 4MEN,"
-￼ANTI-CHRIST. YtX
-A SPEECH
-To be delivered at the grave if JNncHMm
-** HERB lies"~Anti-ehrift, who under t!ie name and habit of Reli-
-gion, under the countenance and cloathwg of a flieep, became the molt ravage and rampant plunderer
-xtn A of hun,an fociety.—. Uno madefearful inroads on all
-civil commerce, and left civil M d ( religious liberty expiring. A war- nor well furniflied with all aits
-poll uc and polite, with the knotty embarraffments of critidfm, the tampering chains and futilities of
-logic, and the javelins of tongue' and pen, with the roaring ordin-
-•Ul the artillery of thefthooi and
-gown. l«ury, hatred and mifirhieft
-ove of this world, pride and dif! SBT21 1e^m>fiMho6d-Pious
-rauds, and raging party zeal, were ms ucccfiary and conttant alien-
-— <SSE&B8=»K5T^.
-￼115
-mar6av 6*
-dants. High encomiums and end- Icfe applaulc of guides infallible, md faith Implicit, of hereditary and divine .right, of unlimited power and paflivc obedience to ty- rant ir/g£r and king* with the Sm^ mortal pra fe and merit of ftupld
-ignorance and blind, {ubmiflion, were heralds to prepare his way.— Trifles and tricks, and fokmn fool* eries, legends and filly, talcs, old
-. almanacks, and mouldy mufty rel- ics, fwcepings of ancient tombs, vows, pilgrimage^charms and con- fecrations, rites, obfalete and ngvd
-j ceremonies both decent and inde- * mnt9 monkifh vowss and fupcrili- , tieus auftcrities, with words of
-. ficerdotal abfolution, and faccrdo- tal vengeance, %uibss crackers, ex* conin.urjicaiionfi, curfew, roaring bulls, and vain thunders, mixed up wifli pridtly dmler, miter and black, were hU delicious, food,"— all tl»i fe are to lie with hint fore¥er*
-WEEP NOT AT HIS GRAVE.
-￼t I
-ANTICHRIST* I I
-AN ODE
-On iheBMb & Burial of Anti-Christ, msmssmmmmm
-1 HERE Co (aid may It litre for etir Me) *flie cm^fc of dead piety %
-Shallow of.graec*fiiblfcuitialGnt Religion** mAik and gaudy dtef% Tilt-form kndfoe-of belmeia.
-The fmaj^oad the plague of waX divine.
-Hi« dwelling was the church; in double fliapc. Half waa A murdering wolf, and Imlf a mlpic apf%
-2 A monftir horrid to the fljrht,
-Hideoii3f dofovn'di and void of light 5 Twas bora at Rome* 'ciww nurAI at houia^
-In the dark cloiftcm of the Vatican 1 Hit fnngs infpir'd with heaving Hep*
-Hw bulk well fatten'd to ptodfgloui Hzc* * With gyn»powder and blood of Pian,
-I
-M Ancient inhabitant of Spain, 1 And long In Fiance a wtIconic gucftj
-Over {he continent and m*in.
-Over the old world and thenetrg
-Mankind and money1 to ptirfee, Oii dragon's wlngi the Iwrpcr flm*
-And gave its feet no reft
-4 AHlanguage*ihi»furyfeakef And did «f either frx partakfe, Flaming tnfighfner of the mind, And Jtcadloiig leader of thr blindf
-Oft fiaj lie dragged the doubtful tongue to fjpeaft* While the pahVd confclraee itft the truth billing
-By gibbeti, fword arid Are,
-He made whole triba of men eipirc, t
-And to the Mm their groaningghofti be hyrl*t^
-A fwiff converter of the world. |
-peu'rottf intrillhcartaoibloott) Ikili'il 10 contrive or counterfeit
-￼114 HISTORY gr
-Mjjfafoif wifttiff, ptef,0 f ^atCi
-'llitifc rourilcf'oii ea,|ineitodrfttef gf*§g*#|,
-I A purple pretaccJiofai 10 prciiile Otcr the vkMs igmjiiim Amm$
-Andallther&mttUt lilir,
-AU bui theljaP|»r few ,#„ ro,VJ tliclr 2Cj with lpf&
-toevery.diiTerciitfctt 'iwnbow.
-He wide the «J«| andthemo/ hit own,
-Now ftdkM ia f0nnai <Aai| n p w fljtttf.d ^ ^
-gmm*
-§ At what dink hour forcer
-Hie corft CIIVJII at Rome were'raw,
-CfithnJii!Mtli topropagate This nionftfr ffli'd the chair.
-Ttic COHCLIYC drefi'd in bomieti mls *f^itf#lllr^ fwwn'dtyrantattheirIieatl, ttude litm tlirir privy cmin(i# r,
-Thr inquisition court (* bloody crew, Artful 10 fct the fytemn trap
-That lets no heretic efcape)
-Ornii film bet prefident 4nJ founder too.
-7
-Kjfijig- ag.iif«sl hcrfdf In arms,
-Irt Iter own Mood imbui*d her km&% Thii chief" led on ihc.unnariiral war,
-Of dlii fbc bloody AjiuLtrd biur, Or found the fierce sLrms ;
-Vitturioui Hill, (flEd what cart more be ftid
-Of M the Hiring warriori, or the lurruci dead 8 0 Shoot at ihe grave, 0 traveller ;
-Triumphant j»y» that reach the fliin _. Are hire the joftcft obfequaj,
-fihout thrice 1 then Uee afar
-There puii'natM Areura and Acnchm of the fcpufr
-chrei
-Co, turn thy face to I f i f #n, and pray.
-'i hat fuch * hateful manAIT never snv Ob:a!a ft RofiirroOini dty,
-? ; ' * • thechureli in eaft op weAera tadt,
-￼1
-OB Br* Mms£9s defmpikn §f ih* Ckt^f « GonmQkuU
-MtfP>
-€*THE Clergy, who are numerous, and, as a body, very refpcclablc, JIJIVC hitherto preferved a kind of ariitocratical balance In the very dentocraticat government of the ftate 1 which has happily operated as a clieck upon the overbearing
-1fpirk of RqwUiciniltn. It has been lamented that the unhappy
-religious dtiputcs which have too much prevailed among feme of the Clerpy, and an inattention to the qualifications of thole who haw been admitted to the facred ollcc, have, heretofore, conlderably di- oiiniflicd their influence. It is a pleating clicumfiance that the rage for theological difputation is abat- ing 1 and greater ftriftnefi is ob* ferved in the admiflion of candi- dates to the miniflry. Their in- fluence is on the incrcafe; and it is
-n n t^.^h* fr% us attributed in part,
-A FEW REMARKS
-￼u6
-iiiiToav ot-
-to their iticreafing inflo'HiD*, that an evident . ix'tormjtioii In tlio manners of tJu people of tills flatcf
-liaj taken placj fince the pestcc" [See Mor&'i Ctoguphj vol I, p, #j*t
-# At fuch a time as this, when there is fo much fiid concerning tha clergy, It fennot he ainifi io explain tins defcription of them, given by one of thai order.
-When the word Clergy k ufed, it is natural to inquire who are mennt. Is the word found in the fcriptures ? No There is mention made of Mlnifters of €hrlftf Minifttrs of Reconciliation, Elders, Bifhnps,
-Ririors^ Teachers, I T , In book* concerning law, wc may find a daft of men called the Clergy. What zm they ? They arc properly fpiritual
-rulers ; or, according to the Englifh tcrmv Lords fpiritual! or lords over men's fouls. What qualifies a per-
-foil to be a Clergyman ?
-i?#f—A college education, (not regeneration) according to the eter. * fmi if7ws9 no roan can be qualified
-￼f i f f l , f i'«Pf»rtant title without a 10 | wcral education-iandamannilfjhl
-be a pnadwr of the gofpel without «. &m»*-Hc „,uft n e fp!ink|ed withwaterbyar%WMfl j(an,an
-e I cannot be a preacher'^thegoibd, 9 w"1,,"ut t!!e *P""kling ofthe blind
-f I become amemberofa federaltburtK as they begin to call themfelvcs, and partake of what they call the
-Jieramciit. Feurt!,—He muft ftudy Jw«M«rfw/fli/y,cnoug|| to ,car£
-tevcrsd />r»!m hy ro/ft piflh_u
-mult bu ltcenild to say over his />«jw« and to read pk-tv and aw- witty to the people, l i i , notd; *-mial that he be a converted man.
-Inij being a general defcnptton ofthef W kt usnowattendto
-a particular dclcription of then. gtvt-nbyDr.hiori£ °' Inu"'
-Firft, r% arr numcrout: Why ? Dcciuic there is no wav that a
-««h AfmaNjockfoeafy as to be a ^*!&*W*afuit ofMtf*»afcw wafer,
-￼uS
-I!2S'iY ,.KV 0 5
-fomctJiing of a ftiarcof liypoo-iiy ; and lie can have iprfonap honfc and land, twenty cords of wood per year, fcveral hundred dollars to begin with, feveral hundred
-more to continue with, an obliga- tion for life, by which lie is .fare if the town is fick of Mraf that he
-fliall have feveral hundred more to leave off with, Xo wonder they are numerous—who would not be a clergyman I !
-Seconds They are, m a body* re* jpcEaMe: Tills is what all ontttral men are fond of, men glory of men.
-All natural men fpcakwell ofjthem, as they did of the folfe Prophets before them. They are mm like Chrlft's ministers, hated by the world | no, the world love their own ; they arc fo happy as to go clear of that pcrfecutlon which the godly fuller.
-Third, They have prefcrmi an ariftocratiral halamc ova democracy in Cmmilicm : By this artftocratical
-balance is meant, that the dbgp of
-￼t
-t.hat State are an higher order tliait flic reft of the people; they are the nobility, who only have a right (in their opinion) to rule tht peo- ple. The people hold to a.demo-
-crat tail government, whop the fciverdgn power Is In tfc||; It would be general, were It not for the clerical nobility, who depriv
-ihOT of their rights. The powei Of tins nooility prefcrves the bal- ance, fo that the people cannot do as they would, If they were not ruled by the r/rrjj,
-£ Mitrrs ilic frFor *«SM
-IM•iniih, the Llergy, „ a f ^ a r e .m^fafiTj r,?di!iCfft ^TM^«Iwhirl*i..|n S f
-Nuwondsr ituy hnw.it ihc rapid foreYd rfX"
-£ Z Z!s?pT,Me ,I,cr,wi"<*,OB?**£5*' """' , a ,I»U &fc"I«ion ol liwdergjr, tie Dis J
-￼iid
-h*pr*nl*lhk.&u Dr. JiW«s/ft2S^
-SSSf^SSSbt ada,il,,d to p*«h» «»^i
-' . ^ " ^ /*<******** wi*w mnr dunfaiiflicf i and though it raw U ttaribl
-e it bee«m,B tfw ii I, d«i*di«rinfr««d every ^ftere die, to ihat dqper, that many ttnnj; fiIfW*
-j!, r «|f»5*«|d tkiuk of fome ether vbn ftira Jivdfhood. llili deftriptibn of the d 4 y f j ^
-the meridian ofCopocAint i bm it will ftrvtbr M-iRacfiyfati, Nw-ttaipfliire and V enunt
-HlSToitY Ire.
-,„ .dB¥pllQII5 ^ctergf^isitcii by one* triat order ftewi tfcit fftey «« j^, „£,
-#
-{ a r feof min, bceaufc they are ©ppttffd to the AgMftm TMg»*Z#jfto Omhj, W h o m te.idt tltclr
-*-fl: and ltankTgiviiijr Scrmmif, mull fa c&u\i.iM4 ««'«*• Let Mft-lfuw*Ciiizcn»,rttnexnber ihu tnofc gentlemen who toirofromcuflt"e( wiicr in* Unne cluneal murifcy (generally) ojw« itie foie'
-mweiple that they corer opon Law, IMfe, Me* etundwc,Ace.which i#riclici,hunuranJptejltue Ccinlta.unilly tlicy need witching «» well tn other
-nieii---KeineniIier that Dr. Morle law the d n s y and the people, are inecimtive conetrains; lie maJineacioae or ibofa who are admitted so wlwft
-i icy all ibe/m/vnCr. TM»11 oneradhawhythe clergy m general are Jueh an ungodly fet of tmajMN m$ frf*$ifiemt mi t$t$n/rmUt»fjmi tmi wf^Om.
+1 And it came to pass in those days that there arose a great persecution against the disciples of Christ, because they refused to conform to the laws of Anti-Christ, which were published by the king and clergy.
+
+2 And the clergy said unto them, we are Protestants, for we protest against the power of the Bishop of Rome, and we are friends of Christ, and are bound to punish heretics with death, according to the law of Moses.
+
+3 Then said the disciples of Christ, though you protest against the Bishop of Rome, yet you possess the same spirit he does, and ye are friends of Anti-Christ, even as they also are.
+
+4 Now it came to pass that when they had heard this, they began to call them by odious names, such as anabaptists, schismatics and heretics, who corrupted the holy Catholic church.
+
+4 Now when this came to the ears of Anti-Christ, he sent to the king and clergy in England, to apprehend and punish with burning all who would not abjure their errors.
+
+6 And that all the books written by the disciples of Christ, shall be burnt, and particularly those which speak against the clergy, and the baptizing of infants.
+
+7 Now when these orders came from Anti-Christ, the king and clergy apprehended the disciples of Christ, and ordered them to confess that they were heretics, which
+some did through fear.
+
+8 And when they had done this, they were ordered to wear a bunch of faggots tied to their backs when they went to St. Paul's church, (now this was done to shew they deserved death, though their lives were spared through the mercy of the clergy.)
+
+9 But those who would not submit to the laws of Anti-Christ, were publicly burnt at Smithfield, as heretics who ought to die.
+
+10 And though some were burnt alive, and others banished, yet they increased the more, and their doctrine prevailed in all the regions round about;
+
+11 So that the clergy feared lest Anti-Christ would loose his dominion in England, and they be deprived of their places of honor, power and maintenance, which they had from the king's palace.
+
+12 Now these are some of the heresies charged against the disciples of Christ, which was the cause of their being burnt alive by order of the anti-christian clergy.
+
+13 The disciples of Christ taught that the baptism of infants was an invention of Anti-Christ, and one of the main pillars in his kingdom, and that a Priest's sprinkling water on them was blasphemy.
+
+14 They also maintained, that the king and clergy had no right to make laws concerning religion, and that they had a right to choose and support their own ministers.
+
+15 And that those whom Christ commissioned to preach, might not in be hindered by the king and clergy, but that they have a right to go over parish lines, and preach the gospel to every creature.
+
+16 They likewise taught, that to impose on people certain forms of prayer, was contrary to the laws of Christ, and that the manner of worshipping in the church of England was a proof of their subjection to Anti-Christ.
+
+17 Moreover they declared it blasphemy for any man to arrogate to himself the titles of Doctor of Divinity, which is to be called Rabbi, or master of other men's faith.
+
+18 Now it came to pass when these things were noised abroad, the king and clergy (being stirred up by Anti-Christ,) ordered the disciples to be banished, whipped,
+burnt, imprisoned, and treated with every kind cruelty.
+
+19 And many of them fled into Germany, and others for some time concealed themselves, while many boldly propagated the doctrine of Christ, notwithstanding all the cruelties of the wicked clergy, who stirred up the people against them.
+
+20 And it came to pass in the sixteen hundred and fourteenth year of Anti-Christ when James was king of England, that one of the disciples of Christ was brought
+before the king and clergy, for heresy.
+
+21 And he was there convicted of three things which was termed heresy, for which he was condemned to die, (now the man's name was William, whole furname was Sawtre.)
+
+22 Now these are the heresies he held, that the baptizing of infants was an abominable practice, that the Lord's supper and baptism, ought not to be administered as they are in the church of England.
+
+23 And that the doctrine of Christ is not preached in England by the clergy, as Christ commanded his disciples to preach it.
+
+24 For these things he was burnt alive, to the great joy of the clergy, who were leagued together against all who opposed their wickedness.
+
+25 Now when this was done, the people in England said one to another, if we are Protestants as we profess to be, why protest we against the church of Rome, and
+do the same things which they do?
+
+26 And this caused such discontent in the kingdom, that the king and clergy determined not to burn the heretics, but to seize their states and confine them in filthy prisons, to die there; lest they should be considered persecutors, who honored the disciples of Christ with martyrdom.
+
+CHAPTER VIII.
+
+1 And it came to pass, that by reason of the grievous persecutions which the disciples of Christ received from the clergy, that many of them left their native country to find a peaceful retreat from the cruelty of their persecutors.
+
+2 And hearing of a new country called New-England, which was separated from them by a wide ocean, called the Atlantic Ocean, they resolved to take up their abode there, where they might obey their king, Jesus Christ, undisturbed.
+
+3 Now those who sailed for this new world were of different denominations, yet they were called by one common name, which was Puritans.
+
+4 And being agreed, they sailed from England in the sixteen hundred and twentieth year of Anti-Christ, in the eighth month, and the fifth day of the month.
+
+5 Now when this was done, Anti-Christ stirred up the clergy, to prevent their removing across the ocean, fearing that they might become a nursery for the enemies of Anti-Christ and his clergy.
+
+6 However by promising faithfulness to the king, and that they would seek the interest of the gospel, part of them obtained liberty, and part were detained as sureties for the rest.
+
+7 And after sailing many days, they discovered a place called Cape Cod, where they arrived in the eleventh month of the same year, which caused all their hearts to rejoice.
+
+8 And it came to pass after certain days, they landed in a place which they called Plymouth, which name it was retained to this day.
+
+9 Now when they had landed at Plymouth, they said one to another, we are now out of the kingdom of Anti-Christ, for our persecutors remain on the other side of the flood.
+
+10 Let us now adopt a plan of civil and religious government, by which we may live without persecution, and that the generations to come may never be persecuted so long as they maintain the form of government which we have adopted.
+
+11 And they agreed on this plan, that no man should be a magistrate unless he was a member of the church; because that no man was thought fit for a magistrate or church member, unless he was a good man.
+
+12 Now when this was done, many thought they should be happy, and free from persecution, heresies, and divisions.
+
+13 But some of the disciples of Christ said the plan of government laid a foundation for Anti-Christ to introduce his government among them, by which some of them might become persecutors, if any differed from the church and court in doctrine or practice.
+
+14 Now the reason they gave was this--that when Anti-Christ begun his kingdom in Rome, it was by blending the church with the power of the magistrates, by which the bishop become a temporal and spiritual tyrant.
+
+15 Moreover when the king and bishops of our cruel mother Britain protested against the bishop of Rome, and set up a separate government, it was upon the same plan.
+
+16 And by sad experience we have found that the kingdom of Anti-Christ extended in our country, and that we suffered the same from the king and clergy of England, that our fathers suffered from the power of Rome.
+
+17 And now, said they, if this form of government is adopted, it will not be many years before this wilderness will be a place of persecution, where Anti-Christ will reign in disguise.
+
+18 (Now the disciples who opposed this form of government, were called Anabaptists, who denied the power of magistrates in matters of religion, believing that Christ was able to manage his own kingdom without human aid.)
+
+19 Now it came to apss after these things, that the form of government in which the church and colony were connected, was adopted, and for a season the people lived in peace.
+
+20 For the ministers considered themselves servants, and stiled themselves Elders and Pastors of the Churches.
+
+21 And when the news of their peace and prosperity came to the ears of the people in England, many of the disciples of Christ resorted to the new world, to escape the rage of Anti-Christ.
+
+22 Howbeit Anti-Christ was aware of it, and sent over his servants, and they stirred up the government against the disciples of Christ, and the government caused them to be cruelly persecuted.
+
+23 Now the manner of Anti-Christ's introducing his doctrine into New-England, was by stirring up the government against the disciples of Christ, because they refused to obey magistrates in those things which were contrary to the laws of Christ.
+
+24 And after many years, those ministers and people, who first came over to New-England, died: (Now many of them were faithful servants of Jesus Christ, and hearty opposers of Anti-Christ.)
+
+25 And after them rose up men friendly to Anti-Christ, and having the same power which those had, who had gone before them, and not possessing the same temper, they exercised it in promoting the kingdom of Anti-Christ, and persecuting the disciples of Christ.
+
+26 And instead of bearing the name of Elders, they, under Anti-Christ, took the same name which the servants of Anti-Christ were called by in Italy, France, and England, which is the Clergy, and they call themselves by that name unto this day.
+
+CHAPTER IX.
+
+1 And it came to pass in the year of Anti-Christ one thousand, six hundred and forty, that the clergy said, go to, let us build a TOWER in Cambridge, by which our power may be preserved to our sons, and to our sons' sons, to the latest generations.
+
+2 And as the power of the government is in our hands, let us command them to make laws, that no man shall pretend to preach, unless he has gone through the TOWER, which we shall erect for the "honor of our majesties."
+
+3 For by this means we shall prevent the ignorant Anabaptists from setting up to be teachers contrary to our interest, and by which each of us in our parishes may reign unisturbed by such men as are breaking up our churches.
+
+4 Now when this TOWER was built they pretended that it was like the school of the prophets where pious young men were trained up for gospel ministers, though in general they gave but a small evidence of their piety.
+
+5 For any young man, who could "consecrate himself with a bullock and a ram," become a clergyman--and by reason of this, the lowest of the people became clergymen.
+
+6 And after this building was erected, the clergy, who ruled, began to "seek honor one of another," and they heaped on each other the names of Anti-Christ in great abundance.
+
+7 For they called themselves A.B.-A.M.-B.D.-D.D.-S.T.D. and sometimes those who were famous in their cause, had large honors conferred on them, such as A.A.S.-S.H.S.
+
+8 Now these things gave the disciples of Christ reason to think that the clergy were a set of proud, worldly men, who were destitute of righteousness, faith, and the love of God.
+
+9 And seeing how the clergy and their churches "rejected the commandments of God, to keep their own tradition," they resolved to forma church upon the New-Testament plan, which was, that none should be members, unless they were born again.
+
+10 They likewise agreed to reject the baptism of infants, because it was not mentioned in the scriptures, and to baptize w
