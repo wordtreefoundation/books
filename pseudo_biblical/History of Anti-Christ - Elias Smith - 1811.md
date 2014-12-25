@@ -769,4 +769,308 @@ CHAPTER IX.
 
 9 And seeing how the clergy and their churches "rejected the commandments of God, to keep their own tradition," they resolved to forma church upon the New-Testament plan, which was, that none should be members, unless they were born again.
 
-10 They likewise agreed to reject the baptism of infants, because it was not mentioned in the scriptures, and to baptize w
+10 They likewise agreed to reject the baptism of infants, because it was not mentioned in the scriptures, and to baptize only such as believed that baptism was a burial with Christ, according to the scriptures.
+
+11 Now the name of the place where they chose to erect this church, was at first called Sawmut, but afterwards it was called Boston, which name it retains unto this day.
+
+12 And in the year of Christ one thousand six undred and sixty five, in the fifth month, and twenty eighth day of the same month, the church was erected contrary to law, and, as was supposed at that day, according to the gospel.
+
+13 Now when this was done, they called tehmseles baptists, which made the clergy say of them, "they declare our infant baptism nothing, and call themselves baptists, as if none were baptized but themselves.
+
+14 Now when this was done, they clergy told the court that these men were the same as the mad men of Munster, and that unless they were suppressed, the church and colony would be soon thrown into a state of anarchy.
+
+15 Now when the court came together, one of the clergy in his discourse before the court, told them that these men were soul murderers, because they refused salvation to infants, by withholding from them the saving ordinance of baptism, which regenerated the children, and made them members of Christ.
+
+16 And when this came to the ears of the Governor, the Counsellors, the Senators, the Sheriffs, the Representatives, and all the Reverend Clergy, who ruled the whole court, they gave orders to have their meeting house nailed up.
+
+17 The clergy under Anti-Christ, liekwise moved the court (which was their weapon of war) to make a law, that if any man spake any thing amiss respecting infant baptism, he should be banished from the town.
+
+18 Now this was done to destroy the disciples of Christ, but because Christ had built them up in love, these clerical gates of hell could not prevail against them.
+
+19 And it came to pass that about this time, when the clergy under Anti-Christ were endeavoring to overthrow this little church of Christ, that another trouble came on the clergy, and their dupes the court.
+
+20 For in a town not far from this, called at first Naumkeag, and afterwards Salem, there rose up a man called Roger, whose surname was Williams.
+
+21 Now this man was a good man, and mighty in the scriptures, he declared that the baptism of infrants was an abomination in the sight of God, and that magistrates ought not to interfere with religion.
+
+22 Moreover he taught that the clergy, who depended on government for their existence, were enemies to Christ and advocates for Anti-Christ.
+
+23 Now when they heard this, they were cut to the heart, and not having arguments form the scriptures to prove him in an error, they had recourse ot their usual weapon, the power of the court.
+
+24 And he, by the court, who were ruled by the clergy, was condemned to perpetual banishment.
+
+25 And being banished from a government where it was criminal for a man to believe and practice according to the laws of Christ, he journeyd to a place which he afterwards called Providence.
+
+26 And there he set up a free government, and on that account the clergy have never had it in their power to extend the limits of Anti-Christ's dominion in that State to this day.
+
+CHAPTER X.
+
+1 And it came to pass that when Anti-Christ was about seventeen hundred and ninety years old, his kingdom had extended over many parts of the world.
+
+2 And at that time the bishop of Rome, and the Clergy in Rome, France, England and America, had exceeded all who had gone before them in wickedness.
+
+3 For in Rome, the Clergy had given themselves up to work all uncleanness with greediness, being allowed in it by Anti-Christ their master.
+
+4 And in France, they kept the people in ignorance, and bound heavy burdens on them, grievous to be borne, and would not move their finger to help them.
+
+5 In England the Clergy were proud, worldly and sinful, oppressing the people, and obliging the disciples to pay tythes to them, though they never heard them.
+
+6 And in America the Clergy were presumptuous, and not afraid to speak evil of dignities; opposing and treating with contempt all who would not have these men to rule over them.
+
+7 They even suffered themslves to be bought and sold at the town auctions, and even towns traded with towns in Clergymen, selling them to the highest bidder.
+
+8 And it was so that some of the Clergy went at a great price, reckoning them by weight, which is thought was the way of selling their bodies.
+
+9 For one Clergyman was purchased by the town of Boston, at one thousand pieces of silver, (now a piece of silver was six shillings) so that though he was sold, yet he was not sold for naught, he was bought with corruptible things, such as silver and gold.
+
+10 And allowing him to weigh two hundred pounds weight, (which is likely,) he was valued at five pieces of silver for each pound; this was considered a goodly price of him whom Boston did value.
+
+11 Now there were others which were sold for five hundred pieces of silver, so great was the depreciation of the Clergy in the sight of the people.
+
+12 Moreover some of them embraced the doctrine of devils, called Universalism, and wrote their sentiments, and concealed them 'till after their death; then were they published by their friends.
+
+13 And it came to pass after this time, and by reason of these and many other things, the house of Christ grew stronger and stronger, and the house of Anti-Christ grew weaker and weaker.
+
+14 And when the Clergy, under Anti-Christ, perceived that their craft was in danger, they said let us pray to our god (the court) that he would command that all the people pay toll, tribute and custom to us.
+
+15 And to bring this to pass--the Clergy of Massachusetts prayed to their god, and he commanded "that every town, parish, precinct and body politic," should have a Clergyman to read to them a small part of one day in seven.
+
+16 And that every town, &c. should have a Clergyman to read three months out of six, and their god, the court, (now they had changed their weapon, the court, into a god) commanded that if any town refused to do it, they should pay money, not exceeding sixty pieces of silver, nor less than thirty.
+
+17 Now the reason why the Clergy did this, was, because the people would not employ them to read, because they could read for themselves at a much cheaper rate than they could hire.
+
+18 Now when this was done, and the orders came to the towns, many of them said it was the voice of a god, but some doubted.
+
+19 And this caused great joy among the Clergy, and they said one to another we shall now obtain an honorably living by saying over four prayers and reading fifty or sixty minutes in each week.
+
+20 Yet notwithstanding this, the people were not satisfied with them, and many said we will not have these Clergymen to reign over us, for they despise the governments, and complain of good men.
+
+21 And though the Clergymen ordered the Sheriffs to take their property, yet they would not hear them, but left their "seats and nails" in what the Clergy called the "house of God."
+
+22 And when the Clergy saw that the people left them, they complained that they were obliged to read to the walls, while (said they) every enthusiast who comes along has a crowd of people after him.
+
+23 (Now those whome they called enthusiasts and wolves, were such as preached Christ and him crucified, and who were not of the world, and therefore these worldly clergy hated them.)
+
+24 Now when these things were done, the clergy were much cast down in their own eyes, for they found that they prevailed nothign, and that their strength was to set still.
+
+25 And the trouble of the clergy under Anti-Christ was very great in America, England, France and Rome, which was the seat of the clerical beast.
+
+26 These things being mentioned may suffice; hereafter we shall talk of Anti-Christ and the clergy in France, after their king was beheaded, and the kingdom overthrown.
+
+CHAPTER XI.
+
+1 And it came to pass in those days that there arose a great disturbance in France, by reason of Anti-Christ and the lergy, who were "numerous," and firm supporters of a government oppressive to the people.
+
+2 And by reason of this, "one hundred and thirty-eight Bishops and Archbishops, and sixty four thousand Curates, were driven from their sees and their parishes for refuting to take an oath by which they must have incurred the guilt of perjury and apostacy from Anti-Christ."
+
+3 Now when this was done, all the clergy and those who were deceived by them, were at once deprived of the patrimony of the church of Anti-Christ, and forced from their retreats.
+
+4 Moreover the temples of Anti-Christ where the clergy had imprisoned the souls of men, were converted into prisons for the reception of the bodies of the clergy; (now this was done that this saying might be fulfilled, "happy shall he be that rewardeth thee as thou hast served us.")
+
+5 There were others also who were put to death for their wickedness, for three hundred of the clergy in one city were put to death in one day; (now the clergy were as numerous in France, as the priests of Baal were in the days of Jezebel, who maintained four hundred and fifty of them at her own table.)
+
+6 And those who were not imprisoned nor slain, but remained faithful to Anti-Christ, were banished from their country, seeking refuge among those who were the greatest friends to Anti-Christ their master.
+
+7 Now when these things were done, there was a great monarchical and hierarchical Earthquake, which almost all nations of the earth felt.
+
+8 Then began to be fulfilled that which is written in the book of Revelation, given to John on the isle of Patmos.
+
+9 "And the same hour was there a great Earthquake, and the tenth part of the city fell; and in the Earthquake were slain of men seven thousand, and the remnant were affrighted and gave glory to the God of heaven."
+
+10 Now by the earthquake was meant the overthrow of the kingdom of France, and the breaking that part of the kingdom of Anti-Christ; for France was considered as the tenth part of the city of Rome, that great city which ruled over the kings of the earth.
+
+11 And by seven thousand men (not women or children) being slain, is meant the great number of Anti-Christ's clergy which were put to death in this political earthquake.
+
+12 Now the number of the clergy who were slain and banished was about eighty thousand, which is nearly eleven times seven thousand, twenty-four thousand being slain, and the rest banished as enemies to the country where they dwelt.
+
+13 this was a day of darkness and trouble to the clergy in France and in all other parts of the earth, for the Earthquake was so great that it shook the Bishop of Rome out of great chair.
+
+14 Moreover this Earthquake shook his money out of his coffers into the hands of the French General; and it even shook the Pope out of his dominion, and caused him to tremble away to Malta.
+
+15 This great Earthquake also shook off the head of the King and Queen; it also shook many of the Bishop's heads off, and others it shook out of the government.
+
+16 Moreover it shook down the Bastile, the Nunneries, the Alters, the Images, the wax Candles, the Court of Inquisition, and even Purgatory itself felt this terrible shock of the Earthquake!!
+
+17 And though Rome and France felt the most of this great Earthquake, yet all the countries were kings and clergymen reigned, were shocked at the same time.
+
+18 For even in America the clergy were so shaken that they began to say, alas! that great city by which we were made rich; some of them said, if the government fails us we must all be deprived of a living.
+
+19 And it came to pass after those things, that the clergy in America under Anti-Christ, endeavoured to make the people believe that the Christian Religion was in danger of being banished from the earth.
+
+20 And that if THOMAS was chosen chief Magistrate, it would not be long before the Sabbath would be forgotten, and the ministers of Christ beheaded.
+
+21 And many who were ignorant of the religion of Christ, believed their sayings for many years.
+
+22 But the disciples of Christ believed them not, but told the people that these clergyman were not Christ's ministers, but Anti-Christ's and that Christ had declared that the gates of hell should not prevail against his church.
+
+23 They likewise told them that the government was on Christ's shoulders, and that Christ's kingdom was to increase continually, and that the religion which could come to nothing could not be the religion of Christ.
+
+24 Now when the people heard this, they were convinced that those who were afraid that religion would come to nothing, were men who knew that if the truth was proved about them, it would be proved that their religion consisted in an imported form of godliness, without the power thereof.
+
+BOOK III.
+
+CHAPTER I.
+
+1 And it shall come to pass in the latter part of the life of Anti-Christ, that loss of children and friends shall come on him in one day.*
+
+2 And it shall come to pass that many of his friends shall be greatly enraged against the servants of Christ, and particularly those who are labourers in preaching and writing against Anti-Christ, and his servants, the clergy.
+
+* I am aware that some will say you pretend to be a prophet; I do not: but I believe the prophecies, and they declare that every thing contrary to Christ shall be destroyed; the things mentioned here are contrary to Christ's kingdom, and will certainly be destroyed by the breath of his mouth, and the brightness of his appearing.
+
+3 Moreover one of Anti-Christ's servants shall endeavor to make the people believe that Jesus Christ is his master, and that he requires parents to sprinkle their children, and at the same time he shall own that Christ has not expressly commanded it.
+
+4 (And for fear that he shall be considered Anti-Christ's servant, he will leave out the titles Anti-Christ gave him; which is Rev. and A.M. this he will do to conceal himself, that he may serve Anti-Christ in disguise.)
+
+5 And many shall follow his pernicious ways, by reason of whom the way of truth shall be evil spoken of, and through feigned words shall he make merchandize of them.
+
+6 He shall also endeavor "to pervert the right way of the Lord," and by "speaking lies in hypocrisy," he shall try to turn many away "from the faith" of Christ.
+
+7 Now the way in which he will endeavor to build up the cause of Anti-Christ, will be to appear religious, and at the same time encourage people who are not "born again," to become members of the church of Anti-Christ.
+
+8 He shall also publish his "abominations," which shall be received by the ignorant as truth, barely because he says so, without any other proof.
+
+9 Now these are some of the arguments which this servant of Anti-Christ shall use to keep the people in ignorance, and to prevent their reading and believing the "doctrine of christ:"
+
+10 He will endeavor to make the people believe that the work of Christ's spirit is enthusiasm, and that Christ often makes use of wicked men to deliver others from sin, while they are themselves the servants sin.
+
+11 Moreover he will make mention of counterfeit conversions, "stoney ground hearers," of "whirlwinds," "earthquakes," and many such like things as these shall he do.
+
+12 He will endeavor also to make the people believe that some of the disciples of Christ are champions of "reviling, railing and slander;" and at the same time he will tell them, that if they attack him, he will own himself overcome, and that they shall be masters of the field.
+
+13 And after he has acknowledged that there is n omention of infant baptism, (that main pillar of Anti-Christ's kingdom) in the scriptures, he will undertake to prove it by "presumption."
+
+14 Moreover he will endeavor to prove it from covenants, traditions, visionary writers, men of erroneous sentiments, and from writers who have not mentioned it in their books.
+
+15 He will also endeavor to prove that believers, with all their hearts, are not the only subjects of baptism; this he will do from the conduct of two liars by the name of Annanias and Saphira, and from one wizard by the name of Simon the sorcerer.
+
+16 And besides all this, he will say that baptism is the door into the church--and afterwards he will say that it belongs to those who are already in the church.
+
+17 He will also declare that John's baptism is the "connecting link" between the law and the gospel; after this he will say it is the "closing of the law and the prophets."
+
+18 And after this, he will say it is the "beginning of the gospel of Christ;" and thus he will not only contradict the scriptures, but he will also contradict himself.
+
+19 And after he has said all this, he will acknowledge there are three objections against Anti-Christ's baptism--which are these:
+
+20 First, there is no scripture for it; secondly, that they are not capable of believing; and thirdly, that it can do them no good; and after all this, he will be presumptuous to that degree, that he will declare it to be according to the mind of Christ.
+
+21 He will also declare that Christ has expressed his mind in such an indefinite manner, that we cannot determine what he meant we should do, or how we should keep his commands.
+
+22 Now to prove that he is Anti-Christ's servant, he will declare that religion has a "sickly and consumptive appearance," having its body wounded by its friends.
+
+23 And this will prove to the friends of Christ that Anti-Christ and his religion is like to come to nothing, because "a consumption is determined by the Lord of Hosts."
+
+24 And it shall come to pass about this time that some of the disciples of Christ shall boldly oppose the corrupt doctirnes of Anti-Christ and his clergy.
+
+25 And many of the clergy shall be greatly enraged against them, and particularly the one who shall write, so that what he writes shall look right at them.
+
+26 And notwithstanding all this, and though some of Christ's friends shall say "the truth must not be spoken at all times;"
+
+27 Yet the house of Christ shall "grow stronger and stronger," and the house of Anti-Christ "weaker and weaker," till he shall fall like Saul, upon his own sword, and die.
+
+CHAPTER II.
+
+1 And it shall come to pass after these things, that by reason of the writings of two fo the servants of Christ, the servants of Anti-Christ, in one of the New-England States, shall unite in solemn prayer to their god the court.
+
+2 Now this will be the petition that he will make--that no man shall sell any immoral pamphlets, and that no man shall sell any kind excepting booksellers.
+
+3 And this they will do to prevent the increase of useful knowledge among the people who are "checked" by the clerical nobility of that state.
+
+4 And it shall come to pass that Christ will abundantly pour out his spirit, which shall increase his own kingdom, and diminish the kingdom of Anti-Christ;
+
+5 And he shall stir up the ministers, and raise up many more to run to and fro, that the knowledge of his glory may be increased.
+
+6 Then shall Anti-Christ also stir up his clergy to oppose him and his ministers; yet the more he endeavors to strengthen his kingdom, the more Christ will weaken him and his subjects.
+
+7 And it shall come to pass that after many years, Anti-Christ shall be forsaken by Kings, Presidents, Governors, and all that are in authority; and there shall be no law to protect him.
+
+8 And it shall come to pass that when he is thus forsaken, he shall make a great lamentation, crying alas! alas! and all his friends shall mourn and be in bitterness, setting silent lik job's friends, because of his great trouble.
+
+9 And the clerical merchants who have traded in his wares, shall lament, saying, alas! the great Anti-Christ, by "whom we were made rich" and honorable.
+
+10 For now he is forsaken by the governments, "no many buyeth our wares or merchandize any more."
+
+11 "The merchandize" of indulgencies, of pardons, of old relics, of the cross: "the merchandize" of creeds, old covenants, and platforms, are no more.
+
+12 "The merchandize" of prayer books; "the merchandize" of old sermons; "the merchandize" of parishes, and the people, are at an end forever.
+
+13 "The merchandize" of dedications; "the merchandize" of ordinations, of funerals, and marriages, with "the merchandize" of obligations against parishes for life are at an end.
+
+14 "The merchandize" of titles given by our master Anti-Christ, have ceased; such as Lord Archbishops, Archbishops, Doctors of Divinity, Reverned Parson, with all our ease, pleasure and profit, are over forever.
+
+15 And it shall come to pass before the death of Anti-Christ, that the authority of the Pope shall be wholly destroyed with all the power of the Cardinals and Jesuits.
+
+16 Moreover, the power of the king of England, as head of the church, with the power of the bishop who crowns him, shall be no more; the collecting of tithes for the Rectors and Curates, shall be at an end forever.
+
+17 And besides all these, the fashion of making ministers out of "college materials," shall be wholly laid aside; and parish lines with "parish priests," shall be no more.
+
+18 And those men who now stand to oppose the ministers of Christ, shall be taken away; for some of them shall die in an awful manner.
+
+19 Others will leave their kingdoms, to practise law--some will become schoolmasters--some merchants--others, like their elder brother, Cain will "till the ground."
+
+20 And at that time there will be a great lamentation among the people; for when the government shall cease to make laws to support Anti-Christ's ministers, the greatest part of htem will leave their subjects "for want of support."
+
+21 For even now the greatest part of them would be deserted, were it not that the law binds the people to them for life.
+
+22 Now when these things are accomplished, we shall not hear of ministers sueing towns for their salaries, neither will the courts be troubled with the clamour of clergymen, about parsonage lands, to see who shall have it.
+
+23 Now all these things will be the beginnings of sorrow "to Anti-Christ, and all his friends, for he shall look back to those days when his kingdom prospered, and his children were about him:"
+
+24 And at the thought of this, and his present adversity, being now an old "man of sin," he shall be ready to sink under his trouble, and many of his friends and others will think he will die with old age;
+
+25 But in the midst of all this affliction he shall die as Achan did, being burnt with his family, household stuff, cattle and all that he hath, and his name shall be forgotten forever.
+
+CHAPTER III.
+
+1 Now the death of Anti-Christ shall be after this manner; after he has lived to see his kingdom destroyed, his children killed, and "his works burnt up," Christ shall burn him alive, after he has "hewed him with his sword" as Samuel "hewed Agag."
+
+2 And the fire shall "consume" him after he has been tormented "with the sword that shall proceed out of Christ's mouth," and he shall know what the disciples of Christ have endured, when they received this kind of death from him and his servants.
+
+3 And it shall come to pass that his dying groans shall cause great mourning through earth and hell, while the angels of Heaven, with all the saints in Heaven and in earth shall rejoice with great joy.
+
+4 Then shall be fulfilled that which is written in "the revelation of Christ," given to his servant John, on the isle of Patmos.
+
+5 "Rejoice over her thou heavens, and ye holy apostles and prophets, for God hath avenged you on her."
+
+6 And it shall come to pass that after his death "he shall be buried with the burial of an Ass, drawn and cast out of the city," and no one shall say "ah my brother" or "ah my father."
+
+7 And an angel shall speak at his grave, declaring that this dead "man of sin" shall not rise again.
+
+8 And after this "he shall take up a great stone like a millstone, and shall cast it into the sea, saying thus "is Anti-Christ thrown down and shall be found no more forever."
+
+9 Now this shall be accomplished not far from the year of the reign of Christ two thousand and thirty-seven, which will be about two hundred and twenty-six years from this present time.
+
+10 (Now the reason given for Anti-Christ's death being at that time is this; Anti-Christ ascended his throne at Rome, about the year of Christ seven hundred and seventy-seven,
+
+11 And his reign is to "continue forty and two months" or "twelve hundred and sixty days," (each day for a year;) and this time will not be accomplished 'till the year two thousand and thirty-seven, (or two hundred and twenty-six years from now.)
+
+12 But though the death of Anti-Christ is so far off, yet his power will be so gone for many years, that the saints will not have much to fear from him, or his servants the wicked clergy.
+
+13 Yet he will stir up the clergy, and they will endeavour to hurt the cause of Christ by lying, and "by flattery," "and they will try to make craft to prosper" when they find that they cannot prosper "by force of arms."
+
+14 And they will endeavour to prevail against Christ's ministers as Sanballet and Tobiah did against Nehemiah, by saying "we will build with you, for we seek your God."
+
+15 They will also endeavour to draw away the ministers of Christ, as those men did Nehemiah, by inviting them into the villages "in the plains of Ono."
+
+16 And some of them will act the part of Joab, who took Abner by the beard and said "art thou in health my brother?" and while they are kissing them they will stab them, and leave them to wallow in their own blood.
+
+17 (Now the way to guard against such, will be always to keep the beard short, and to see whether there "is a lie in their right hand" or not.)
+
+18 And it shall come to pass after those things are accomplished, Anti-Christ being dead and his kingdom wholly destroyed, that "war shall cease to the ends of the earth," and man shall no longer consider man his see.
+
+19 Then "the sword shall be beat into plough shares and spears into pruning-hooks; nation shall not lift up sword against nation, nor kingdom against kingdom; neither shall they learn war any more."
+
+20 Then shall the name of Christ be sung through the earth, and "all nations shall call him blessed."
+
+21 Then shall "the Jew, the Greek, the Barbarian, the Sythian, the bond and free, " all unite to crown him "Lord of all," then shall there be "one Lord, and his name one."
+
+22 And "from the uttermost parts of the earth shall there be heard songs, even glory to the righteous," for "the people shall be all righteous," and "the meek shall inherit the earth."
+
+23 And then shall "the mystery of God be finished" when "the kingdoms of this world shall become the kingdom of our Lord and his Christ; and he shall reign for ever and ever."
+
+24 "Blessed by the Lord God, the God of Israel, who only doeth wondrous things; and blessed be his glorious name forever; and let the whole earth be filled with his GLORY,--AMEN & AMEN."
+
+A SPEECH
+
+To be delivered at the grave of ANTI-CHRIST.
+
+"Here lies Anti-Christ, who under the name and habit of Religion, under the countenance and cloathing of a sheep, became the most savage and rampant plunderer and waster of human society.--"
