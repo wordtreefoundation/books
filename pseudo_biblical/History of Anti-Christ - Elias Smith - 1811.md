@@ -1073,4 +1073,14 @@ A SPEECH
 
 To be delivered at the grave of ANTI-CHRIST.
 
-"Here lies Anti-Christ, who under the name and habit of Religion, under the countenance and cloathing of a sheep, became the most savage and rampant plunderer and waster of human society.--"
+"Here lies Anti-Christ, who under the name and habit of Religion, under the countenance and cloathing of a sheep, became the most savage and rampant plunderer and waster of human society.--Who made fearful inroads on all civil commerce, and left civil and religious liberty expiring. A warrior well furnished with all arts politic and plite, with the knotty embarrassments of criticism, the hampering chains and subtilities of logic, and the javelins of tongue and pen, with the roaring ordinance of councils and cannons, and all the artillery of the school and gown. Fury, hatred and mischief, love of this world, pride and disdain, with perjuries, falshood, pious frauds, and raging party zeal, were his necessary and constant attendants. High encomiums and endless applause of guides infallible, and faith implicit, of hereditary and divine right, of unlimited power and passive obedience to tyrant priests and kings, with the immortal praise and merit of stupid ignorance and blind submission, were heralds to prepare his way.--Trifles and tricks, and solemn fooleries, legends and silly tales, old almanacks, and mouldy musty relics, sweepings of ancient tombs, vows, pilgrimages, charms and consecrations, rites, obsolete and novel ceremonies both decent and indecent, monkish vows, and superstitious austerities, with words of sacerdotal absolution, and sacerdotal vengeance, squibs, crackers, excommunications, curses, roaring bulls, and vain thunders, mixed up with priestly choler, bitter and black, were his delicious food,"--all these are to lie with him forever. WEEP NOT AT HIS GRAVE.
+
+AN ODE
+On the Death & Burial of Anti-Christ
+
+...
+
+A FEW REMARKS
+On Dr. Morse's description of the Clergy in Connecticut.
+
+
