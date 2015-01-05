@@ -113,7 +113,7 @@ And on this Basis wwere the Hopes of all the Tribes without Distinction to be bu
 
 XI.
 
-In the mean Time, Tidings of this Broad-Bottom came to Robert the Minister, and Fear came upon him: Wherefore he went to the Palace of the King in Sackcloth; and he fell down to the Earth upon his Face, and said, O King, live for ever! Be thy Throne established from Generation to Generation. If thy Servant hath ever found Favour in his Lord's Sight, let him hear the Voice of his Servant. And George said, Arise up, an dsay on.
+In the mean Time, Tidings of this Broad-Bottom came to Robert the Minister, and Fear came upon him: Wherefore he went to the Palace of the King in Sackcloth; and he fell down to the Earth upon his Face, and said, O King, live for ever! Be thy Throne established from Generation to Generation. If thy Servant hath ever found Favour in his Lord's Sight, let him hear the Voice of his Servant. And George said, Arise up, and say on.
 
 XIII.
 
@@ -137,7 +137,7 @@ Now it came to pass, in a few Days after John the Arg-lite had been apointed Cap
 
 XVIII.
 
-And as soon as the Words were uttered, the --- fell into a great Rage, and cried aloud, Jacobites! Jacobites! Traytors! Traytors! Then he was deaf to all the Captan of War could say; and he turned his A- on the Captain of his Armies, and the Captain of his Armies turned his A- on him, and said, he would be no more the Captain of his Armies; And so they departed in gread Dudgeon.
+And as soon as the Words were uttered, the --- fell into a great Rage, and cried aloud, Jacobites! Jacobites! Traytors! Traytors! Then he was deaf to all the Captan of War could say; and he turned his A- on the Captain of his Armies, and the Captain of his Armies turned his A- on him, and said, he would be no more the Captain of his Armies; And so they departed in great Dudgeon.
 
 XIX.
 
@@ -166,3 +166,153 @@ And O-f-d the E-l laughed to Scorn the Murmurings of the People, saying, Mine Ex
 XXV.
 
 Then his Coaches, and Chariots, and Horsemen, and Followers were got ready, and they went to Ch-ls-a to be merry; where he sung this Song in praise of the King, who had delivered him from his Enemies.
+
+To the Chief Musician on the Organ, RALPH COURTEVILLE.
+
+A SONG of O-F-D's
+
+God prosper long our noble King,
+Who heard my woeful Call;
+To him with merry Heart I'll sing,
+Who sav'd my dreadful Fall.
+
+Both Death and Hell encompass'd me,
+And Terrors round arose:
+But then I cry'd full piteously,
+O! Screen me from my Foes.
+
+He heard, he spake; his Royal Will
+Full Royally was shewn:
+Pr-r-g-tive shall screen thee still
+Behind my Royal Throne.
+
+What then, tho' all the People say,
+That this is all a Farce;
+Still shall my merry Heart be gay,
+And bid them kiss my ---
+
+So ends the First Chapter of the Last Book of PATRIOTISM.
+
+The SECOND LESSON is the First Epistle of CH-ST-RF--LD to the KENSINGTONIANS.
+
+I.
+
+CH-ST-RF--LD, called to be a Patriot of his Country, thro' the Spirit of Liberty, and Love to his Country,
+
+II.
+
+Unto the late Brethren called Patriots, now at the Royal Palase at K-nsi-gt-n; to all Britons in general, who love Freedom, Virtue, and Justice, with all that in every Place detest Venality, Corruption, and Dependancy:
+
+III.
+
+Grace be unto you, to be true and faithful to your Country.
+
+IV.
+
+Now I beseech you Brethren, take heed concerning the Things which I write: For even among the best of ye I have been assured, there has been Luke-warmness, Indolence, private Views, and in some a thorough falling off.
+
+V.
+
+It hath also been declared unto me of ye, my Brethren, by those who are of the House of Ch-rlt-n, that ye are Time-servers, Deceivers, and Word-Breakers.
+
+VI.
+
+that also there are Divisions and Contentions among the younger Brethren, who have but lately had a Call to the Ministry: The one faith, I am of O-f--d, and another, I am of B-th; others, I am of C-rt-t, I am of S-dys, and I of Ar-gle.
+
+VII.
+
+Now, who is O-f-d? He was once a Patriot, and suffered for Liberty's Sake. Twenty Years and upwards hath he since been a Prime M-r; and what hath he done for Liberty? His Patriotism became Corruption, an dhis Professions of a Love for Liberty were changed to Endeavors to corrupt his Country,
+
+VIII.
+
+Who is B-th? --- The Friend of O-f-d, --- and was, but the other Day, the professed one of his Country. --- What hath he done for his Country? Hath he brought her Enemies to Justice? Hath he broken the Bands of Corruption? Hath he kept his Word with Fr-d-ck the Pr-ce? What then hath he done to be called Patriotism?
+
+IX.
+
+He hath changed his Name; and with his Name his avowed Principles, the Love of his Countrymen for the Smile of his K--.
+
+X.
+
+Who are C-rt-t and S-dys? They were Patriots; --- they are now Courtiers of the K-g; and peradventure, the are become like the K-g's old Courtiers.
+
+XI.
+
+Verily, verily, I say unto you, unless a Man hath a stedfast Faith that the Love of Liverty, and of our Country, is to be preferred before Honours, Titles, Promotions, Places and such like; he is in much Danger to have his Patriotism staggered in King's Palaces.
+
+XII.
+
+P-l-y was, but is not. --- Touching Place-Bills, S-dys uttereth not his Voice: He is neither for displacing nor displeasing: There is no Poison of Asps under his Lips: He speaketh not: His Heart pondereth on Ways and Means.
+
+XIII.
+
+Now, I beseech you, Men of Britain, and Brethren, in the Love of Freedom, if any of you would be called Patriots, should you perceive Men in any wise speak or act contrary to the Doctrine they themselves have taught you, contemn them as false Brethren.
+
+XIV.
+
+For they are such as serve not their Country for the public Wealth, but for their own private Lucre; and, by their good Words and fair Speeches, deceive the Hearts of the Simple.
+
+XV.
+
+It has been said among the m-n-st-rs of State, what! Is there not Patriotism in a Court? Are all R-gues that enter into it?
+
+XVI.
+
+I say not so: God forbid: But a Minister of State must, to be a Patriot, be a Friend to his Country: he must not only be just himself, but endeavour to bring to Justice whoever hath been unjust; and let Men so account of him, as of the servant of the King, and Friend and Steward to the People.
+
+XVII.
+
+Moreover it is required in Stewardship, that a Man rack not the Tenants over much; that he spendeth not immense Wealth to Beggar them into Slavery; for what Field will always bear large Crops of Corn, without it somtimes lieth Fallow?
+
+XVIII.
+
+How long have we seen the Iniquities of False Stewardship? How long have we groan'd under Affliction? How long have Bribery and Corruption kiss'd one another? How long have Peculation and Oppression gone Hand in Hand?
+
+XIX.
+
+O ye Men of Palaces, hearken unto me. O ye Ministers of State! give Ear unto the Words of my Mouth.
+
+XX.
+
+Woe unto them who are given to change! Woe unto them who will not decree Righteous Decrees! who will not follow the Righteousness they have prescribed!
+
+XXI.
+
+For a Day of Visitation shall come: And what, O ye false Patriots! will ye do in the Day of Visitation? To whom will ye flee for Help? Where will you flee for Succour? Where will you leave your Glory?
+
+XXII.
+
+Tho' ye spake with the Tongues of Men and of Angels, and have not true Patriotism, a true Love for your Country, ye ar all ass sounding Brass, and tinkling Cymbals.
+
+XXIII.
+
+And tho' ye have the Gifts of Treasuryships, of Secretaryships, and have Knowledge, ant tho' ye have all faith that ye cou'd remove Mountains, and have so little Patriotism as to remove them not, ye are as nothing.
+
+XXIV.
+
+Tho' ye have spoken Speeches, tho' ye have made Protests, tho' ye have cry'd out against an all grasping and oppressive Minister, and have not Patriotism to bring him to Condemnation, it profiteth nothing.
+
+XXV.
+
+Patriotism is vigilant and persevering: Patriotism changeth not: Patriotism vaunteth not itself, nor is puffed up by Places or by Honours:
+
+XXVI.
+
+Doth not from uncorruptible become corruptible; and seeketh not for private Lucre; thinketh not of enlarging Prerogative;
+
+XXVII.
+
+Rejoiceth not in new Taxations, but rejoiceth in reducing the National Debt: and for this End
+
+XXVIII.
+
+Striveth at all things; from the K--- beareth all things; hopeth all things; and produceth all things.
+
+XXIX.
+
+Patriotism never faileth: But whether there be great Abilities they shall fail; whether there be Eloquence of tongue, that shall cease; whether there be Knowledge, that shall vanish away; but Patriotism, the Truth of Heart, abideth forever.
+
+XXX.
+
+And now abideth great Eloquence, great Knowledge, and great Patriotism; these three: But the greatest of these is Patriotism.
+
+So endeth the Epistle of the CH-ST-R-F-D of the KENSINGTONIANS.
